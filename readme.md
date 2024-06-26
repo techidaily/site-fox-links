@@ -1,6 +1,6 @@
-# TechiDaily
+# Fox Links Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://fox-links.techidaily.com](https://fox-links.techidaily.com)
 
 ## Publish
 
