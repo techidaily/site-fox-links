@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Edit with Precision  Mastery of Photoshop's Eraser for 2024\""
-date: 2024-06-24 15:24:32
-updated: 2024-06-25 12:54:40
+date: 2024-06-25T15:21:49.200Z
+updated: 2024-06-26T15:21:49.200Z
 tags: 
   - screen-recording
   - ai video
@@ -64,7 +64,7 @@ When you enable the Background Eraser tool in Photoshop, you will see that the c
 
 ![bruch preset picker function in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/bruch-preset-picker-function-in-background-eraser-tool.png)
 
-The **Brush Preset Picker** is the first option that opens up a panel to let you adjust the size of your brush, its hardness, spacing, and tolerance. You can also change the size using the **Left Bracket ( \[ )** and **Right Bracket ( \] )**  keys on your PC keyboard.
+The **Brush Preset Picker** is the first option that opens up a panel to let you adjust the size of your brush, its hardness, spacing, and tolerance. You can also change the size using the **Left Bracket (\[)** and **Right Bracket (\])**  keys on your PC keyboard.
 
 To adjust the hardness, press the **"Shift+ Left Bracket"** or **"Shift+Right Bracket"** keys. We recommend that you set it to **100%** when erasing the pixels from your image.
 
@@ -178,11 +178,9 @@ If your Photoshop Eraser Tool is not accessible, make sure you have no active se
 
 You can find the Background Eraser Tool in the **Toolbar** on the left-hand side of the screen. Right-click the **"Eraser"** tool and select **"Background Eraser"** from the menu.
 
-## A Bonus Video Tutorial: Background Change Tutorial with Wondershare [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+## A Bonus Video Tutorial: Background Change Tutorial with Wondershare Filmora
 
-Hopefully, you find this article informative and can now easily use the Background Eraser tool in Adobe Photoshop. Additionally, as artists or creators' world consists of various types of expression, images and videos are among them. Apart from the tutorial of removing images' backgrounds in Photoshop, we also provided you with a video tutorial to remove the video's background. If you have any interests, you can watch it and have fun!
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+Hopefully, you find this article informative and can now easily use the Background Eraser tool in Adobe Photoshop. Additionally, as artists or creators' world consists of various types of expression, images and videos are among them. Apart from the tutorial of removing images' backgrounds in Photoshop, we also provided you with a video tutorial to remove the video's background. If you have any interests, you can watch it and have fun ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
@@ -227,3 +225,26 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/sculpt-your-memories-with-iphone-burst-shots/"><u>Sculpt Your Memories with iPhone Burst Shots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-complete-guide-to-sharing-subtitle-files-socially/"><u>[Updated] In 2024, The Complete Guide to Sharing Subtitle Files Socially</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-fuse-rhythms-into-powerpoint-layouts-for-2024/"><u>[New] Fuse Rhythms Into PowerPoint Layouts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-frontier-of-gesture-based-technology-advancements-for-2024/"><u>[New] The Frontier of Gesture-Based Technology Advancements for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-zoom-edge-advantage-essential-insights-for-format-alteration/"><u>[New] Zoom Edge Advantage  Essential Insights for Format Alteration</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ultimate-selection-of-android-and-ios-wedding-timer-apps-reviewed-for-2024/"><u>[Updated] Ultimate Selection of Android and iOS Wedding Timer Apps Reviewed for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-master-the-art-of-technological-advancement-with-this-guide/"><u>[Updated] In 2024, Master the Art of Technological Advancement with This Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-breaking-boundaries-top-6-artists-leading-nft-frontier/"><u>2024 Approved  Breaking Boundaries  Top 6 Artists Leading NFT Frontier</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-tier-cinematic-peeks-album/"><u>[New] Top-Tier Cinematic Peeks Album</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-fixing-failed-video-uploads-on-facebook-live-features/"><u>[New] Fixing Failed Video Uploads on Facebook Live Features</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-iphone-burst-mode-shooting/"><u>[New] The Ultimate Guide to iPhone Burst Mode Shooting</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-oppo-a1-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-apple-iphone-15-with-or-without-password-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on Apple iPhone 15 With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-no-rush-realms-top-12-serene-titles/"><u>[New] In 2024, No-Rush Realms  Top 12 Serene Titles</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-igtv-switch-off-a-comprehensible-guide/"><u>[New] 2024 Approved  IGTV Switch-Off  A Comprehensible Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-shorts-mastery-quick-thumbnail-updates-made-simple/"><u>[Updated] YouTube Shorts Mastery  Quick Thumbnail Updates Made Simple</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/unleash-your-creativity-top-10-free-open-source-video-editors/"><u>Unleash Your Creativity Top 10 Free Open-Source Video Editors</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-techniques-for-efficient-zoom-meeting-recordings/"><u>[New] 2024 Approved  Techniques for Efficient Zoom Meeting Recordings</u></a></li>
+</ul></div>

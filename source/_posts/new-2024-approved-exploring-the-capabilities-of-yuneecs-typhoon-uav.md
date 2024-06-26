@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Exploring the Capabilities of Yuneec’s Typhoon UAV\""
-date: 2024-06-20 19:16:57
-updated: 2024-06-23 12:17:31
+date: 2024-06-25T15:57:52.257Z
+updated: 2024-06-26T15:57:52.257Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 
 ## Exploring the Capabilities of Yuneec’s Typhoon UAV
 
-# Yuneec Typhoon H Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Yuneec Typhoon H Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -81,15 +79,11 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 
  Typhoon H is equipped with a built in type obstacle avoidance sensor that can find all distractions easily around and keeps your drone safe from crashes. It works with sonar technology that means your device can easily detect all the undesired objects on the way even in low light conditions or in darkness. Note that this sensor is attached at front portion of your drone so it can serve with the detection ability to front facing objects only, if anything comes from sides then your drone will not be able to stay safe. But still, at least you have a new feature and it works amazingly.
 
-#### 6\.  Controller
-
-![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
+#### 6\.  Controller ![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
 
  The controller part is really interesting with few additional features as compared to its predecessors. You will be able to access button and knobs but one new addition to controller is in form of its built in type 7 inch touchscreen that can display the telemetry data on continuous basis. Here is good news for professionals; it is possible to connect this drone to more than one controller at a time so that few highly customized shoots can be gathered. Filmmakers love to access these advanced features.
 
-#### 7\.  Camera
-
-![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
+#### 7\.  Camera ![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
 
  The drone camera can provide 4K recording facility whereas users can also switch between 2.5K and 1080p level as per need. The FPS ratings can be shifted for better results. Results can be enhanced with its ½.3” CMOS sensor and the developers also claim to serve with video transmission range of about 400 meters. The 360 degree gimbal is also available with this drone and its results are professional looking with advantage of sonar sensor.
 
@@ -121,3 +115,24 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-visionary-tools-free-environmental-props-for-2024/"><u>[Updated] Visionary Tools  Free Environmental Props for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/m1-explored-apples-leap-in-computational-innovation-for-2024/"><u>M1 Explored  Apple's Leap in Computational Innovation for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ringtone-vox-transcription-device-iphone/"><u>[Updated] 2024 Approved  Ringtone VOX Transcription Device (iPhone)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/head-to-head-evaluating-google-cardboard-and-samsungs-vr-world-for-2024/"><u>Head-to-Head  Evaluating Google Cardboard and Samsung’s VR World for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-enhancing-engagement-how-to-use-background-footage/"><u>[Updated] In 2024, Enhancing Engagement  How to Use Background Footage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-hassle-free-photo-and-video-upload-ios-device/"><u>2024 Approved  Hassle-Free Photo & Video Upload  IOS Device</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-avoiding-fuzzy-edges-in-picart-picture-processing/"><u>2024 Approved  Avoiding Fuzzy Edges in PicArt Picture Processing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-grab-your-guiltless-film-endings-with-our-template-service-for-2024/"><u>[New] Grab Your Guiltless Film Endings with Our Template Service for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-virtual-vistas-of-calm-top-ten-online-journeys-for-mental-clarity-and-stress-relief-this-year/"><u>Updated In 2024, Virtual Vistas of Calm Top Ten Online Journeys for Mental Clarity and Stress Relief This Year</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-obtain-pristine-photo-sets-for-free-use/"><u>[New] Obtain Pristine Photo Sets for Free Use</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-these-titles-encapsulate-the-concept-of-bird-sound-collections-or-archives-that-are-available-as-mp3-files-highlighting-both-their-musical-and-natur/"><u>Updated These Titles Encapsulate the Concept of Bird Sound Collections or Archives that Are Available as MP3 Files, Highlighting Both Their Musical and Natural Elements</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-compre-points-with-perfect-pictures-snap-techniques-for-teams/"><u>[New] 2024 Approved  Compre Points with Perfect Pictures  Snap Techniques for Teams</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-straightforwardsnapper-w10s-easy-tool-for-2024/"><u>[Updated] StraightforwardSnapper  W10's Easy Tool for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-m4r-conversion-basics-dont-miss-these-crucial-steps-for-2024/"><u>Updated M4R Conversion Basics Dont Miss These Crucial Steps for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-best-gif-to-video-converters/"><u>New Best GIF to Video Converters</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-9-live-stream-enhancers-ultimate-filter-guide/"><u>[New] Top 9 Live-Stream Enhancers  Ultimate Filter Guide</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 360-Degree Panoramic Stands\""
-date: 2024-06-21 17:13:37
-updated: 2024-06-24 11:16:11
+date: 2024-06-25T15:40:49.211Z
+updated: 2024-06-26T15:40:49.211Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/8607afd112c21db80344a74ef1409282fa825e22b
 
 ## 360-Degree Panoramic Stands
 
-# 360 Camera Rigs/Mounts for VR Video production
-
-![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+# 360 Camera Rigs/Mounts for VR Video production ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 
@@ -38,7 +36,7 @@ The years of work on the creation of a beautiful world with the Virtual Reality 
 
 When we talk about capturing 360-degree videos then GoPro camera is one of the best choices for VR setup. Following 360 rigs use to work perfectly with GoPro:
 
-#### [Freedom 360 Mount:](http://freedom360.us/)
+#### Freedom 360 Mount:
 
 ![360 camera rigs - Freedom360](https://images.wondershare.com/filmora/article-images/360-camera-rigs-freedom-360.jpg)
 
@@ -48,7 +46,7 @@ The freedom 360-degree mount allows users to join almost 6 Hero cameras that all
 
 **Cons:** Little costlier rig.
 
-#### [360RIZE (formerly 360Heros):](https://www.360rize.com/)
+#### 360RIZE (formerly 360Heros):
 
 ![360 camera rigs - 360Hero](https://images.wondershare.com/filmora/article-images/360-camera-rigs-360-hero.jpg)
 
@@ -58,7 +56,7 @@ The workflow of 360RIZE is same as that of all other video creation processes an
 
 **Cons:** The stitching process here required both video stitching and photo stitching software.
 
-#### [iZugar:](http://www.izugar.com/)
+#### iZugar:
 
 ![360 camera rigs - iZugar](https://images.wondershare.com/filmora/article-images/360-camera-rigs-izugar.jpg)
 
@@ -68,7 +66,7 @@ Everything is possible with latest iZugar rig as it comes with wider lens arrang
 
 **Cons:** Additional assembly is needed to have better focus.
 
-#### [Entaniya Fisheye lens:](http://www.entapano.com/en/l/)
+#### Entaniya Fisheye lens:
 
 ![360 camera rigs - Entaniya](https://images.wondershare.com/filmora/article-images/360-camera-rigs-entaniya-fisheye-lenses.png)
 
@@ -80,7 +78,7 @@ Entaniya is believed to work on simplification of process to create 360 videos w
 
 ### 2\. Rigs for other Cameras
 
-#### [360 Designs: Mini EYE:](http://360designs.io/product/mini-eye/)
+#### 360 Designs: Mini EYE:
 
 ![360 camera rigs - Mini EYE](https://images.wondershare.com/filmora/article-images/360-camera-rigs-mini-eye.jpg)
 
@@ -90,7 +88,7 @@ Here is a latest rig design for VR content that can serve with 3 to 10 cameras c
 
 **Cons:** Cost is the big trouble.
 
-#### [Kodak PIXPRO SP360 4k – Dual Pro Pack:](https://www.bhphotovideo.com/c/product/1235855-REG/kodak%5Fsp360%5F4k%5Fbk5%5Fpixpro%5Fsp360%5F4k%5Faction.html)
+#### Kodak PIXPRO SP360 4k – Dual Pro Pack:
 
 ![360 camera rigs - Kodak Dual Pro Pack](https://images.wondershare.com/filmora/article-images/360-camera-rigs-kodak-action.jpeg)
 
@@ -100,7 +98,7 @@ This Pack is simply a wonderful advancement over original 360 video quality as i
 
 **Cons:** Price is very high, and it suits to professionals only.
 
-#### [Elmo: QBiC Panorama:](https://www.elmousa.com/product/qbic-panorama-x/)
+#### Elmo: QBiC Panorama:
 
 ![360 camera rigs - Elmo QBiC Panorama](https://images.wondershare.com/filmora/article-images/360-camera-rigs-qbic-panorama.jpg)
 
@@ -110,7 +108,7 @@ Here is a low cost solution for your 360-degree video recording needs and the be
 
 **Cons:** The cost involved is more.
 
-#### [Freedom360: ELMO360:](http://freedom360.us/tutorials/elmo360/)
+#### Freedom360: ELMO360:
 
 ![360 camera rigs - Elmo360](https://images.wondershare.com/filmora/article-images/360-camera-rigs-elmo36o.jpg)
 
@@ -120,9 +118,7 @@ This rig is designed with highly customized features and its four cameras use to
 
 **Cons:** Needs 4 different MicroSD Cards for storage and you have to make efforts for stitching too.
 
-### 3\. 3D Print Your Own Rig
-
-![360 camera rigs - 3D Print](https://images.wondershare.com/filmora/article-images/360-camera-rigs-3d-print.png)
+### 3\. 3D Print Your Own Rig ![360 camera rigs - 3D Print](https://images.wondershare.com/filmora/article-images/360-camera-rigs-3d-print.png)
 
 The latest 3D printer technology has revolutionized world with amazing results. If you are not ready to spend huge money on available gears then it is also possible to create your own customized rig using 3D printer. So many designs are possible with 3D printing technology and they are suitable for professionals as well as beginners; also it is an affordable solution as compared to already designed costly products. It takes very less time to design a VR content supporting rig and you can create it with wider angle abilities so that fewer cameras are needed during recording and stitching task becomes easier.
 
@@ -150,3 +146,24 @@ Follow @Benjamin Arango
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/2024-approved-digital-self-expression-the-guide-to-metaverse-avatars/"><u>2024 Approved  Digital Self-Expression  The Guide to Metaverse Avatars</u></a></li>
+<li><a href="https://fox-links.techidaily.com/strategic-utilization-of-azure-voice-to-text-capabilities/"><u>Strategic Utilization of Azure Voice-to-Text Capabilities</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-transform-your-copy-with-strategic-slug-line-usage/"><u>[Updated] Transform Your Copy with Strategic Slug Line Usage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-picscanners-face-blurring-made-easy-for-everyone/"><u>[New] PicScanner's Face-Blurring Made Easy for Everyone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/pixelperfect-video-creator-for-2024/"><u>PixelPerfect Video Creator for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-essential-watchlist-15-must-see-stop-motion-classics/"><u>[Updated] In 2024, Essential Watchlist  15 Must-See Stop-Motion Classics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-key-principles-of-metaverse-commercial-strategy/"><u>[New] In 2024, Key Principles of Metaverse Commercial Strategy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-tech-hack-for-free-swiftly-remove-red-eyes-from-iphone-photos/"><u>[New] Tech Hack for Free  Swiftly Remove Red Eyes From iPhone Photos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleash-power-in-valorant-the-best-voice-modifier-without-payment/"><u>In 2024, Unleash Power in Valorant  The Best Voice Modifier Without Payment</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-snappy-success-techniques-for-making-memorable-marketing-images/"><u>In 2024, Snappy Success  Techniques for Making Memorable Marketing Images</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-the-top-methods-for-remotely-podcasting-success/"><u>[New] In 2024, The Top Methods for Remotely Podcasting Success</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-the-world-of-vocal-manipulators-an-overview-testimonials-and-substitutes/"><u>New The World of Vocal Manipulators An Overview, Testimonials, and Substitutes</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-boost-your-video-subtitle-skills-using-these-top-online-aids/"><u>[Updated] Boost Your Video Subtitle Skills Using These Top Online Aids</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/investigating-screenshots-best-tools-fraps-vs-obs-studio/"><u>Investigating Screenshots’ Best Tools  Fraps Vs OBS Studio</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-top-rated-windows-movie-maker-replacements-for-mac-users/"><u>In 2024, Top-Rated Windows Movie Maker Replacements for Mac Users</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-from-script-to-screen-a-production-perspective-on-voice-over-artistry/"><u>[Updated] From Script to Screen  A Production Perspective on Voice Over Artistry</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-the-best-free-mpeg-video-splitters-for-windows-mac-and-linux/"><u>New 2024 Approved The Best Free MPEG Video Splitters for Windows, Mac, and Linux</u></a></li>
+</ul></div>

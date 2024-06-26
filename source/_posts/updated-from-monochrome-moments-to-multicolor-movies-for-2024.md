@@ -1,7 +1,7 @@
 ---
 title: "[Updated] From Monochrome Moments to Multicolor Movies for 2024"
-date: 2024-06-23 12:19:42
-updated: 2024-06-26 11:54:58
+date: 2024-06-25T15:54:15.186Z
+updated: 2024-06-26T15:54:15.186Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
 ## From Monochrome Moments to Multicolor Movies
 
-# How to Digitize Your Old Photos and Turn Them into Impressive Videos
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Digitize Your Old Photos and Turn Them into Impressive Videos ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -90,13 +88,13 @@ To start with, you can just launch Filmora on your system and import your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
-![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
+![create timeline for photos](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
-![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+![Edit Digitized Photos](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -104,15 +102,15 @@ The edit option will present tons of additional features that you can implement 
 
 As stated above, you can find a wide range of video editing options to explore in Fimora. On top of the interface, you can switch between audio, transition, effects, titles, and other options. You can just go to any feature here (like effects) to apply it to the video.
 
-![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
+![Add Effects to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
-![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
+![Add Title to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
-![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
+![Add Audio to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
 #### 5\. Export your video
 
@@ -176,3 +174,23 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-capture-like-a-pro-gopro-model-comparison-guide-for-2024/"><u>[New] Capture Like a Pro  Gopro Model Comparison Guide for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-9-innovative-websites-offering-unique-3d-graffiti-typefaces-for-2024/"><u>[New] Top 9 Innovative Websites Offering Unique 3D Graffiti Typefaces for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/how-to-create-an-affordable-customizable-virtual-reality-gear-for-2024/"><u>How to Create an Affordable, Customizable Virtual Reality Gear for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/explore-15-essential-skills-for-recording-digital-music-for-2024/"><u>Explore 15 Essential Skills for Recording Digital Music for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-step-by-step-guide-on-stopping-youtubes-automatic-previews/"><u>[Updated] 2024 Approved  Step-By-Step Guide on Stopping YouTube's Automatic Previews</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-decoding-luts-the-secret-behind-enhanced-photography/"><u>[Updated] In 2024, Decoding LUTs  The Secret Behind Enhanced Photography</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-comprehensive-12-video-live-viewing-platform/"><u>[New] Comprehensive 12-Video Live Viewing Platform</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/techniques-that-elevate-your-ppt-recording-experience-for-2024/"><u>Techniques that Elevate Your PPT Recording Experience for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-oppo-a2-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Oppo A2 Phone that is Locked?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-ethical-approaches-to-extract-mp4-from-youtube/"><u>[Updated] 2024 Approved  Ethical Approaches to Extract MP4 From YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-honor-play-40c-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Honor Play 40C by Name | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-2024-approved-creating-a-diminuendo-effect-in-imovie-audio-tracks/"><u>Updated 2024 Approved Creating a Diminuendo Effect in iMovie Audio Tracks</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-ffxp-an-in-depth-guide/"><u>[New] Unveiling FFXP  An In-Depth Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-infinix-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Infinix Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-nokia-c32-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Nokia C32 Without PUK Codes</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Preserving the Past in Motion  Photo to Video Transition\""
-date: 2024-06-24 11:37:10
-updated: 2024-06-26 12:10:58
+date: 2024-06-25T15:13:17.813Z
+updated: 2024-06-26T15:13:17.813Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
 ## Preserving the Past in Motion: Photo to Video Transition
 
-# How to Digitize Your Old Photos and Turn Them into Impressive Videos
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Digitize Your Old Photos and Turn Them into Impressive Videos ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -90,13 +88,13 @@ To start with, you can just launch Filmora on your system and import your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
-![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
+![create timeline for photos](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
-![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+![Edit Digitized Photos](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -104,15 +102,15 @@ The edit option will present tons of additional features that you can implement 
 
 As stated above, you can find a wide range of video editing options to explore in Fimora. On top of the interface, you can switch between audio, transition, effects, titles, and other options. You can just go to any feature here (like effects) to apply it to the video.
 
-![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
+![Add Effects to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
-![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
+![Add Title to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
-![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
+![Add Audio to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
 #### 5\. Export your video
 
@@ -176,3 +174,26 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-inside-the-headset-the-mechanics-of-virtual-reality/"><u>[New] In 2024, Inside the Headset  The Mechanics of Virtual Reality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-complete-kinetics-exploration/"><u>[Updated] 2024 Approved  Complete Kinetics Exploration</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-artistic-arenas-of-2022s-olympians/"><u>[Updated] 2024 Approved  Artistic Arenas of 2022'S Olympians</u></a></li>
+<li><a href="https://fox-links.techidaily.com/future-filmmaking-favorites-2024s-best-cameras/"><u>Future Filmmaking Favorites  2024'S Best Cameras</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-lg-unveils-new-dimensions-with-its-360-degree-vr-headgear-for-2024/"><u>[New] LG Unveils New Dimensions with Its 360-Degree VR Headgear for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-prime-flight-tech-ready-to-buy/"><u>[New] Prime Flight Tech Ready to Buy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/androids-secret-weapon-for-stunning-time-lagged-footage-for-2024/"><u>Android's Secret Weapon for Stunning Time-Lagged Footage for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-dissecting-the-user-experience-in-vivavideo-for-2024/"><u>[Updated] Dissecting the User Experience in VivaVideo for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlocking-secrets-to-selecting-prime-videographers-for-2024/"><u>Unlocking Secrets to Selecting Prime Videographers for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pinnacle-apps-androids-ultimate-cloud-keepsakes/"><u>In 2024, Pinnacle Apps  Android's Ultimate Cloud Keepsakes</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-vivo-t2-pro-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Vivo T2 Pro 5G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-maximizing-viewership-live-stream-optimization-techniques/"><u>[Updated] Maximizing Viewership  Live Stream Optimization Techniques</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-top-lyric-video-creation-tools-free-and-paid-options-compared-for-2024/"><u>New Top Lyric Video Creation Tools Free and Paid Options Compared for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-motorola-razr-40-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Motorola Razr 40 for Streaming | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-prime-picks-7-superior-apple-video-viewers/"><u>[New] Prime Picks  7 Superior Apple Video Viewers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-samsung-galaxy-s8-4k-smartphone-review/"><u>[Updated] Samsung Galaxy S8 4K Smartphone Review</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-infinix-zero-5g-2023-turbo-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Infinix Zero 5G 2023 Turbo Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-7-video-recording-devices-for-professional-streaming-artists-for-2024/"><u>Top 7 Video Recording Devices for Professional Streaming Artists for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/master-the-skill-of-learning-behind-screen-scenes/"><u>Master the Skill of Learning Behind Screen Scenes</u></a></li>
+</ul></div>

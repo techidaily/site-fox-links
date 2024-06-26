@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Trends in Remote Control Drones  Syma X8C\""
-date: 2024-06-23 21:16:12
-updated: 2024-06-25 12:45:49
+date: 2024-06-25T15:10:58.673Z
+updated: 2024-06-26T15:10:58.673Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/517296fb76b2495d3ca7ac9af3e02d36cfd22dc3a
 
 ## Trends in Remote Control Drones: Syma X8C
 
-# Syma X8C Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Syma X8C Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -69,9 +67,7 @@ thumbnail: https://thmb.techidaily.com/517296fb76b2495d3ca7ac9af3e02d36cfd22dc3a
 | Charging Time        | 200 Minutes            | Control Distance        | 100 meter approx.                                     |
 | Transmitter Power    | 4 x 1.5 V AA Batteries | Camera                  | 2 MP                                                  |
 
-#### 2\.  Design
-
-![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
+#### 2\.  Design ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
@@ -85,15 +81,11 @@ thumbnail: https://thmb.techidaily.com/517296fb76b2495d3ca7ac9af3e02d36cfd22dc3a
 
  With the headless mode, Syma X8C appears similar to X5C design with little bigger structure. This drone unit is extremely stable with easy to fly options that appear much easier to beginners too. The best part is that this drone responds perfectly to transmitter with very small delay. The performance is much better as compared to many models of this price range. If we talk about the wind stability then larger size and heavier design make this drone much stable. It will rarely face an undesired flip due to unfavourable weather conditions so you need not to struggle more to keep it tuned to its normal position. Those who want a drone for aerial photography will also e able to take advantage from Syma X8C design.
 
-#### 5\.  Controller/Transmitter
-
-![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
+#### 5\.  Controller/Transmitter ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
-#### 6\.  Camera
-
-![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
+#### 6\.  Camera ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
@@ -125,3 +117,26 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-tomtom-bandits-new-era-in-action-capture/"><u>[Updated] 2024 Approved  TomTom Bandit's New Era in Action Capture</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-perfect-your-iphone-photography-top-tier-filming-aids/"><u>2024 Approved  Perfect Your iPhone Photography  Top-Tier Filming Aids</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-deconstructing-wirecast-alternatives-uncovered/"><u>In 2024, Deconstructing WireCast  Alternatives Uncovered</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-film-talents-unleashed-downloadable-content-pass/"><u>[New] In 2024, Film Talents Unleashed  Downloadable Content Pass</u></a></li>
+<li><a href="https://fox-links.techidaily.com/immortalizing-moments-live-photo-to-dynamic-video-for-2024/"><u>Immortalizing Moments  Live Photo to Dynamic Video for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-therapeutic-effects-of-asmr-for-everyone/"><u>[Updated] 2024 Approved  The Therapeutic Effects of ASMR for Everyone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unleashing-creativity-gif-formats-decoded-for-2024/"><u>[New] Unleashing Creativity  GIF Formats Decoded for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/deconstructing-magix-photo-and-video-tools-for-2024/"><u>Deconstructing MAGIX Photo & Video Tools for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-exclusive-charger-kits-for-gopro-hero5-official-and-alternative-models/"><u>[Updated] In 2024, Exclusive Charger Kits for GoPro Hero5 – Official & Alternative Models</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-the-secret-weapon-of-gamers-vocal-charisma-mastering-morphvox-techniques-for-in-game-broadcasts-for-2024/"><u>Updated The Secret Weapon of Gamers Vocal Charisma Mastering Morphvox Techniques for In-Game Broadcasts for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-apple-ecosystem-video-editing-the-best-options-explained-for-2024/"><u>Updated Apple Ecosystem Video Editing The Best Options Explained for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-innovative-ways-to-document-your-digital-collaboration-sessions/"><u>[Updated] 2024 Approved  Innovative Ways to Document Your Digital Collaboration Sessions</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-glimpses-identifying-who-sees-your-pics/"><u>[Updated] Instagram Glimpses  Identifying Who Sees Your Pics</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-unlocking-steer-clear-from-facebook-ban-blacklist/"><u>In 2024, Unlocking  Steer Clear From Facebook Ban Blacklist</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-simple-guide-to-free-video-embedding-in-articles/"><u>In 2024, The Simple Guide to Free Video Embedding in Articles</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-word-2016-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How do i sign a Word 2016 electronically</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-software-for-game-recordings/"><u>Top Software for Game Recordings</u></a></li>
+</ul></div>

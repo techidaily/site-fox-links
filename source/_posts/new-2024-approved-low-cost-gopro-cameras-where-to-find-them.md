@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Low-Cost GoPro Cameras  Where to Find Them\""
-date: 2024-06-23 16:53:51
-updated: 2024-06-24 12:14:44
+date: 2024-06-25T15:37:34.266Z
+updated: 2024-06-26T15:37:34.266Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7
 
 ## Low-Cost GoPro Cameras: Where to Find Them
 
-# Where to Buy GoPro Cameras: Best Cheap GoPro Deals
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Where to Buy GoPro Cameras: Best Cheap GoPro Deals ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -50,7 +48,7 @@ thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7
 
 ## Best Cheap GoPro Deals
 
-#### 1. [GoPro Hero5 Black:](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 1. GoPro Hero5 Black:
 
  Auto low light: Yes| Wireless: Wi-Fi, Bluetooth| Burst: up to 30fps | Stills: 12MP | WVGA video: up to 240fps |1080p video: up to 120fps |4K video: up to 30fps | FOV: Narrow, Medium, Super view, Wide |
 
@@ -66,7 +64,7 @@ thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5f43d0eaf883c019c428a38d8da2f3f9)
 
-#### 2\. [GoPro Hero5 Session:](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 2\. GoPro Hero5 Session:
 
  Auto low light: Yes| Wireless: Wi-Fi| Burst: up to 10fps | Stills: 8MP | WVGA video: up to 120fps |1080p video: up to 60fps |1440p video: up to 30fps | FOV: Medium, Ultra Wide |
 
@@ -98,7 +96,7 @@ thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B01C80O0ZU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C80O0ZU&linkId=ec1526e83e4df54a4549147cb962f687)
 
-#### 4. [GoPro Hero4 Black:](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 4. GoPro Hero4 Black:
 
  Auto low light: Yes| Wireless: Wi-Fi, Bluetooth| Burst: up to 30fps | Stills: 12MP | WVGA video: up to 240fps |1080p video: up to 120fps |4K video: up to 30fps | FOV: Narrow, Medium, Ultra Wide |
 
@@ -110,9 +108,9 @@ thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7
 
  \+ It is one of the most widely sold camera and expensive too due to all amazing features.
 
-[Check price at Amazon](https://www.amazon.com/gp/product/B00NIYNUF2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00NIYNUF2&linkId=0b3a5114922fbaa3a625417eaf19433b　)
+[Check price at Amazon](https://www.amazon.com/gp/product/B00NIYNUF2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00NIYNUF2&linkId=0b3a5114922fbaa3a625417eaf19433b)
 
-#### 5\. [GoPro Hero4 Silver:](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 5\. GoPro Hero4 Silver:
 
  Auto low light: Yes| Wireless: Wi-Fi and Bluetooth| Burst: up to 30fps | Stills: 12MP | WVGA video: up to 240fps |1080p video: up to 60fps |4K video: up to 15fps | FOV: Narrow, Medium and Ultra Wide |
 
@@ -140,7 +138,7 @@ thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7
 
  \+ It is compatible with all GoPro accessories and mounts.
 
-[Check price at Amazon](https://www.amazon.com/gp/product/B009TCD8V8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B009TCD8V8&linkId=2db7893a8fcf46679da72cd020567a44　)
+[Check price at Amazon](https://www.amazon.com/gp/product/B009TCD8V8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B009TCD8V8&linkId=2db7893a8fcf46679da72cd020567a44)
 
 #### 7.GoPro Hero3+ Silver
 
@@ -158,9 +156,7 @@ thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B00F3F0EIU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F3F0EIU&linkId=224d19a85f965b77c2facdcd119a525c)
 
-#### 8.GoPro Hero3 White
-
-![hero3 plus white deals](https://images.wondershare.com/filmora/article-images/hero3-plus-white.jpg)
+#### 8.GoPro Hero3 White ![hero3 plus white deals](https://images.wondershare.com/filmora/article-images/hero3-plus-white.jpg)
 
  Auto low light: Not Supported| Wireless: Wi-Fi only| Burst: up to 3fps | Stills: 5MP | WVGA video: up to 60fps |1080p video: up to 30fps |4K video: Not Supported | FOV: Ultra Wide |
 
@@ -170,7 +166,7 @@ thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7
 
  \+ Price range is comparatively low.
 
-[Check price at Amazon](https://www.amazon.com/gp/product/B00GXKTEUI/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00GXKTEUI&linkId=0488adfc68f60494a10a44879e4f51ef　)
+[Check price at Amazon](https://www.amazon.com/gp/product/B00GXKTEUI/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00GXKTEUI&linkId=0488adfc68f60494a10a44879e4f51ef)
 
 #### 9.GoPro Hero + LCD
 
@@ -210,3 +206,23 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-reimagine-video-narratives-with-windows-10s-story-remix-tool/"><u>[New] Reimagine Video Narratives with Windows 10'S Story Remix Tool</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-ultimate-list-of-outstanding-storytelling-youtubers-this-year/"><u>[New] The Ultimate List of Outstanding Storytelling YouTubers This Year</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-bridging-music-sections-advanced-audacity-techniques/"><u>[Updated] In 2024, Bridging Music Sections  Advanced Audacity Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/cutting-edge-8-cameras-for-professional-broadcasts-for-2024/"><u>Cutting-Edge 8 Cameras for Professional Broadcasts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/illuminating-insights-for-iphone-night-photos/"><u>Illuminating Insights for iPhone Night Photos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-from-real-time-to-leisurely-iphone-methods-for-slow-motion-video/"><u>[New] In 2024, From Real Time to Leisurely  IPhone Methods for Slow Motion Video</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ultrawide-vs-uhd-4k-monitors-which-to-choose/"><u>[Updated] 2024 Approved  UltraWide VS UHD 4K Monitors  Which to Choose</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/key-vr-film-experiences-to-witness/"><u>Key VR Film Experiences to Witness</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-oneplus-11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-deciphering-the-covert-codes-of-snapchats-emojis/"><u>[New] Deciphering the Covert Codes of Snapchat's Emojis</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-8-best-selfie-sticks-for-iphone-2024-review/"><u>Top 8 Best Selfie Sticks for iPhone 2024 Review</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-elevate-your-earnings-on-social-media-youtube-mastery-on-the-networking-powerhouse/"><u>[Updated] Elevate Your Earnings on Social Media  YouTube Mastery on the Networking Powerhouse</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-rapid-rise-on-insta-like-mastery-plus-video-impact/"><u>[New] In 2024, Rapid Rise on Insta - Like Mastery + Video Impact</u></a></li>
+<li><a href="https://extra-information.techidaily.com/proven-tactics-for-engaging-viewers-with-success-narratives-on-screen/"><u>Proven Tactics for Engaging Viewers with Success Narratives on Screen</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-guide-to-instantly-diminish-audio-volume-gently-for-2024/"><u>Updated Guide to Instantly Diminish Audio Volume Gently for 2024</u></a></li>
+</ul></div>

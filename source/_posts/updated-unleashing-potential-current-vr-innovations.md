@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unleashing Potential  Current VR Innovations\""
-date: 2024-06-23 11:35:53
-updated: 2024-06-26 12:42:35
+date: 2024-06-25T15:34:04.731Z
+updated: 2024-06-26T15:34:04.731Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd
 
 ## Unleashing Potential: Current VR Innovations
 
-# State of the VR Industry
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# State of the VR Industry ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
@@ -32,14 +30,13 @@ thumbnail: https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd
 
  It is quite clear from the discussion that the game developers prefer PC/Laptops/Mac over any other devices to release their games. But, this year’s survey came up with a different result where 59.7 percent developers preferably chose PC/Mac followed by 48.3 percent developers who chose virtual reality headsets for their upcoming games. So, we can say that despite the indomitable popularity of the PC and Mac, virtual reality is also gaining a strong ground.
 
-![google-cardbaorad-1]( https://images.wondershare.com/filmora/resource/google-cardbaorad-1.jpg
- )
+![google-cardbaorad-1](https://images.wondershare.com/filmora/resource/google-cardbaorad-1.jpg)
 
 ## The VR gaming development is truly rising then
 
  Is it really the right time to make comment like virtual reality is really uprising as a gaming platform? If you take the year of year survey report, yes the result shows a significant uptick for the interest of this platform. If we look back at the last year’s survey, it revealed that only 33.4 percent of the developers were interested to develop games for VR platforms. If you consider in terms of interest, VR was placed behind the PC/Mac, PlayStation 4, smartphones or tablets. But, considering this year’s data, we can see more advancement in the interest for the VR platform! More and more European developers are now getting interested to develop games for VR platforms that the smartphones or tablets.
 
-![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
+![vr-gaming](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg)
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
@@ -49,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd
 
  Funding for the games has always remained one of the prime concerns for the game developers and publishers. You know that it takes large amounts to be invested for the games. When it comes to the funding policies for the European game developers, most of them are covering the entire expenses using their own funds. Take a look at what the survey report has to say about that. Asking about the sources of the fund for the games 57.8 percent said that their funds come from the company’s existing fund while contrary to this, 32.9 percent game developers said that they manage their own fund from their personal accounts.
 
-![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
+![vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg)
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
 
@@ -79,3 +76,23 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-how-to-quickly-stream-spotify-audio-with-integrity/"><u>[Updated] How to Quickly Stream Spotify Audio with Integrity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-laugh-ledger-premium-free-meme-collections/"><u>[Updated] Laugh Ledger  Premium, FREE Meme Collections</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-dynamic-enhancements-for-your-tiktok-projects/"><u>[Updated] Dynamic Enhancements for Your TikTok Projects</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-how-to-create-an-affordable-customizable-virtual-reality-gear/"><u>[New] How to Create an Affordable, Customizable Virtual Reality Gear</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-stream-switch-and-succeed-the-complete-guide-to-using-float-on-netflix/"><u>[New] Stream, Switch and Succeed  The Complete Guide to Using Float on Netflix</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-leading-edge-servers-for-maximum-efficiency/"><u>[New] 2024 Approved  Leading Edge Servers for Maximum Efficiency</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-superior-live-media-transmission-tools-for-2024/"><u>[New] Superior Live Media Transmission Tools for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-future-proofing-visuals-evaluating-av1s-standpoint-over-vp9-for-2024/"><u>[New] Future-Proofing Visuals  Evaluating AV1's Standpoint over VP9 for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-on-the-move-picture-and-video-tuning-tips/"><u>In 2024, On-The-Move Picture & Video Tuning Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-maximize-space-with-iphone-images-scaling/"><u>2024 Approved  Maximize Space with iPhone Images Scaling</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-pictures-from-oppo-a38-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Oppo A38.</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-rotational-realities-how-to-captivate-with-instagrams-sideways-videos/"><u>[Updated] 2024 Approved  Rotational Realities  How to Captivate with Instagram's Sideways Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-vivo-v29-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-nokia-c300-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-remove-default-podcast-listings-from-spotify-playlists/"><u>2024 Approved  Remove Default Podcast Listings From Spotify Playlists</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-add-music-to-final-cut-pro/"><u>2024 Approved Add Music to Final Cut Pro</u></a></li>
+</ul></div>

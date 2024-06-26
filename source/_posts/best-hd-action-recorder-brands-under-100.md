@@ -1,7 +1,7 @@
 ---
 title: "Best HD Action Recorder Brands Under $100"
-date: 2024-06-25 11:17:26
-updated: 2024-06-26 11:29:32
+date: 2024-06-25T15:27:44.488Z
+updated: 2024-06-26T15:27:44.488Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/669bc1413d235f8908afbf69f357ad5578fda1c30
 
 ## Best HD Action Recorder Brands Under $100
 
-# Top 5 Best Full HD Action Cameras Below $100
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 5 Best Full HD Action Cameras Below $100 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -30,9 +28,7 @@ thumbnail: https://thmb.techidaily.com/669bc1413d235f8908afbf69f357ad5578fda1c30
 
 ## Top 5 Best Full HD Action Cameras Below $100
 
-#### 1. Drift Innovation STEALTH-2
-
-![drift ghost s](//images.wondershare.com/filmora/article-images/drift-innocations-ghost-s-1.jpg)
+#### 1. Drift Innovation STEALTH-2 ![drift ghost s](//images.wondershare.com/filmora/article-images/drift-innocations-ghost-s-1.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00MCWWL0G/ref=as%5Fli%5Fqf%5Fsp%5Fasin%5Fil%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00MCWWL0G&linkId=18467dac61fdbb82717c78990474d825)
 
@@ -45,9 +41,7 @@ thumbnail: https://thmb.techidaily.com/669bc1413d235f8908afbf69f357ad5578fda1c30
 
 This device copies so many features from the all time favorite Ghost-S action camera unit. The easy mounting options, discrete design and automotive control features- all these impressive additions make this action camera best buy product for beginners as well as professionals. As Ghost S users were searching for a feature rich but lightweight and compact action camera unit from long past so this time Drift Innovation STEALTH-2 can serve their all requirements. Some of its incredible features include three hour long battery life, quick orientation adjustments without additional mounts and lens designs are quite impressive. You may find little trouble with brighter shoots but all details are well managed at high contrast levels. This is one of the most popular model in 2017 so far.
 
-#### 2. Polaroid XS100i Wi-Fi Waterproof Action Camera
-
-![polaroid xs 100i](https://images.wondershare.com/filmora/article-images/polaroid-xs-100i-1.jpg)
+#### 2. Polaroid XS100i Wi-Fi Waterproof Action Camera ![polaroid xs 100i](https://images.wondershare.com/filmora/article-images/polaroid-xs-100i-1.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f)
 
@@ -60,9 +54,7 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
  Polaroid S XS100 is designed with lots of advanced features so that users can enjoy fast and detailed movements with each shot. Its 170 degree FOV capability ensures wide focus whereas the battery can serve you for 2 ½ hours when you are recording at 1080p resolution level. You need not to buy any additional protective case for this device as it is waterproof up to 30 feet. The fish eye lenses make it barrel free and its shock resistant design allows users to enjoy immersive recording experience even in tough weather conditions. You will love to explore its easy functionality via smartphone using Wi-Fi connectivity or specially designed application.
 
-#### 3. Polaroid Cube + 1440p Wi-Fi
-
-![polaroid cube plus](https://images.wondershare.com/filmora/article-images/polaroid-cube-plus.jpg)
+#### 3. Polaroid Cube + 1440p Wi-Fi ![polaroid cube plus](https://images.wondershare.com/filmora/article-images/polaroid-cube-plus.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e)
 
@@ -75,9 +67,7 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
  Polaroid Cube Plus is well known for its compact size and light weight construction and the wireless connectivity assists in effective remote controlling. The advanced photo and video recording features offer slow motion, time lapse capture abilities and Full HD recording can go with 60fps frame rate. This product is accompanies by a protective case and microSD card that offers 8GB storage. The Cube+ device offers 124 degree wide angle of view and its weather proof as well as shock proof design make it best choice for little rain or snowy mountain recording needs. Cube+ offers simple operation, impressive design and breathtaking video quality with its reasonable price range. You can easily control it from iOS or android using wireless connectivity feature and device screen can better act as a viewfinder with this device.
 
-#### 4. Xiaomi Yi
-
-![yi action amera](https://images.wondershare.com/filmora/article-images/yi-action-camera.jpg)
+#### 4. Xiaomi Yi ![yi action amera](https://images.wondershare.com/filmora/article-images/yi-action-camera.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01C89GCHU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C89GCHU&linkId=0fa33bbe15256887fcfa7957bd8e3a3a)
 
@@ -90,9 +80,7 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
  Xiaomi Yi is a new action camera unit with wide range of interesting features. It can record Full HD videos seamlessly whereas advanced noise reduction and image stabilization features make footage more interesting. Users can switch between different recording modes depending upon their mood and the advance 16MP image sensor grabs perfect shots even in low light conditions. You will love to explore its wide angle focus during action photography whereas built in Wi-Fi facility make it more suitable for enjoying live preview of recording on phone screen. Four popular shooting modes are burst mode, self timer mode, time lapse mode and single mode.
 
-#### 5. iON Camera Air Pro 2
-
-![ino airpro2](https://images.wondershare.com/filmora/article-images/ino-air-pro-3.jpg)
+#### 5. iON Camera Air Pro 2 ![ino airpro2](https://images.wondershare.com/filmora/article-images/ino-air-pro-3.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00CKPMHSQ/ref=as%5Fli%5Fqf%5Fsp%5Fasin%5Fil%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00CKPMHSQ&linkId=10f82ce1fa07ee60640f908cfbf0d05c)
 
@@ -129,3 +117,22 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-instant-upload-solutions-top-5-free-online-converter-services/"><u>[Updated] In 2024, Instant Upload Solutions  Top 5 Free Online Converter Services</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-choosing-between-projectors-and-tvs-for-superior-4k-viewing-for-2024/"><u>[New] Choosing Between Projectors & TVs for Superior 4K Viewing for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-metaversal-journey-versus-omniverse-quest-for-2024/"><u>[Updated] Metaversal Journey Versus Omniverse Quest for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-spotlight-on-premium-360cameras-for-professionals/"><u>[New] 2024 Approved  Spotlight on Premium 360°Cameras for Professionals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/becoming-a-final-cut-pro-expert-your-quick-reference-for-2024/"><u>Becoming a Final Cut Pro Expert – Your Quick Reference for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-realistic-or-risky-vrs-hidden-dangers-for-2024/"><u>[New] Realistic or Risky? VR's Hidden Dangers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-navigating-the-maze-to-find-your-ideal-4k-screen/"><u>[New] In 2024, Navigating the Maze to Find Your Ideal 4K Screen</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-prodigious-8-cameras-enhancing-video-quality-in-broadcast/"><u>2024 Approved  Prodigious 8 Cameras Enhancing Video Quality in Broadcast</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-how-can-you-import-and-adjust-the-video-clips-on-wondershare-filmora-in-2024/"><u>Updated How Can You Import and Adjust the Video Clips on Wondershare Filmora, In 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-video-mastery-with-these-quick-trimming-tips-for-windows-10/"><u>2024 Approved  Unlock Video Mastery with These Quick Trimming Tips for Windows 10</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-12-mini-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 12 mini</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-highest-quality-livestream-gatherer-for-2024/"><u>[Updated] Highest Quality Livestream Gatherer for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-unveiling-the-sound-of-distress-in-dogs-the-yelps-and-barks/"><u>Updated Unveiling the Sound of Distress in Dogs The Yelps and Barks</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-restoring-functionality-in-obs-capture-device/"><u>[New] 2024 Approved  Restoring Functionality in OBS Capture Device</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/harmonizing-tracks-in-youtube-music-for-2024/"><u>Harmonizing Tracks in YouTube Music for 2024</u></a></li>
+</ul></div>

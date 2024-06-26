@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Mastering Multimedia Slides with Speech Recordings (PowerPoint)"
-date: 2024-06-22 23:17:22
-updated: 2024-06-25 12:14:30
+date: 2024-06-25T15:35:28.104Z
+updated: 2024-06-26T15:35:28.104Z
 tags: 
   - screen-recording
   - ai video
@@ -44,17 +44,13 @@ To your PowerPoint presentation, you can add audio, such as music, narration, or
 
 **Steps to add audio to PowerPoint from PC**
 
-##### Step1 Select Insert > Audio
-
-![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
+##### Step1 Select Insert > Audio ![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
 
 ##### Step2 Select Audio on My PC
 
 ##### Step3 Select the audio file you want to add in the Insert Audio dialogue box
 
-##### Step4 Select Insert
-
-![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
+##### Step4 Select Insert ![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
 
 ## Part 2 Record audio on PowerPoint
 
@@ -108,13 +104,9 @@ Let's suppose we've added long audio to our presentation, and we just only need 
 
 ##### Step1 Click the audio icon you’ve just added to the presentation in previous steps
 
-##### Step2 Click Playback> Trim Audio as shown below
+##### Step2 Click Playback> Trim Audio as shown below ![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
 
-![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
-
-##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio
-
-![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
+##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio ![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
 
 Hit the Play tab to preview the changes done.
 
@@ -132,9 +124,7 @@ If you want to switch to a specific point in the Audio, you can add a bookmark. 
 
 ![click audio timeline ppt](https://images.wondershare.com/filmora/article-images/2022/02/click-audio-timeline-ppt.jpg)
 
-##### Step1 Click Add Bookmark after clicking the place
-
-![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
+##### Step1 Click Add Bookmark after clicking the place ![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
 
 ## Part 4 How to play audio automatically in PowerPoint
 
@@ -158,9 +148,7 @@ Let’s see how we can achieve this!
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
@@ -242,3 +230,27 @@ In this guide, we’ll specifically talk about the feature by which you can reco
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-top-10-ever-approved-reddit-threads-a-historical-list-for-2024/"><u>[Updated] Top 10 Ever-Approved Reddit Threads  A Historical List for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-crafting-captivating-stories-embedding-melodies-into-visual-narratives/"><u>[Updated] In 2024, Crafting Captivating Stories  Embedding Melodies Into Visual Narratives</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-hurry-up-crafting-a-simple-google-photo-mosaic/"><u>[Updated] Hurry Up! Crafting a Simple Google Photo Mosaic</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-elevating-your-video-game-choosing-a-gimbal-for-drones/"><u>In 2024, Elevating Your Video Game  Choosing a Gimbal for Drones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/how-to-personalize-videos-adding-captions-in-the-photos-app-for-2024/"><u>How to Personalize Videos  Adding Captions in the Photos App for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-elevating-your-tiktok-presence-by-merging-bio-and-linktree/"><u>[Updated] In 2024, Elevating Your TikTok Presence by Merging Bio & Linktree</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-bring-your-pics-to-life-with-easy-text-editing-apps/"><u>[Updated] In 2024, Bring Your Pics to Life with Easy Text Editing Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-precision-followers-gps-drones-of-the-year/"><u>In 2024, Precision Followers  GPS Drones of the Year</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-why-you-adore-filmora-the-10-key-edits-that-matter/"><u>[New] 2024 Approved  Why You Adore Filmora  The 10 Key Edits That Matter</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-selective-picks-for-audible-transformation-technologies/"><u>[Updated] 2024 Approved  Selective Picks for Audible Transformation Technologies</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-2024-approved-the-only-guide-youll-ever-need-to-learn-gif-design-that-get-shared-like-crazy/"><u>Updated 2024 Approved The Only Guide Youll Ever Need to Learn GIF Design That Get Shared Like Crazy</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-secret-behind-crafting-mesmerizing-slow-motion-media-for-instagram/"><u>[New] The Secret Behind Crafting Mesmerizing Slow Motion Media for Instagram</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-analyzing-audio-editing-tools-in-magix-producer-suite/"><u>2024 Approved  Analyzing Audio Editing Tools in Magix Producer Suite</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-in-this-article-you-will-learn-about-the-top-5-editors-for-windows-top-5-editors-for-iphoneandroid-and-top-5-editors-for-animated-gif-editing./"><u>2024 Approved In This Article, You Will Learn About the Top 5 Editors for Windows, Top 5 Editors for iPhone/Android, and Top 5 Editors for Animated GIF Editing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-decoding-instagrams-verification-system/"><u>[New] 2024 Approved  Decoding Instagram's Verification System</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On OnePlus 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-nokia-105-classic-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Nokia 105 Classic FRP</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-effortlessly-resize-your-twitter-videos-with-aspect-ratio-guidance/"><u>2024 Approved Effortlessly Resize Your Twitter Videos with Aspect Ratio Guidance</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exclusive-selection-top-gopro-adornments/"><u>[Updated] Exclusive Selection  Top Gopro Adornments</u></a></li>
+</ul></div>

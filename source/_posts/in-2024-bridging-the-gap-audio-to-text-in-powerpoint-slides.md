@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Bridging the Gap  Audio to Text in PowerPoint Slides\""
-date: 2024-06-22 14:41:32
-updated: 2024-06-25 12:43:45
+date: 2024-06-25T15:55:17.437Z
+updated: 2024-06-26T15:55:17.437Z
 tags: 
   - screen-recording
   - ai video
@@ -135,9 +135,7 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ##### Step 2
 
-Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
-
-![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
+Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
 ## FAQs
 
@@ -157,9 +155,9 @@ You can use your device's in-built microphone. However, you may need external ge
 
 Speech-to-text is an additional feature for all users. Typing is, however, the default practice.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -181,3 +179,24 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-8-innovative-tablets-changing-the-face-of-photo-editing-landscape/"><u>[New] 8 Innovative Tablets Changing the Face of Photo Editing Landscape</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-expertise-in-ringtone-refinement-for-the-tech-savvy/"><u>In 2024, Expertise in Ringtone Refinement for the Tech Savvy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-live-image-processing-into-continuous-action-frames/"><u>[New] Live Image Processing Into Continuous Action Frames</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-chromatics-a-practical-approach/"><u>[New] Mastering Chromatics  A Practical Approach</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-quick-recovery-methods-for-erased-reddit-topics-for-2024/"><u>[Updated] Quick Recovery Methods for Erased Reddit Topics for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-eliminate-unwanted-podcast-suggestions-on-spotify-for-2024/"><u>[Updated] Eliminate Unwanted Podcast Suggestions on Spotify for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-elite-groups-revolutionizing-virtual-reality/"><u>[New] In 2024, Elite Groups Revolutionizing Virtual Reality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-paving-the-way-for-profitable-sponsorships-with-online-influencers/"><u>[New] 2024 Approved  Paving the Way for Profitable Sponsorships with Online Influencers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-vivo-t2-pro-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Vivo T2 Pro 5G</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-streamlined-screencasting-with-top-10-apps-reviewed/"><u>[Updated] In 2024, Streamlined Screencasting with Top 10 Apps Reviewed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-sideways-instagram-videos-an-enigma-or-bug/"><u>2024 Approved  Sideways Instagram Videos  An Enigma or Bug?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Nokia C32? | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-social-sharing-simplified-photos-from-your-device-now/"><u>In 2024, Social Sharing Simplified  Photos From Your Device Now</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/proven-pc-strategies-elevating-video-quality-and-engagement-on-youtube-for-2024/"><u>Proven PC Strategies  Elevating Video Quality and Engagement on YouTube for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Oppo Reno 8T? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-realme-12plus-5g-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Realme 12+ 5G for Streaming | Dr.fone</u></a></li>
+</ul></div>

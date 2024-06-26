@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Personalizing Your Windows Photos Experience  Add Filters, Sound\""
-date: 2024-06-23 11:12:48
-updated: 2024-06-25 11:10:26
+date: 2024-06-25T15:27:14.027Z
+updated: 2024-06-26T15:27:14.027Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
 ## Personalizing Your Windows Photos Experience: Add Filters, Sound
 
-# How to Add Filters and Music on Windows 10 Photos App
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Add Filters and Music on Windows 10 Photos App ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -43,13 +41,13 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 **Step 2**: Choose the video you want to add filters. Click **New video** at top > Custom video with music.
 
-![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
+![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
-![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
+![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
@@ -63,7 +61,7 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 **Step 3**: Now, hit the ‘Create’ button from the top-right followed by dragging the video to Photos timeline. Later, hit on ‘Auio’ at top right.
 
-![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
+![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
@@ -99,3 +97,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/2024-approved-innovative-ideas-in-immersive-realms-30plus-quotes-to-motivate-you/"><u>2024 Approved  Innovative Ideas in Immersive Realms  30+ Quotes to Motivate You</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-effortless-hue-adjustments-with-adobes-software/"><u>[New] 2024 Approved  Effortless Hue Adjustments with Adobe's Software</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-professionals-choice-best-top-10-4k-monitors/"><u>[Updated] In 2024, Professional's Choice  Best Top 10 4K Monitors</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-step-by-step-guide-to-installing-streamlabs-in-obs-mac/"><u>[Updated] Step-by-Step Guide to Installing Streamlabs in OBS (Mac)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-excellence-in-video-capture-2024s-top-picks/"><u>[Updated] Excellence in Video Capture  2024'S Top Picks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-transforming-your-shots-with-ease-in-photoshop-for-2024/"><u>[Updated] Transforming Your Shots with Ease in Photoshop for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-rapid-results-elevate-images-on-windows-11/"><u>[Updated] Rapid Results  Elevate Images on Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-harness-power-of-persuasion-with-these-tips-for-reddit/"><u>In 2024, Harness Power of Persuasion with These Tips for Reddit</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-hidden-techniques-for-private-anonymous-instagram-live-participation/"><u>[New] 2024 Approved  The Hidden Techniques for Private, Anonymous Instagram Live Participation</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/mastering-pc-sound-recording-using-audacity-at-no-cost-for-2024/"><u>Mastering PC Sound Recording Using Audacity at No Cost for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-get-snapchat-on-mac-in-2024/"><u>[Updated] How to Get Snapchat on Mac, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-art-of-featured-channels-an-in-depth-exploration-for-maximizing-engagement/"><u>[Updated] The Art of Featured Channels  An In-Depth Exploration for Maximizing Engagement</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-strategy-stories-the-leading-10-rogue-classics/"><u>[Updated] 2024 Approved  Strategy Stories  The Leading 10 Rogue Classics</u></a></li>
+<li><a href="https://extra-information.techidaily.com/debunking-common-misconceptions-about-aurora-hdr/"><u>Debunking Common Misconceptions About Aurora HDR</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweetturnstile-how-video-trends-surge-online/"><u>[New] TweetTurnstile  How Video Trends Surge Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-step-by-step-guide-to-captivating-youtube-live-thumbnails/"><u>2024 Approved  Step-By-Step Guide to Captivating YouTube Live Thumbnails</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-mac-for-iphone-se-2022-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock on Mac For iPhone SE (2022)?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Aerial Photography with GoPro Karma"
-date: 2024-06-22 16:25:42
-updated: 2024-06-24 10:31:57
+date: 2024-06-25T15:27:28.516Z
+updated: 2024-06-26T15:27:28.516Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/2e81f992123e17db59f89c6842ca48bb426d50921
 
 ## Elevating Aerial Photography with GoPro Karma
 
-# GoPro Karma Drone Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# GoPro Karma Drone Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -83,9 +81,7 @@ thumbnail: https://thmb.techidaily.com/2e81f992123e17db59f89c6842ca48bb426d50921
 
  Cable Cam: In this mode, you can set two points in the sky and then make the drone fly back and forth between those points over and over again.
 
-#### 5\.  Controller
-
-![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
+#### 5\.  Controller ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
 
@@ -117,3 +113,24 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-full-screen-mastery-for-premier-pro-users/"><u>[Updated] In 2024, Full Screen Mastery for Premier Pro Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-stepwise-reduction-tactics-for-audio-levels-in-fl-studio/"><u>In 2024, Stepwise Reduction Tactics for Audio Levels in FL Studio</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-uniting-sight-and-sound-perfecting-videography-voiceovers/"><u>[Updated] Uniting Sight & Sound  Perfecting Videography Voiceovers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-thorough-assessment-samsungs-hololens-like-spinning-lens/"><u>[Updated] 2024 Approved  Thorough Assessment  Samsung's Hololens-Like Spinning Lens</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-advanced-mac-skills-perfecting-srt-file-management-for-2024/"><u>[Updated] Advanced Mac Skills  Perfecting SRT File Management for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-perplexing-perspective-shifts-in-instagram-video-feeds/"><u>2024 Approved  Perplexing Perspective Shifts in Instagram Video Feeds</u></a></li>
+<li><a href="https://fox-links.techidaily.com/best-small-drone-models-today/"><u>Best Small Drone Models Today</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-revolutionizing-audio-liberation-a-deep-dive-into-pazeras-extractor/"><u>2024 Approved  Revolutionizing Audio Liberation  A Deep Dive Into Pazera's Extractor</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-samsung-galaxy-s23plus-lock-screen-password-by-drfone-android/"><u>How to Reset your Samsung Galaxy S23+ Lock Screen Password</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-generated-text-for-2024/"><u>What Is AI Generated Text for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-tagging-towards-triumph-the-best-instagram-hashtags/"><u>[New] 2024 Approved  Tagging Towards Triumph  The Best Instagram Hashtags</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-media-best-twittersave-converters-for-2024/"><u>Mastering Media  Best Twittersave Converters for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-music-after-vivo-v30-lite-5g-has-been-deleted-by-fonelab-android-recover-music/"><u>Recover your music after Vivo V30 Lite 5G has been deleted</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audience-connection-mastering-the-art-of-viewpoint-based-youtube-reaction-vids-2-pov-method/"><u>[Updated] 2024 Approved  Audience Connection – Mastering the Art of Viewpoint-Based YouTube Reaction Vids (2 POV Method)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-the-secrets-to-building-trust-with-fb-giveaways/"><u>In 2024, Unlocking the Secrets to Building Trust with FB Giveaways</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-samsung-galaxy-xcover-7-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Samsung Galaxy XCover 7 to Other Android devices | Dr.fone</u></a></li>
+</ul></div>

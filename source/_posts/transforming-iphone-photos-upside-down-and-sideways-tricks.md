@@ -1,7 +1,7 @@
 ---
 title: "\"Transforming iPhone Photos  Upside-Down & Sideways Tricks\""
-date: 2024-06-22 18:53:29
-updated: 2024-06-24 12:13:48
+date: 2024-06-25T15:32:08.305Z
+updated: 2024-06-26T15:32:08.305Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/50a0e21454dc02c593e958f3f8488f7e3d42941b9
 
 ## Transforming iPhone Photos: Upside-Down & Sideways Tricks
 
-# How to Rotate Your Upside Down and Sideway Photos on iPhone
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Rotate Your Upside Down and Sideway Photos on iPhone ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -46,9 +44,7 @@ thumbnail: https://thmb.techidaily.com/50a0e21454dc02c593e958f3f8488f7e3d42941b9
 
  It's the button at the bottom which looks like three lines with circles on them.
 
-#### 4\. Tap the 'crop' button
-
-![](https://images.wondershare.com/filmora/article-images/rotate-iphone-photos.jpg)
+#### 4\. Tap the 'crop' button ![](https://images.wondershare.com/filmora/article-images/rotate-iphone-photos.jpg)
 
  Image resource: imore.com
 
@@ -84,9 +80,7 @@ thumbnail: https://thmb.techidaily.com/50a0e21454dc02c593e958f3f8488f7e3d42941b9
 
  Take a glance at the lens position on the back of the phone. Whether you're taking a portrait or landscape picture, the lens should always be at the top.
 
-#### 2\. Practice holding it the right way up
-
-![](https://images.wondershare.com/filmora/article-images/rotate-iphone-photos-3.jpg)
+#### 2\. Practice holding it the right way up ![](https://images.wondershare.com/filmora/article-images/rotate-iphone-photos-3.jpg)
 
  Image resource: imore.com
 
@@ -124,3 +118,27 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-powerdirector-pro-complete-2024-users-manual/"><u>[New] PowerDirector Pro  Complete 2024 User's Manual</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-full-examination-hero4-black-designs/"><u>2024 Approved  Full Examination  Hero4 Black Designs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-platform-prowess-at-play-twitch-vs-youtube-clash/"><u>In 2024, Platform Prowess at Play  Twitch vs YouTube Clash</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-formulate-funny-imagery-with-adobe/"><u>[New] 2024 Approved  Formulate Funny Imagery with Adobe</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unlocking-the-potential-of-wide-angle-360-photos/"><u>[Updated] In 2024, Unlocking the Potential of Wide Angle 360 Photos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/navigating-kinemaster-wisely-skills-and-top-ranked-digital-counterparts/"><u>Navigating KineMaster Wisely  Skills and Top-Ranked Digital Counterparts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-sound-in-sight-mixing-music-into-microsofts-presentation-tool/"><u>[Updated] In 2024, Sound in Sight  Mixing Music Into Microsoft's Presentation Tool</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-visual-harmony-enhancer/"><u>[New] 2024 Approved  Visual Harmony Enhancer</u></a></li>
+<li><a href="https://fox-links.techidaily.com/visual-giggle-factory-memebake-zone-for-2024/"><u>Visual Giggle Factory  Memebake Zone for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-ranked-slideshow-creation-software-on-latest-iphones/"><u>[Updated] In 2024, Ranked Slideshow Creation Software on Latest iPhones</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oneplus-11r-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-clip-connoisseurs-essential-list-of-retro-vhs-effects/"><u>The Clip Connoisseur's Essential List of Retro VHS Effects</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-intro-magic-crafting-irresistible-podcast-openers/"><u>[New] Intro Magic  Crafting Irresistible Podcast Openers</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-your-guide-to-crafting-the-best-emblems-no-cost-for-2024/"><u>[Updated] Your Guide to Crafting the Best Emblems - No Cost for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-filter-flash-explore-the-most-popular-snap-filters-for-2024/"><u>[New] Filter Flash  Explore the Most Popular Snap Filters for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-pro-tips-for-captivating-snapchat-stories/"><u>[New] In 2024, Pro Tips for Captivating Snapchat Stories</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-metrics-of-mastery-assessing-luminances-hdr-capabilities-for-2024/"><u>The Metrics of Mastery  Assessing Luminance's HDR Capabilities for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-innovations-in-hand-tracking-and-gesture-detection/"><u>[New] Innovations in Hand Tracking and Gesture Detection</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elevating-dialogue-and-storytelling-in-filmmaking/"><u>Elevating Dialogue and Storytelling in Filmmaking</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-soundscapes-perfected-selecting-microphones-that-resonate-with-youtubers/"><u>[Updated] Soundscapes Perfected  Selecting Microphones That Resonate With YouTubers</u></a></li>
+</ul></div>

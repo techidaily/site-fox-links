@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimize Your Windows 11 Photo Viewing  Include Audio Files and Artistic Layers\""
-date: 2024-06-22 10:51:25
-updated: 2024-06-25 12:10:47
+date: 2024-06-25T15:53:33.071Z
+updated: 2024-06-26T15:53:33.071Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/ef833586db2eca1205112d6a13248317068108373
 
 ## Optimize Your Windows 11 Photo Viewing: Include Audio Files and Artistic Layers
 
-# How to Add Filters and Music on Windows 10 Photos App
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Add Filters and Music on Windows 10 Photos App ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -43,13 +41,13 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 **Step 2**: Choose the video you want to add filters. Click **New video** at top > Custom video with music.
 
-![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
+![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
-![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
+![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
@@ -63,7 +61,7 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 **Step 3**: Now, hit the ‘Create’ button from the top-right followed by dragging the video to Photos timeline. Later, hit on ‘Auio’ at top right.
 
-![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
+![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
@@ -99,3 +97,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/step-by-step-guide-to-capturing-and-embedding-speech-in-ppt/"><u>Step-by-Step Guide to Capturing and Embedding Speech in PPT</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-bring-your-camera-life-into-your-instagram-world/"><u>[Updated] Bring Your Camera Life Into Your Instagram World</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-integrating-voices-into-videos-effectively/"><u>[Updated] In 2024, Integrating Voices Into Videos Effectively</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-elevate-your-match-chances-with-clever-tinder-bios/"><u>In 2024, Elevate Your Match Chances with Clever Tinder Bios</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-capturing-clarity-perfecting-image-description-via-text-in-pcmac/"><u>In 2024, Capturing Clarity  Perfecting Image Description via Text in PC/Mac</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-humor-hacks-simplifying-the-process-of-meme-creation-for-2024/"><u>[New] Humor Hacks  Simplifying the Process of Meme Creation for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/celebrating-stop-motion-excellence-top-15-films/"><u>Celebrating Stop-Motion Excellence  Top 15 Films</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-audacity-workshop-eloquent-silent-transitions-for-2024/"><u>[Updated] Audacity Workshop  Eloquent Silent Transitions for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-visual-marketing-on-youtube-with-banners-and-thumbnails/"><u>Mastering Visual Marketing on YouTube with Banners & Thumbnails</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-xiaomi-civi-3-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-zoom-mastery-maximizing-your-podcast-recording-quality-for-2024/"><u>[New] Zoom Mastery  Maximizing Your Podcast Recording Quality for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/troubleshooting-instagrams-rotating-videos/"><u>Troubleshooting Instagram's Rotating Videos</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/retro-revival-simple-steps-to-achieve-a-vhs-look-in-fcp-for-2024/"><u>Retro Revival Simple Steps to Achieve a VHS Look in FCP for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-masterclass-analyzing-the-updated-lg-bp550/"><u>[New] Masterclass  Analyzing the Updated LG BP550</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-designing-your-perfect-tiktok-end-screen/"><u>[Updated] In 2024, Designing Your Perfect TikTok End Screen</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/view-count-value-on-youtubes-earnings-graph/"><u>View Count Value on YouTube's Earnings Graph</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-honor-play-40c-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Honor Play 40C Wont Charge | Dr.fone</u></a></li>
+</ul></div>

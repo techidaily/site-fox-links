@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Affordable ACTION Camera Choices – Top 6 Under $100"
-date: 2024-06-24 22:26:43
-updated: 2024-06-25 12:32:34
+date: 2024-06-25T15:40:50.179Z
+updated: 2024-06-26T15:40:50.179Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/1908e28912e98a1754462ccee93c018243200352c
 
 ## Affordable ACTION Camera Choices – Top 6 Under $100
 
-# Top 6 Cheapest Action Cameras to Buy Under $100
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 6 Cheapest Action Cameras to Buy Under $100 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -46,10 +44,9 @@ thumbnail: https://thmb.techidaily.com/1908e28912e98a1754462ccee93c018243200352c
 
 ## Top 6 Cheapest Action Cameras to Buy Under $100
 
-#### **1. [Polaroid Cube+](https://tools.techidaily.com/wondershare/filmora/download/) HD 1080p Lifestyle Action Camera- $99.99**
+#### **1. Polaroid Cube+
 
-[Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e)
 
  This cute 35 mm (1.4 inches) cube shaped camera with 10m waterproof case is fit for all your adventure video shooting needs while finely WiFi sync via the Cube+ app and a range of powerful tools allows you to monitor and control the operations via iOS and Android screen devices. Great for taking time-lapse videos, the camera can take up to 100 shots at 10fps.
 
@@ -184,3 +181,24 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-ultimate-compendium-hands-free-device-interaction/"><u>In 2024, The Ultimate Compendium  Hands-Free Device Interaction</u></a></li>
+<li><a href="https://fox-links.techidaily.com/canva-creative-editor-exploration-for-2024/"><u>Canva Creative Editor Exploration for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-securing-your-scene-minimize-camera-jostle/"><u>[New] In 2024, Securing Your Scene  Minimize Camera Jostle</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-elite-flight-stability-drones-best-gimbals/"><u>2024 Approved  Elite Flight Stability  Drone's Best Gimbals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-bridging-scripts-with-voices-turning-xmlttml-into-srt/"><u>[Updated] In 2024, Bridging Scripts with Voices  Turning XML/TTML Into SRT</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-pros-guide-to-srt-alterations-on-a-macbook/"><u>In 2024, The Pro's Guide to SRT Alterations on a MacBook</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-sculpted-smiles-and-eyes-introducing-facial-movement-with-motion-blur-in-picsart-for-2024/"><u>[New] Sculpted Smiles and Eyes  Introducing Facial Movement with Motion Blur in Picsart for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-polishing-job-experience-descriptions/"><u>[New] In 2024, Polishing Job Experience Descriptions</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-iphone-11-pro-max-with-a-broken-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking iPhone 11 Pro Max with a Broken Screen? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-streamlining-picture-shading-with-adobe-tools-for-2024/"><u>[New] Streamlining Picture Shading with Adobe Tools for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/leading-edge-in-online-gif-conversion-to-video-best-5/"><u>Leading Edge in Online GIF Conversion to Video (Best 5)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-redmi-note-12r-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Redmi Note 12R</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-swiftness-at-a-click-managing-youtubes-video-speed-settings/"><u>[Updated] Swiftness at a Click  Managing YouTube's Video Speed Settings</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2-easy-methods-how-to-zoom-in-on-tiktok-videos/"><u>New 2 Easy Methods | How To Zoom In On TikTok Videos?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-ultimate-guide-to-selecting-and-utilizing-top-6-gopro-attachments/"><u>[Updated] 2024 Approved  The Ultimate Guide to Selecting & Utilizing Top 6 GOPRO Attachments</u></a></li>
+</ul></div>

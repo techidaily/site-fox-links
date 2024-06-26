@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Guide to Capturing and Embedding Speech in PPT\""
-date: 2024-06-22 12:14:20
-updated: 2024-06-24 12:12:47
+date: 2024-06-25T15:08:39.398Z
+updated: 2024-06-26T15:08:39.398Z
 tags: 
   - screen-recording
   - ai video
@@ -44,17 +44,13 @@ To your PowerPoint presentation, you can add audio, such as music, narration, or
 
 **Steps to add audio to PowerPoint from PC**
 
-##### Step1 Select Insert > Audio
-
-![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
+##### Step1 Select Insert > Audio ![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
 
 ##### Step2 Select Audio on My PC
 
 ##### Step3 Select the audio file you want to add in the Insert Audio dialogue box
 
-##### Step4 Select Insert
-
-![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
+##### Step4 Select Insert ![play audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/play-audio-ppt.jpg)
 
 ## Part 2 Record audio on PowerPoint
 
@@ -108,13 +104,9 @@ Let's suppose we've added long audio to our presentation, and we just only need 
 
 ##### Step1 Click the audio icon you’ve just added to the presentation in previous steps
 
-##### Step2 Click Playback> Trim Audio as shown below
+##### Step2 Click Playback> Trim Audio as shown below ![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
 
-![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
-
-##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio
-
-![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
+##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio ![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
 
 Hit the Play tab to preview the changes done.
 
@@ -132,9 +124,7 @@ If you want to switch to a specific point in the Audio, you can add a bookmark. 
 
 ![click audio timeline ppt](https://images.wondershare.com/filmora/article-images/2022/02/click-audio-timeline-ppt.jpg)
 
-##### Step1 Click Add Bookmark after clicking the place
-
-![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
+##### Step1 Click Add Bookmark after clicking the place ![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
 
 ## Part 4 How to play audio automatically in PowerPoint
 
@@ -158,9 +148,7 @@ Let’s see how we can achieve this!
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
@@ -242,3 +230,24 @@ In this guide, we’ll specifically talk about the feature by which you can reco
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-strategy-to-seamlessly-upload-srt-subtitles-online/"><u>[New] In 2024, The Ultimate Strategy to Seamlessly Upload SRT Subtitles Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-how-to-create-a-quick-google-collage-photo/"><u>[Updated] 2024 Approved  How to Create a Quick Google Collage Photo</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-turn-swipes-to-love-powerful-tricks-and-ideas-for-standout-biographies/"><u>In 2024, Turn Swipes to Love  Powerful Tricks and Ideas for Standout Biographies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-personalized-vr-retail-journeys/"><u>[New] Personalized VR Retail Journeys</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-arctic-acrobatics-2022s-olympians/"><u>[New] In 2024, Arctic Acrobatics  2022'S Olympians</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-inside-the-cut-an-in-depth-look-at-d500-4k/"><u>[Updated] Inside the Cut  An In-Depth Look at D500 4K</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-tailoring-audio-alerts-setting-custom-ringtones-and-sounds-on-android-devices-for-2024/"><u>[Updated] Tailoring Audio Alerts  Setting Custom Ringtones & Sounds on Android Devices for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-recommended-6-best-music-video-apps-on-android/"><u>[Updated] 2024 Approved  Recommended  6 Best Music Video Apps on Android</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-blueprint-for-incorporating-dynamic-narrations-in-media/"><u>In 2024, The Blueprint for Incorporating Dynamic Narrations in Media</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-laughing-matters-the-viral-meme-scoreboard/"><u>[New] In 2024, Laughing Matters  The Viral Meme Scoreboard</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-discover-the-leading-free-screen-recording-tools-for-mac-os/"><u>[Updated] In 2024, Discover the Leading Free Screen Recording Tools for Mac OS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-economic-education-top-15-youtube-picks/"><u>2024 Approved  Essential Economic Education  Top 15 YouTube Picks</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-your-free-tool-to-record-androids-precision/"><u>2024 Approved  Your Free Tool to Record Android's Precision</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-unleash-your-inner-dj-with-top-20-tiktok-hits/"><u>[Updated] 2024 Approved  Unleash Your Inner DJ with Top 20 TikTok Hits</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-realme-gt-3-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/comprehensive-list-of-free-high-quality-video-playback-apps-pcmobile-for-2024/"><u>Comprehensive List of Free, High-Quality Video Playback Apps PC/Mobile for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Samsung Galaxy F04 | Dr.fone</u></a></li>
+</ul></div>

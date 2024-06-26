@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Yuneec Typhoon H Deep Dive  Aerial Expert Review\""
-date: 2024-06-21 17:50:36
-updated: 2024-06-23 10:25:18
+date: 2024-06-25T15:59:09.767Z
+updated: 2024-06-26T15:59:09.767Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
 
 ## Yuneec Typhoon H Deep Dive: Aerial Expert Review
 
-# Yuneec Typhoon H Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Yuneec Typhoon H Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -81,15 +79,11 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
 
  Typhoon H is equipped with a built in type obstacle avoidance sensor that can find all distractions easily around and keeps your drone safe from crashes. It works with sonar technology that means your device can easily detect all the undesired objects on the way even in low light conditions or in darkness. Note that this sensor is attached at front portion of your drone so it can serve with the detection ability to front facing objects only, if anything comes from sides then your drone will not be able to stay safe. But still, at least you have a new feature and it works amazingly.
 
-#### 6\.  Controller
-
-![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
+#### 6\.  Controller ![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
 
  The controller part is really interesting with few additional features as compared to its predecessors. You will be able to access button and knobs but one new addition to controller is in form of its built in type 7 inch touchscreen that can display the telemetry data on continuous basis. Here is good news for professionals; it is possible to connect this drone to more than one controller at a time so that few highly customized shoots can be gathered. Filmmakers love to access these advanced features.
 
-#### 7\.  Camera
-
-![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
+#### 7\.  Camera ![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
 
  The drone camera can provide 4K recording facility whereas users can also switch between 2.5K and 1080p level as per need. The FPS ratings can be shifted for better results. Results can be enhanced with its ½.3” CMOS sensor and the developers also claim to serve with video transmission range of about 400 meters. The 360 degree gimbal is also available with this drone and its results are professional looking with advantage of sonar sensor.
 
@@ -121,3 +115,26 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-elevating-vlogging-to-new-heights-yi-hero-reviewed-for-2024/"><u>[New] Elevating Vlogging to New Heights  Yi Hero Reviewed for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-voice-over-techniques-that-transform-video-storytelling/"><u>[New] In 2024, Voice Over Techniques That Transform Video Storytelling</u></a></li>
+<li><a href="https://fox-links.techidaily.com/affordable-gopros-where-to-buy-with-best-price/"><u>Affordable GoPros  Where to Buy with Best Price</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-sound-savants-playbook-for-efficient-audible-records/"><u>[New] 2024 Approved  The Sound Savant's Playbook for Efficient Audible Records</u></a></li>
+<li><a href="https://fox-links.techidaily.com/seeking-the-8-pinnacle-of-androids-collaborative-video-collage-tools/"><u>Seeking the #8 Pinnacle of Android's Collaborative Video Collage Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/probing-deep-into-inshots-editing-capabilities/"><u>Probing Deep Into InShot's Editing Capabilities</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-strategic-campaign-planning-for-health-brands/"><u>[New] 2024 Approved  Strategic Campaign Planning for Health Brands</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-essential-iphone-photo-optimization-techniques/"><u>[Updated] 2024 Approved  Essential iPhone Photo Optimization Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-reimagined-computing-with-windows-10s-upgrades-for-2024/"><u>[Updated] Reimagined Computing with Windows 10’S Upgrades for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-advanced-gopro-editing-straightening-fisheye-lens/"><u>In 2024, Advanced GoPro Editing  Straightening Fisheye Lens</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-swiftly-overcome-video-send-errors-in-facebook-chat-for-iphones-android-for-2024/"><u>[New] Swiftly Overcome Video Send Errors in Facebook Chat for iPhones, Android for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-reels-unlocking-the-ninja-mindset/"><u>In 2024, Instagram Reels  Unlocking the Ninja Mindset</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-confronting-cyberbullying-a-practical-handbook-to-raise-alarm-and-seek-help-on-discord/"><u>In 2024, Confronting Cyberbullying  A Practical Handbook to Raise Alarm and Seek Help on Discord</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-ideal-ringtone-hunt-prime-downloads/"><u>[Updated] In 2024, Ideal Ringtone Hunt  Prime Downloads</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-precision-in-yt-imagery-mastering-size-and-ratio/"><u>[New] Precision in YT Imagery  Mastering Size & Ratio</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exclusive-imagery-tale-constructor/"><u>[Updated] Exclusive Imagery Tale Constructor</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-advanced-psd-color-grading/"><u>[New] Advanced PSD Color Grading</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-tips-for-gif-to-animated-png-for-2024/"><u>Updated Tips for GIF to Animated PNG for 2024</u></a></li>
+</ul></div>

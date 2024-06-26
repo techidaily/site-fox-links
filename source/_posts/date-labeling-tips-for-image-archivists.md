@@ -1,7 +1,7 @@
 ---
 title: "Date Labeling Tips for Image Archivists"
-date: 2024-06-23 22:46:24
-updated: 2024-06-26 10:29:51
+date: 2024-06-25T15:39:50.066Z
+updated: 2024-06-26T15:39:50.066Z
 tags: 
   - screen-recording
   - ai video
@@ -57,7 +57,7 @@ Step2Install the app after downloading.
 
 Step3Add data/timestamps to both new and old pictures.
 
-You can download Timestamp for [Android](https://play.google.com/store/apps/details?id=com.jeyluta.timestampcamerafree&gl=US) and [iPhone](https://apps.apple.com/us/app/timestamp-it-photo-stamper/id327756085)here.
+You can download Timestamp for [Android](https://play.google.com/store/apps/details?id=com.jeyluta.timestampcamerafree&gl=US) and [iPhone](https://apps.apple.com/us/app/timestamp-it-photo-stamper/id327756085) here.
 
 ## Part 2\. Edit Photos and Add Date Stamps on The Phone
 
@@ -123,9 +123,7 @@ You can download the app on [Android](https://play.google.com/store/apps/details
 
 Another photo editing app you can find useful is Adobe Photoshop Lightroom. The app makes dozens of photo enhancement and editing products.
 
-The Adobe Photoshop Lightroom is a cloud-based product where you can upload and edit batches of images together. Below are some of the features of Adobe Photoshop Lightroom
-
-![adobe photoshop lightroom](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-3.jpg)
+The Adobe Photoshop Lightroom is a cloud-based product where you can upload and edit batches of images together. Below are some of the features of Adobe Photoshop Lightroom ![adobe photoshop lightroom](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-3.jpg)
 
 **Key Features**
 
@@ -135,7 +133,7 @@ The Adobe Photoshop Lightroom is a cloud-based product where you can upload and 
 * Batch editing
 * Healing Brushes
 
-You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US)and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
+You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US) and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
 
 ### **VSCO**
 
@@ -248,7 +246,7 @@ Step7Proceed to click on the Save option.
 
 **You can add dates to photos online** via several platforms. Several websites make that possible. Let’s look at some of the platforms and the features they provide.
 
-### 1\. [Canva](https://www.canva.com/photo-editor/)
+### 1\. Canva
 
 Canva is a standout online photo editor where you can edit your and **add date to photos**. To start, you must **sign up and upload the photo** you want to edit.
 
@@ -260,7 +258,7 @@ Canva is a standout online photo editor where you can edit your and **add date t
 * Add depth of field to your image instantly.
 * Background image remover
 
-### 2\. [Fotor](https://www.fotor.com/)
+### 2\. Fotor
 
 **Add a date to a photo** using Fotor. Fotor provides great features that make photo editing a smooth and easy process. To begin, you will need to sign up and upload your photo.
 
@@ -273,7 +271,7 @@ Canva is a standout online photo editor where you can edit your and **add date t
 * Wrinkle Remover
 * Blemish Remover
 
-### 3\. [PIXLR](https://pixlr.com/)
+### 3\. PIXLR
 
 PIXLR is another great online platform that can be used to **edit pictures online**. PIXLR offers amazing features with its services. To use the platform, you must **sign up and upload a photo**.
 
@@ -289,9 +287,9 @@ PIXLR is another great online platform that can be used to **edit pictures onlin
 
 Hopefully, these steps will be helpful if you ever want to **add a date** or **edit your photos on your phone** or computer. Hence, next time you take a picture, consider doing some editing and adding a date stamp using these steps.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 * [Use the inbuilt photo on Mac to edit the photo.](#part3-1)
 * [Use inbuilt photo app on mac to add date stamps](#part3-2)
@@ -319,7 +317,7 @@ Step2Install the app after downloading.
 
 Step3Add data/timestamps to both new and old pictures.
 
-You can download Timestamp for [Android](https://play.google.com/store/apps/details?id=com.jeyluta.timestampcamerafree&gl=US) and [iPhone](https://apps.apple.com/us/app/timestamp-it-photo-stamper/id327756085)here.
+You can download Timestamp for [Android](https://play.google.com/store/apps/details?id=com.jeyluta.timestampcamerafree&gl=US) and [iPhone](https://apps.apple.com/us/app/timestamp-it-photo-stamper/id327756085) here.
 
 ## Part 2\. Edit Photos and Add Date Stamps on The Phone
 
@@ -385,9 +383,7 @@ You can download the app on [Android](https://play.google.com/store/apps/details
 
 Another photo editing app you can find useful is Adobe Photoshop Lightroom. The app makes dozens of photo enhancement and editing products.
 
-The Adobe Photoshop Lightroom is a cloud-based product where you can upload and edit batches of images together. Below are some of the features of Adobe Photoshop Lightroom
-
-![adobe photoshop lightroom](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-3.jpg)
+The Adobe Photoshop Lightroom is a cloud-based product where you can upload and edit batches of images together. Below are some of the features of Adobe Photoshop Lightroom ![adobe photoshop lightroom](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-3.jpg)
 
 **Key Features**
 
@@ -397,7 +393,7 @@ The Adobe Photoshop Lightroom is a cloud-based product where you can upload and 
 * Batch editing
 * Healing Brushes
 
-You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US)and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
+You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US) and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
 
 ### **VSCO**
 
@@ -510,7 +506,7 @@ Step7Proceed to click on the Save option.
 
 **You can add dates to photos online** via several platforms. Several websites make that possible. Let’s look at some of the platforms and the features they provide.
 
-### 1\. [Canva](https://www.canva.com/photo-editor/)
+### 1\. Canva
 
 Canva is a standout online photo editor where you can edit your and **add date to photos**. To start, you must **sign up and upload the photo** you want to edit.
 
@@ -522,7 +518,7 @@ Canva is a standout online photo editor where you can edit your and **add date t
 * Add depth of field to your image instantly.
 * Background image remover
 
-### 2\. [Fotor](https://www.fotor.com/)
+### 2\. Fotor
 
 **Add a date to a photo** using Fotor. Fotor provides great features that make photo editing a smooth and easy process. To begin, you will need to sign up and upload your photo.
 
@@ -535,7 +531,7 @@ Canva is a standout online photo editor where you can edit your and **add date t
 * Wrinkle Remover
 * Blemish Remover
 
-### 3\. [PIXLR](https://pixlr.com/)
+### 3\. PIXLR
 
 PIXLR is another great online platform that can be used to **edit pictures online**. PIXLR offers amazing features with its services. To use the platform, you must **sign up and upload a photo**.
 
@@ -551,9 +547,9 @@ PIXLR is another great online platform that can be used to **edit pictures onlin
 
 Hopefully, these steps will be helpful if you ever want to **add a date** or **edit your photos on your phone** or computer. Hence, next time you take a picture, consider doing some editing and adding a date stamp using these steps.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -576,3 +572,22 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-breaking-barriers-with-excellent-job-interview-techniques/"><u>[Updated] Breaking Barriers with Excellent Job Interview Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-prime-ways-from-video-links-to-audio-downloads/"><u>[Updated] 2024 Approved  Prime Ways  From Video Links to Audio Downloads</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-pioneering-pathways-in-virtual-reality-biking/"><u>[New] 2024 Approved  Pioneering Pathways in Virtual Reality Biking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-dissecting-the-user-experience-in-vivavideo-for-2024/"><u>[Updated] Dissecting the User Experience in VivaVideo for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-unlocking-whatsapps-full-arsenal-for-efficient-communication/"><u>[New] In 2024, Unlocking WhatsApp's Full Arsenal for Efficient Communication</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ultimate-video-recording-guide-s-best-camcorder-for-2024/"><u>Ultimate Video Recording Guide 'S Best Camcorder for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-enhancing-digital-art-with-layered-imagery/"><u>[New] In 2024, Enhancing Digital Art with Layered Imagery</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-mastering-mac-recording-settings-for-snapchat-use/"><u>[Updated] In 2024, Mastering Mac Recording Settings for Snapchat Use</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-motorola-moto-g14-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Motorola Moto G14</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/mp3-alteration-101-essential-editing-skills-for-audio-enthusiasts/"><u>MP3 Alteration 101 Essential Editing Skills for Audio Enthusiasts</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-apple-iphone-7-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For Apple iPhone 7 Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-motorola-moto-g73-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/high-speed-files-inspection-on-windows-os/"><u>High-Speed Files Inspection on Windows OS</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-secure-footage-leading-stabilizers-on-youtube/"><u>[New] Secure Footage  Leading Stabilizers on YouTube</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-camera-elite-the-premier-selection-of-4k-dslr-mounts/"><u>2024 Approved  Camera Elite  The Premier Selection of 4K DSLR Mounts</u></a></li>
+</ul></div>

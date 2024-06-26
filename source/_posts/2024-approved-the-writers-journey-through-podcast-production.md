@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Writer's Journey Through Podcast Production\""
-date: 2024-06-21 16:33:20
-updated: 2024-06-24 10:13:23
+date: 2024-06-25T15:54:30.749Z
+updated: 2024-06-26T15:54:30.749Z
 tags: 
   - screen-recording
   - ai video
@@ -74,24 +74,24 @@ The first right candidate for the word-for-word script is the one about to land 
 
 **Structure**
 
-* Intro: Introduce yourself, the topic of discussion, and the guests if there; episode teaser (Span: \_\_\_ )
+* Intro: Introduce yourself, the topic of discussion, and the guests if there; episode teaser (Span: \_\_\_)
 * \[Sponsor message\]
 * \[Theme music\]
-* Topic 1: \_\_\_\_\_(Span: \_\_ )
+* Topic 1: \_\_\_\_\_(Span: \_\_)
 * Principal point
 * Supporting points
 * Quotations, data, or other facts
 * Segue (can be a phrase, a piece of music, or a sound effect)
-* Topic 2: \_\_\_\_\_\_\_(Span: \_\_ )
+* Topic 2: \_\_\_\_\_\_\_(Span: \_\_)
 * Principal point
 * Supporting points
 * Quotations, data, or other facts
 * \[Sponsor message\]
-* Topic 3: \_\_\_\_\_\_\_(Span: \_\_ )
+* Topic 3: \_\_\_\_\_\_\_(Span: \_\_)
 * Principal point
 * Supporting points
 * Quotations, data, or other facts
-* Outro: \_\_\_\_\_ (Span: \_\_ )
+* Outro: \_\_\_\_\_ (Span: \_\_)
 * Overview
 * Call to action
 * \[Closing theme music\]
@@ -132,19 +132,19 @@ See you in the upcoming episode with another interesting topic \[topic name\].
 
 **Podcast Example:**
 
-##### [Unfictional](https://www.kcrw.com/culture/shows/unfictional/cabin-notebook?utm%5Fsource=KCRW&utm%5Fmedium=RSS&utm%5Fcampaign=kcrw-show-rss)
+##### Unfictional
 
 An interesting narrative-style podcast hosted and produced by Bob Carlson.
 
 ![unfictional narrative podcast](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-2.jpg)
 
-##### [S-Town](https://podcasts.apple.com/us/podcast/s-town/id1212558767)
+##### S-Town
 
 A crime story podcast hosted by Brian Reed from Serial Productions, a New York Times company.
 
 ![s town cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-3.jpg)
 
-##### [Bill Burr's Monday Morning](https://open.spotify.com/show/5SFiQlOQ3EKmwp0chE1QzY)
+##### Bill Burr's Monday Morning
 
 A solo podcast hosted by Bill Burr.
 
@@ -201,13 +201,13 @@ CTAs: If you want to hear more interesting podcasts like this one, follow the ch
 
 **Podcast Example**
 
-##### [Smartless](https://open.spotify.com/show/0Yzd0g8NYmn27k2HFNplv7)
+##### Smartless
 
 "SmartLess" with Jason Bateman, Sean Hayes, & Will Arnett is a podcast where people from different fields of life come to share their life experiences.
 
 ![smartless podcast cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-5.jpg)
 
-##### [The Joe Rogan Experience](https://open.spotify.com/show/4rOoJ6Egrf8K2IrywzwOMk)
+##### The Joe Rogan Experience
 
 Hosted by Joe Rogan, a conversational style podcast it is.
 
@@ -224,17 +224,17 @@ Hosts who love ad-libbing just need a bulleted list of some points to do an epis
 
 **Structure**
 
-* Intro: \_\_\_\_\_ (Span: \_\_\_\_\_ )
+* Intro: \_\_\_\_\_ (Span: \_\_\_\_\_)
 * \[Sponsor message\]
 * \[Theme music\]
-* Topic 1: \_\_\_\_\_\_\_ (Span: \_\_\_\_ )
+* Topic 1: \_\_\_\_\_\_\_ (Span: \_\_\_\_)
 * Notations
-* Topic 2: \_\_\_\_\_\_\_ (Span: \_\_\_\_ )
+* Topic 2: \_\_\_\_\_\_\_ (Span: \_\_\_\_)
 * Notations
 * Segue
-* Topic 3: \_\_\_\_\_\_\_ (Duration: \_\_\_\_ )
+* Topic 3: \_\_\_\_\_\_\_ (Duration: \_\_\_\_)
 * Notations
-* Outro: \_\_\_\_\_ (Duration: \_\_\_\_ )
+* Outro: \_\_\_\_\_ (Duration: \_\_\_\_)
 * \[Ending music\]
 
 **Template**
@@ -261,19 +261,19 @@ CTAs: Follow the channel and forward it to your friends if you want to listen to
 
 **Podcast Example**
 
-##### [WTF with Marc Maron](http://www.wtfpod.com/)
+##### WTF with Marc Maron
 
 "WTF with Marc Maron" is a comedy podcast show with a growing list of episodes. It's one of the best examples of an Ad-libbed flexible podcast script.
 
 ![wtf podcast cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-7.jpg)
 
-##### [Conan O'Brien Needs a Friend](https://open.spotify.com/show/3u26tlz7A3WyWRtXliX9a9)
+##### Conan O'Brien Needs a Friend
 
 A comedy podcast hosted by Conan.
 
 ![comedy podcast cover](https://images.wondershare.com/filmora/article-images/2022/12/how-to-write-podcast-script-8.jpg)
 
-##### [2 Bears, 1 Cave with Tom Segura & Bert Kreischer](https://open.spotify.com/show/1PgDUTgeyu3FOzK1FcBoqa)
+##### 2 Bears, 1 Cave with Tom Segura & Bert Kreischer
 
 Together, two close friends make each other laugh.
 
@@ -390,3 +390,27 @@ The crux of our discussion is that a compelling podcast script makes it simple t
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/vegas-pro-21-a-comprehenive-examination-for-gamblers-and-techies-alike/"><u>Vegas Pro '21  A Comprehenive Examination for Gamblers and Techies Alike</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-rgb-basics-and-their-evolution-into-srgb-format-for-2024/"><u>[Updated] Rgb Basics and Their Evolution Into Srgb Format for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-toongems-detailed-analysis-24-summary/"><u>[Updated] ToonGems Detailed Analysis '24 Summary</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-how-to-reduce-virtual-reality-vr-sickness/"><u>[Updated] 2024 Approved  How to Reduce Virtual Reality (VR) Sickness</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-key-approaches-to-elevate-handp-facebook-campaigns-for-2024/"><u>[Updated] Key Approaches to Elevate H&P Facebook Campaigns for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-fabricate-jocular-images-share-via-giphy/"><u>[New] 2024 Approved  Fabricate Jocular Images, Share via Giphy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/toggle-between-normal-and-picture-in-picture-view-for-youtube-on-iphone/"><u>Toggle Between Normal and Picture In Picture View for Youtube on iPhone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/sub-from-srt-effective-techniques-for-format-shift-for-2024/"><u>SUB From SRT  Effective Techniques for Format Shift for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-ultimate-quadcopter-propeller-pick-achieve-optimal-efficiency/"><u>[New] Ultimate Quadcopter Propeller Pick  Achieve Optimal Efficiency</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-premium-microphone-selection-for-your-podcast-for-2024/"><u>[Updated] The Premium Microphone Selection for Your Podcast for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-itel-s23plusmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Itel S23+Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-flawless-flow-from-tiktok-creations-to-twitter-broadcasting/"><u>[Updated] 2024 Approved  Flawless Flow From TikTok Creations to Twitter Broadcasting</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y36i-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Vivo Y36i PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/ideal-high-res-displays-the-best-5-for-ps5-for-2024/"><u>Ideal High-Res Displays  The Best 5 For PS5 for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-25-essential-hashtags-for-increased-instagram-engagement/"><u>[Updated] 2024 Approved  25 Essential Hashtags for Increased Instagram Engagement</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-precision-and-power-leading-kung-fu-vr-titles/"><u>[Updated] In 2024, Precision and Power  Leading Kung Fu VR Titles</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-bilateral-screen-tracking/"><u>[New] In 2024, Bilateral Screen Tracking</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-from-iphone-12-proipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock from iPhone 12 Pro/iPad/iPod</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-instagrams-newest-feature-reels-explained/"><u>[New] 2024 Approved  Mastering Instagram's Newest Feature  Reels Explained</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
+</ul></div>

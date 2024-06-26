@@ -1,7 +1,7 @@
 ---
 title: "\"Quick Guide  Integrating Titles Into Videos Within Windows Photos\""
-date: 2024-06-24 23:57:25
-updated: 2024-06-26 12:55:59
+date: 2024-06-25T15:29:45.756Z
+updated: 2024-06-26T15:29:45.756Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/2b667f6d425e137d74634d5b5e43d01ba3b3015e3
 
 ## Quick Guide: Integrating Titles Into Videos Within Windows Photos
 
-# How to Add Titles/Text to Video on Photos App in Windows 10
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Add Titles/Text to Video on Photos App in Windows 10 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -38,14 +36,10 @@ Adding the titles/text to video is a great way to explain the people about a cer
 Do you wish to add titles/text to video on Photos in Windows 10 for your video projects? You may not get several options for video editing in spite of some powerful addition of application in Microsoft Store. But, the Windows 10 Photos app feature offers an add-on for creating video from your phone’s media. Let’s learn how to add titles/text to video on Photos in Windows 10.
 
 * Firstly, divide your videos into sections. Add section titles to the background video or image. Use relevant image for each section and add a section header. If you do not have any relevant image, search from the web by clicking on add Photos/videos.
-* Select licensed images from the preset categories and always use it by adding credits to the image and click Insert to add it to the video project
-
-![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
+* Select licensed images from the preset categories and always use it by adding credits to the image and click Insert to add it to the video project ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
-* Resize the image if black parts appear by clicking on resize and then, remove black parts
-
-![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
+* Resize the image if black parts appear by clicking on resize and then, remove black parts ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
@@ -58,19 +52,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * Open the Photos app
 * At the top, you can find “Create” option in blue color and choose it. From the drop-down menu, select the custom video with the music option. At the top right corner of the video, check the box you wish to edit
 * Click on Add and drag the video to the timeline below. Go to the effects menu and click 3D effects
-* On the right, find the effects sidebar and select any effect that you find suitable for your video text
-
-![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
+* On the right, find the effects sidebar and select any effect that you find suitable for your video text ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
-* To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
+* To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
-
-* To increase or decrease the length of animation time, adjust the slider
-
-![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
+* To increase or decrease the length of animation time, adjust the slider ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
@@ -102,3 +90,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/perfect-phone-match-up-for-samsungs-virtual-reality-dreams-update-2023/"><u>Perfect Phone Match-Up for Samsung's Virtual Reality Dreams - Update 2023</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unveiling-inexpensive-cloud-storage-services/"><u>[Updated] Unveiling Inexpensive Cloud Storage Services</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-effortlessly-integrate-photos-into-instagramsphere-for-2024/"><u>[New] Effortlessly Integrate Photos Into Instagramsphere for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-elite-visualsai-cutting-edge-photo-transformations-for-2024/"><u>[Updated] Elite VisualsAI  Cutting-Edge Photo Transformations for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-capture-the-moment-professional-techniques-in-hdr-portraiture/"><u>[New] 2024 Approved  Capture the Moment  Professional Techniques in HDR Portraiture</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-transform-your-copy-with-strategic-slug-line-usage/"><u>[Updated] Transform Your Copy with Strategic Slug Line Usage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-future-of-tiktok-master-video-trends-and-techniques/"><u>[New] The Future of TikTok - Master Video Trends and Techniques</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-get-splice-video-editing-software-for-macos/"><u>New 2024 Approved Get Splice Video Editing Software for macOS</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/make-every-gaming-moment-memorable-for-2024/"><u>Make Every Gaming Moment Memorable for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-simulate-hand-held-camera-effects-in-photoshop/"><u>[New] Simulate Hand-Held Camera Effects in Photoshop</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-crossing-media-boundaries-insta-to-tiktok-guide/"><u>[New] Crossing Media Boundaries  Insta-to-TikTok Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-ultimate-non-zoom-video-calls-for-pcphone-users/"><u>[New] 2024 Approved  Ultimate Non-Zoom Video Calls for PC/Phone Users</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/1716069698189-new-2024-approved-engaging-recorders-within-huawei-mate-and-p-series-for-video-capture/"><u>[New] 2024 Approved  Engaging Recorders Within Huawei Mate and P-Series for Video Capture.</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-exploring-the-best-slow-motion-app/"><u>In 2024, Exploring the Best Slow-Motion App</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-samsung-galaxy-m14-4g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Samsung Galaxy M14 4G Phone When You Forget the Password</u></a></li>
+</ul></div>

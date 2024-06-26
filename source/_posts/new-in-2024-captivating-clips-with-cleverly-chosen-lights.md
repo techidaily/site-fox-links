@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Captivating Clips with Cleverly Chosen Lights"
-date: 2024-06-24 10:50:35
-updated: 2024-06-25 11:23:22
+date: 2024-06-25T15:01:19.933Z
+updated: 2024-06-26T15:01:19.933Z
 tags: 
   - screen-recording
   - ai video
@@ -44,21 +44,15 @@ A Fresnel lens is an optional attachment that can bounce the light off of the ce
 
 For this tutorial, we will use the Three-Point Lighting technique:
 
-##### Step1 Set the Key Light
-
-![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
+##### Step1 Set the Key Light ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
-##### Step2 Set the Fill Light
-
-![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
+##### Step2 Set the Fill Light ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
-##### Step3 Set the Backlight
-
-![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+##### Step3 Set the Backlight ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -123,3 +117,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/2024-approved-premium-aerial-imagery-crews-the-10-drones/"><u>2024 Approved  Premium Aerial Imagery Crews  The #10 Drones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-essential-guide-for-newcomers-on-av1/"><u>[Updated] 2024 Approved  The Essential Guide for Newcomers on AV1</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-boosting-your-voices-impact-free-user-friendly-changes-available/"><u>[New] In 2024, Boosting Your Voice's Impact – Free, User-Friendly Changes Available</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-full-guide-to-google-docs-speech-to-text-service/"><u>[Updated] 2024 Approved  Full Guide to Google Docs Speech to Text Service</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-halt-youtubes-automatic-video-screening/"><u>[New] Halt YouTube's Automatic Video Screening</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-hidden-paths-techniques-to-skip-without-watching-edgenuity-videos-for-2024/"><u>The Hidden Paths  Techniques to Skip Without Watching Edgenuity Videos for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-definitive-guide-to-audio-interfaces-in-podcasting/"><u>In 2024, The Definitive Guide to Audio Interfaces in Podcasting</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-exceptional-14-visual-text-motion-examples/"><u>2024 Approved  Exceptional 14 Visual Text Motion Examples</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-aesthetic-additions-best-snapchat-filters-and-lenses-listed/"><u>[Updated] 2024 Approved  Aesthetic Additions  Best Snapchat Filters and Lenses Listed</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-premiere-pro-slow-playback-issues-finding-the-best-solutions/"><u>In 2024, Premiere Pro Slow Playback Issues Finding The Best Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/understanding-what-makes-asmr-videos-special-for-2024/"><u>Understanding What Makes ASMR Videos Special for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-excellent-devices-for-frame-by-frame-filmmaking/"><u>[Updated] 2024 Approved  Excellent Devices for Frame-by-Frame Filmmaking</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-oneplus-12r-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-lenovo-thinkphone-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Lenovo ThinkPhone IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-command-the-clicks-mastering-engagement-tactics-for-instagram/"><u>[Updated] Command the Clicks  Mastering Engagement Tactics for Instagram</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-empowering-remote-teams-with-google-meets-whiteboard-features-on-various-devices/"><u>[New] In 2024, Empowering Remote Teams with Google Meet's Whiteboard Features on Various Devices</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-compress-videos-on-the-go-best-free-iphone-and-ipad-apps/"><u>New 2024 Approved Compress Videos on the Go Best Free iPhone and iPad Apps</u></a></li>
+</ul></div>

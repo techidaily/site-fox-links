@@ -1,7 +1,7 @@
 ---
 title: "Enabling Effortless Speech Translation to Text Within PowerPoint Slides for 2024"
-date: 2024-06-23 10:24:47
-updated: 2024-06-26 12:19:48
+date: 2024-06-25T15:50:26.840Z
+updated: 2024-06-26T15:50:26.840Z
 tags: 
   - screen-recording
   - ai video
@@ -135,9 +135,7 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ##### Step 2
 
-Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
-
-![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
+Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
 ## FAQs
 
@@ -157,9 +155,9 @@ You can use your device's in-built microphone. However, you may need external ge
 
 Speech-to-text is an additional feature for all users. Typing is, however, the default practice.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -181,3 +179,24 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-fish-tastic-top-5-action-cameras-for-catch-for-2024/"><u>[New] Fish-Tastic  Top 5 Action Cameras for Catch for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/transforming-ideas-into-videos-top-30-strategies/"><u>Transforming Ideas Into Videos  Top 30 Strategies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-slomo-videography-the-complete-app-analysis-for-2024/"><u>[New] SloMo Videography  The Complete App Analysis for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-combined-imagery-and-action-mastering-iphone-recording/"><u>[Updated] In 2024, Combined Imagery & Action  Mastering iPhone Recording</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-cut-to-the-chase-how-to-zoom-effectively-in-minecraft/"><u>[New] 2024 Approved  Cut to the Chase  How to Zoom Effectively in Minecraft</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-videoeditorpro-comprehensive-analysis-and-reviews/"><u>[Updated] VideoEditorPro  Comprehensive Analysis & Reviews</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unveiling-the-wonders-of-4k-with-benq-bl2711u-review/"><u>[New] 2024 Approved  Unveiling the Wonders of 4K with BenQ BL2711U Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-mastery-over-music-flow-the-art-of-audio-blending/"><u>In 2024, Mastery Over Music Flow  The Art of Audio Blending</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-secrets-to-costless-capturing-of-discord-media-on-all-platforms-for-2024/"><u>[Updated] Secrets to Costless Capturing of Discord Media on All Platforms for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-hot-takes-dailys-most-popular-video-tracks/"><u>[Updated] In 2024, Hot Takes  Daily's Most Popular Video Tracks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-android-and-iphones-essential-apps-to-elevate-fb-likes-count-quickly-for-2024/"><u>[Updated] Android & iPhone's Essential Apps to Elevate FB Likes Count Quickly for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-apple-iphone-7-look-no-further-drfone-by-drfone-virtual-ios/"><u>Looking For A Location Changer On Apple iPhone 7? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-comparing-the-giants-an-in-depth-guide-to-tiktok-vs-snapchats-functionality/"><u>[New] 2024 Approved  Comparing the Giants  An In-Depth Guide to TikTok vs Snapchat's Functionality</u></a></li>
+<li><a href="https://article-files.techidaily.com/smartphone-image-editing-the-best-free-layers-and-tools-guide-top-10-for-2024/"><u>Smartphone Image Editing - The Best Free Layers & Tools Guide (Top 10) for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-secret-sauce-for-stellar-telegram-campaigns-for-2024/"><u>[Updated] The Secret Sauce for Stellar Telegram Campaigns for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-simplifying-video-production-in-captivate-software/"><u>[Updated] 2024 Approved  Simplifying Video Production in Captivate Software</u></a></li>
+</ul></div>

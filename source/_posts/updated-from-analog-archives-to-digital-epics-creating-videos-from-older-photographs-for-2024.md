@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Analog Archives to Digital Epics  Creating Videos From Older Photographs for 2024\""
-date: 2024-06-23 10:25:57
-updated: 2024-06-24 10:15:32
+date: 2024-06-25T15:20:59.575Z
+updated: 2024-06-26T15:20:59.575Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/63fd599c9be37636882facc86b0d27ee700429a93
 
 ## From Analog Archives to Digital Epics: Creating Videos From Older Photographs
 
-# How to Digitize Your Old Photos and Turn Them into Impressive Videos
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Digitize Your Old Photos and Turn Them into Impressive Videos ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -90,13 +88,13 @@ To start with, you can just launch Filmora on your system and import your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
-![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
+![create timeline for photos](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
-![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+![Edit Digitized Photos](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -104,15 +102,15 @@ The edit option will present tons of additional features that you can implement 
 
 As stated above, you can find a wide range of video editing options to explore in Fimora. On top of the interface, you can switch between audio, transition, effects, titles, and other options. You can just go to any feature here (like effects) to apply it to the video.
 
-![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
+![Add Effects to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
-![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
+![Add Title to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
-![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
+![Add Audio to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
 #### 5\. Export your video
 
@@ -176,3 +174,24 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-the-eraser-guru-expert-tips-for-psx-users-for-2024/"><u>[Updated] The Eraser Guru  Expert Tips for PSX Users for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-supreme-seminar-strategist-summit/"><u>2024 Approved  Supreme Seminar Strategist Summit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unlocking-fun-navigating-ifunny-meme-app/"><u>2024 Approved  Unlocking Fun  Navigating iFunny Meme App</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-room-and-pc-readiness-for-immersive-vr-with-oculus-for-2024/"><u>[New] Room & PC Readiness for Immersive VR with Oculus for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-synesthetic-screens-the-future-of-cinema/"><u>2024 Approved  Synesthetic Screens  The Future of Cinema</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-innovative-ideas-in-immersive-realms-30plus-quotes-to-motivate-you/"><u>2024 Approved  Innovative Ideas in Immersive Realms  30+ Quotes to Motivate You</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-a-step-by-step-approach-to-lut-application-in-ae-for-2024/"><u>[Updated] A Step-by-Step Approach to LUT Application in AE for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-5-leading-resources-to-masterfully-add-text-flair-online/"><u>2024 Approved  5 Leading Resources to Masterfully Add Text Flair Online</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-2024-approved-elevate-your-sound-production-with-these-five-elite-ducking-solutions/"><u>Updated 2024 Approved Elevate Your Sound Production with These Five Elite Ducking Solutions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-your-go-to-list-of-international-adventure-vids/"><u>2024 Approved  Your Go-To List of International Adventure Vids</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-enrich-your-viewing-experience-with-these-leading-top-6-tools-to-download-youtubes-short-videos/"><u>[New] In 2024, Enrich Your Viewing Experience with These Leading Top 6 Tools to Download YouTubes' Short Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-streamlining-revenue-adsense-tips-for-youtubers/"><u>[Updated] Streamlining Revenue  AdSense Tips for YouTubers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-a-comprehensive-explanation-of-changing-your-social-media-cover/"><u>In 2024, A Comprehensive Explanation of Changing Your Social Media Cover</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-essential-fb-video-loader-apps-ranked-5-for-2024/"><u>[Updated] Essential FB Video Loader Apps Ranked #5 for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-webcam-safety-starts-here-the-10-best-shields/"><u>[Updated] In 2024, Webcam Safety Starts Here - The 10 Best Shields</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/ultimate-list-of-hd-webcams-compatible-with-windows-11-pcs/"><u>Ultimate List of HD Webcams Compatible with Windows 11 PCs</u></a></li>
+</ul></div>

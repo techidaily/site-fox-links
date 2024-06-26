@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Hues in Harmony  Applying Color Principles\""
-date: 2024-06-23 22:33:56
-updated: 2024-06-25 12:31:49
+date: 2024-06-25T15:43:40.457Z
+updated: 2024-06-26T15:43:40.457Z
 tags: 
   - screen-recording
   - ai video
@@ -30,9 +30,7 @@ There are many color wheels out there and all require understanding and research
 
 ## The Color Wheel
 
-Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
-
-![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
+Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
@@ -68,11 +66,11 @@ As you can see from all the movie covers above, they all use complementary color
 
 By including this into your thought process when creating videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) you will achieve well balanced and harmonious content for your viewer to enjoy and create better engagement. It's not by chance these things happen though, it's through research and planning that the most iconic scenes and characters are created and this is just one small brick in the foundations of content creation. With practice this will become second nature to you and that is the main goal of this guide.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,3 +93,27 @@ By including this into your thought process when creating videos with [Filmora](
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-merging-melodies-and-memories-online/"><u>[New] Merging Melodies and Memories Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-exploring-the-land-of-virtual-possibilities/"><u>2024 Approved  Exploring the Land of Virtual Possibilities</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-flashback-flair-top-80s-video-tricks-for-a-contemporary-edge/"><u>[New] 2024 Approved  Flashback Flair  Top 80S Video Tricks for a Contemporary Edge</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-elevating-your-video-game-choosing-a-gimbal-for-drones/"><u>[Updated] 2024 Approved  Elevating Your Video Game  Choosing a Gimbal for Drones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/achieve-social-stardom-essential-tips-for-thriving-instagram-unboxings-for-2024/"><u>Achieve Social Stardom  Essential Tips for Thriving Instagram Unboxings for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-understanding-investment-needs-on-youtube/"><u>[Updated] 2024 Approved  Understanding Investment Needs on YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-deep-dive-into-the-capabilities-of-yis-4k-hero/"><u>[New] 2024 Approved  Deep Dive Into the Capabilities of YI's 4K Hero</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-cultivating-a-thriving-audience-for-your-channel/"><u>[Updated] In 2024, Cultivating a Thriving Audience for Your Channel</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-navigating-echo-reduction-techniques-in-audacity-for-2024/"><u>[New] Navigating Echo Reduction Techniques in Audacity for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-the-art-of-filter-and-music-integration-in-windows-10-photos-for-2024/"><u>Mastering the Art of Filter & Music Integration in Windows 10 Photos for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-avs-video-editor-2023-review-a-beginners-guide-to-video-editing-software/"><u>Updated 2024 Approved AVS Video Editor 2023 Review A Beginners Guide to Video Editing Software</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-lava-storm-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Lava Storm 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-cut-trim-and-split-the-best-free-mpeg-video-splitters/"><u>Updated In 2024, Cut, Trim, and Split The Best Free MPEG Video Splitters</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-the-heart-of-vimeo-celebrating-independent-cinema/"><u>2024 Approved  The Heart of Vimeo  Celebrating Independent Cinema</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-premium-designers-stellar-instagram-hlv-page-builders/"><u>[Updated] 2024 Approved  Premium Designers  Stellar Instagram HLV Page Builders</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-streamline-screen-capabilities-building-in-frame-video-experiences-on-sierra/"><u>[Updated] In 2024, Streamline Screen Capabilities  Building In-Frame Video Experiences on Sierra</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-lights-camera-action-a-kids-guide-to-making-movies/"><u>New 2024 Approved Lights, Camera, Action! A Kids Guide to Making Movies</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-m1-chip-unmasked-apples-engineering-feat/"><u>[Updated] M1 Chip Unmasked  Apple's Engineering Feat</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamline-your-seo-strategy-with-the-leading-7-online-youtube-tags-tools/"><u>Streamline Your SEO Strategy with the Leading 7 Online Youtube Tags Tools</u></a></li>
+</ul></div>

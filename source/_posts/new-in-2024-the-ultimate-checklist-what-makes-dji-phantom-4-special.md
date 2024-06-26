@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Ultimate Checklist  What Makes DJI Phantom 4 Special?\""
-date: 2024-06-23 17:17:42
-updated: 2024-06-26 10:21:17
+date: 2024-06-25T15:17:28.360Z
+updated: 2024-06-26T15:17:28.360Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 
 ## The Ultimate Checklist: What Makes DJI Phantom 4 Special?
 
-# DJI Phantom 4 Complete Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# DJI Phantom 4 Complete Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -73,9 +71,7 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 * Max Capacity: 128GB
 * Write speed ≥15MB/s, Class 10 or UHS-1 rating required
 
-#### Design
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
+#### Design ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
 
  The Phantom 4 is similar to the previous version in terms of looks. It is white in color and plastic with sturdy legs to rest on. Two sensors are located on the front and back of the drone and more underneath and to the sides. The camera begins to record on takeoff allowing the drone to find a homing position when ready to return home. The camera hangs below the drone with gimbals that keep it sturdy whatever conditions it is flown in. The arms each have lights so that you can find it easily when in flight.
 
@@ -95,9 +91,7 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 
  The Phantom 4 plus comes with a built in screen which has a display screen of 5.5 inches and 1080p. The remote is able to connect to the drone from up to 4.3 miles away and can stream full HD to the display screen. The remote battery can last for up to 5 hours before it needs to be charged.
 
-#### Camera
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
+#### Camera ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
 
  The Phantom 4 has been upgraded to include a 20 megapixel sensor which has 12 dynamic range stops which allows for more detailed shots even in intense light. This improves the performance from its predecessor significantly. The mechanical shutter stops the distortion and makes for smoother footage. The 4K video at 60 fps capabilities increase the quality overall giving users better results.
 
@@ -129,3 +123,24 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/ultimate-list-of-apples-best-photo-watermark-applications-for-2024/"><u>Ultimate List of Apple's Best Photo Watermark Applications for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-elevate-your-photos-decoding-the-best-canva-tips/"><u>[New] 2024 Approved  Elevate Your Photos  Decoding the Best Canva Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/starting-point-decoding-display-resolution-basics-for-2024/"><u>Starting Point  Decoding Display Resolution Basics for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-editing-excellence-choosing-premium-4k-displays/"><u>[Updated] 2024 Approved  Editing Excellence  Choosing Premium 4K Displays</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-dslrmirrorless-guide-top-ten-gimbal-choices/"><u>2024 Approved  DSLR/Mirrorless Guide  Top Ten Gimbal Choices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-maximize-profits-the-top-13-no-experience-reddit-hacks/"><u>In 2024, Maximize Profits  The Top 13 No-Experience Reddit Hacks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-streamlining-video-production-with-clear-sound-effects/"><u>[New] In 2024, Streamlining Video Production with Clear Sound Effects</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-photoshops-powerful-tool-image-curving-techniques/"><u>[New] Photoshop's Powerful Tool  Image Curving Techniques</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-complete-handbook-of-gopro-time-lapse-photography-excellence/"><u>[Updated] The Complete Handbook of GoPro Time-Lapse Photography Excellence</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-how-to-capture-stellar-tiktoks-with-ease-and-flair/"><u>[New] How to Capture Stellar TikToks with Ease and Flair</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-daily-deeds-for-digital-diaries-tips-on-virtual-journeys/"><u>[New] In 2024, Daily Deeds for Digital Diaries  Tips on Virtual Journeys</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-oppo-reno-8t-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Oppo Reno 8T 5G Devices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-steps-to-saving-fb-status-video-memories/"><u>[Updated] In 2024, Steps to Saving Fb Status Video Memories</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/complete-guide-to-using-zd-softs-recording-tools-for-2024/"><u>Complete Guide to Using ZD Soft's Recording Tools for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-video-posting-pathway-for-twitter-and-tumblr-users/"><u>2024 Approved  Video Posting Pathway for Twitter & Tumblr Users</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Itel S23+ | Dr.fone</u></a></li>
+</ul></div>

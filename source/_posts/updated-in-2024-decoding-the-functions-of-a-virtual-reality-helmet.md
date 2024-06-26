@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Decoding The Functions Of A Virtual Reality Helmet"
-date: 2024-06-23 15:41:46
-updated: 2024-06-24 12:59:41
+date: 2024-06-25T15:17:01.760Z
+updated: 2024-06-26T15:17:01.760Z
 tags: 
   - screen-recording
   - ai video
@@ -44,33 +44,23 @@ thumbnail: https://thmb.techidaily.com/3940086541c823408b7e3893cd4adcfe04714cf8a
 
  Below is a list of the various VR headsets currently available to purchase:
 
-### [HTC Vive]( https://www.vive.com/ )
-
-![ghtc-vive-vr](https://images.wondershare.com/filmora/article-images/htc-vive.png)
+### HTC Vive ![ghtc-vive-vr](https://images.wondershare.com/filmora/article-images/htc-vive.png)
 
  HTC Vive VR headset is made in collaboration with Valve and it plugs directly into PCs and uses Valve’s humongous gaming ecosystem. The headset has over 70 sensors to allow for 360 degrees head tracking and it also boasts of a 90Hz refresh rate responsible for keeping down the latency, which in turn saves the users from suffering motions sickness. This headset is currently available for purchase from $799.
 
-### [Samsung Gear VR](http://www.samsung.com/global/galaxy/gear-vr/  )
-
-![gear-vr](https://images.wondershare.com/filmora/article-images/gear-vr.png)
+### Samsung Gear VR ![gear-vr](https://images.wondershare.com/filmora/article-images/gear-vr.png)
 
  The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
 
-### [Oculus Rift](https://www.oculus.com/rift/  )
-
-![oculus-rift](https://images.wondershare.com/filmora/article-images/oculus-rift.jpg)
+### Oculus Rift ![oculus-rift](https://images.wondershare.com/filmora/article-images/oculus-rift.jpg)
 
  Oculus Rift headset was responsible for the current hysteria in virtual reality. The Rift plugs into the computer’s USB and DVI ports and tracks the movements of the head to provide 3D displays on its stereo screens. The consumer edition of the Rift comes with a 2160 x 1200 resolution as well as a refresh rate of 90Hz. The Rift matches HTC Vive in terms of the refresh rate, but lags behind Sony’s PlayStation VR, though it is a pretty advanced VR headset in terms of the technology used.
 
-### [Sony PlayStation VR](https://www.playstation.com/en-us/explore/playstation-vr/  )
-
-![sony-playstation-vr](https://images.wondershare.com/filmora/article-images/sony-playstation-vr.jpg)
+### Sony PlayStation VR ![sony-playstation-vr](https://images.wondershare.com/filmora/article-images/sony-playstation-vr.jpg)
 
  Sony has finally announced the launch date for the PlayStation VR headset and this is expected to be 13th October 2016\. A new version though, was announced way back in 2015 and it featured a 5-inch LCD display of the original prototype. For the version to be released, it is expected to have a 5.7 inch OLED to allow for low persistence which will in turn translate to less motion blur. The refresh rate for Sony’s PlayStation VR has been ramped up to 120Hz, making it possible to have 120fps gaming.
 
-### [Google Cardboard](https://vr.google.com/cardboard/  )
-
-![google-cardboard-vr](https://images.wondershare.com/filmora/article-images/google-cardboard-vr.jpg)
+### Google Cardboard ![google-cardboard-vr](https://images.wondershare.com/filmora/article-images/google-cardboard-vr.jpg)
 
  Not to be left behind, Google also has a cardboard virtual reality headset. With this headset, it sounds like popping your smartphone in a cardboard container and putting it over your head for a virtual reality experience. Sounds like a joke, but you will be pleasantly surprised to learn that it works like charm and it is also low cost. If anything, the smartphone you have already has all the gyroscopic sensors as well as the positioning devices needed to track your head movements.
 
@@ -100,3 +90,27 @@ Follow @Benjamin Arango
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-the-essential-meme-blueprint-building-impactful-gifs-for-2024/"><u>[New] The Essential Meme Blueprint  Building Impactful GIFs for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-seconds-spent-watching-a-20mb-video/"><u>In 2024, Seconds Spent Watching a 20MB Video</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-the-darkened-skies-with-iphones/"><u>[New] Mastering the Darkened Skies with iPhones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-beginning-a-successful-item-evaluation-video-series-for-2024/"><u>[New] Beginning a Successful Item Evaluation Video Series for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-top-7-must-try-iphone-vr-experiences-you-cant-miss/"><u>2024 Approved  Top 7 Must-Try iPhone VR Experiences You Can’t Miss</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-delving-deep-into-affordable-high-quality-lut-landscapes-for-2024/"><u>[New] Delving Deep Into Affordable High-Quality LUT Landscapes for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-optimizing-your-podcasts-itunes-placement/"><u>2024 Approved  Optimizing Your Podcast's iTunes Placement</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-free-srt-translator-showdown-the-best-eight-in-ranking/"><u>[New] Free SRT Translator Showdown  The Best Eight in Ranking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-pugilism-vs-players-battle-for-supremacy/"><u>In 2024, Pugilism vs Players  Battle for Supremacy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-drone-photographers-stabilization-companion/"><u>[Updated] The Drone Photographer's Stabilization Companion</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-leading-drone-endurance-top-10-long-flight-contenders/"><u>2024 Approved  Leading Drone Endurance  Top 10 Long-Flight Contenders</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-leveraging-screencastifys-advanced-features-for-2024/"><u>[Updated] Leveraging Screencastify's Advanced Features for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-unlocking-the-meaning-behind-tiktoks-pfp-emoji/"><u>[Updated] In 2024, Unlocking the Meaning Behind TikTok's PFP Emoji</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-transform-virtual-engagements-the-10-free-applications-you-need/"><u>[New] 2024 Approved  Transform Virtual Engagements  The 10 Free Applications You Need</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-mastering-video-placement-on-social-media-platforms-for-2024/"><u>[Updated] Mastering Video Placement on Social Media Platforms for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-accelerating-conversion-of-whatsapp-audios-to-mp3-format/"><u>2024 Approved Accelerating Conversion of WhatsApp Audios to MP3 Format</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-react-type-and-converse-your-disco-messaging-playbook/"><u>[New] In 2024, React, Type, and Converse  Your Disco Messaging Playbook</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-enhancing-communication-adding-emojis-to-disco-statuses/"><u>[New] In 2024, Enhancing Communication  Adding Emojis to Disco Statuses</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-insiders-look-at-streaming-content-on-social-media-platforms/"><u>[Updated] Insider's Look at Streaming Content on Social Media Platforms</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Insider Tips for FFXP Functionality for 2024"
-date: 2024-06-23 13:23:17
-updated: 2024-06-24 11:12:19
+date: 2024-06-25T14:59:11.131Z
+updated: 2024-06-26T14:59:11.131Z
 tags: 
   - screen-recording
   - ai video
@@ -22,7 +22,7 @@ Using your PC to watch films while working on something else has recently been p
 
 This feature is an important tool to help you multitask by dragging videos from web pages and navigating to another tab so you can continue working on other tabs while the video keeps playing. In this article, you will understand everything about this feature and how to enable this feature.
 
-![the firefox]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-1.jpg)
+![the firefox](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-1.jpg)
 
 ## Part 1\. How Picture-in-Picture Mode Works
 
@@ -52,16 +52,16 @@ Here's how to activate picture-in-picture video control in Firefox**:**
 2. Click on the 3 horizontal lines in the top-right menu.
 3. Choose the **Options/Settings** from the menu list. This opens the settings mode and its general model.
 
-![choose the options/settings]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-2.jpg)
+![choose the options/settings](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-2.jpg)
 
 1. Scroll down in the General mode to locate the **Browsing** settings option.
 2. Here, you will see a list of browsing settings; click to select the '**Enable picture in picture video controls'**, and check the box.
 
-![a list of browsing settings]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-3.jpg)
+![a list of browsing settings](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-3.jpg)
 
 Following the above procedure, you may now see the Firefox Picture-in-Picture symbol in the video streaming player. Whenever you visit a streaming site, a symbol for pip mode appears as an overlay on the video screen.
 
-![the firefox picture in picture symbol]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-4.jpg)
+![the firefox picture in picture symbol](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-4.jpg)
 
 You can load only a single video using the above guideline. Suppose you want to lunch multiple videos to increase your multitasking experience. In that case, follow the outlined procedure:
 
@@ -71,7 +71,7 @@ You can load only a single video using the above guideline. Suppose you want to 
 4. Repeat the preceding steps on the same page or in a separate tab to open several movies.
 5. Firefox plays the new video above the first. Drag and drop it anywhere to display both.
 
-![the new video above the first]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-5.jpg)
+![the new video above the first](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-5.jpg)
 
 By following these steps, videos appear on the screen at the same time. For all tabs containing open videos, the main Firefox window shows a "play" symbol. Even if you dismiss Firefox, numerous videos will continue to play in other programs or on your desktop.
 
@@ -79,7 +79,7 @@ By following these steps, videos appear on the screen at the same time. For all 
 
 Sometimes, the PiP mode can disturb necessary research or task that needs your full concentration. In this scenario, disabling the Picture-in-Picture mode is a way to get your task done with the optimum attention. If you want to turn off Picture-in-Picture mode and return to the video tab, hover over the video, then click the following icon **“X”**.
 
-![click the following icon]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-6.jpg)
+![click the following icon](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-6.jpg)
 
 ## Part 4\. Other tips about Picture-in-Picture Mode in Firefox
 
@@ -91,7 +91,7 @@ Another mode of having your picture-in-picture mode on Firefox is using the avai
 
 It is also possible to enable and disable the picture-in-picture mode using keyboard shortcuts. To get this done, use the key combination of **'Ctrl + Shift + \]'**. By simultaneously holding these keys, Firefox will launch the relevant video on the web page into a picture-in-picture mode. However, if the feature has been enabled before pressing the key combination, it automatically disables the feature.
 
-![the key combination]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-7.jpg)
+![the key combination](https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-7.jpg)
 
 ## Part 5\. FAQs
 
@@ -138,3 +138,23 @@ Picture-in-Picture is a nice feature that helps you increase productivity while 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/saving-linkedin-videos-made-easy-with-this-6-app-selection-guide-for-2024/"><u>Saving LinkedIn Videos Made Easy with This 6-App Selection Guide for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-win-over-with-these-8-best-free-high-quality-3d-video-apps-for-2024/"><u>[New] Win Over with These 8 Best Free, High-Quality 3D Video Apps for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-is-apple-m1-macbook-air-good-for-video-editing-in-2024/"><u>[Updated] Is Apple M1 MacBook Air Good for Video Editing, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-transform-your-podcast-ideas-into-proficient-scriptwriting-techniques-samples/"><u>[Updated] In 2024, Transform Your Podcast Ideas Into Proficient Scriptwriting (Techniques, Samples)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-laugh-loop-meme-treasures-for-diverse-events/"><u>[Updated] In 2024, Laugh Loop  Meme Treasures for Diverse Events</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-visual-narrative-the-art-of-scriptwriting/"><u>[New] 2024 Approved  Visual Narrative  The Art of Scriptwriting</u></a></li>
+<li><a href="https://fox-links.techidaily.com/androidios-essentials-cutting-edge-video-montage-software-for-2024/"><u>Android/iOS Essentials  Cutting-Edge Video Montage Software for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/5-must-have-mkv-tools-for-macos/"><u>5 Must-Have MKV Tools for macOS</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-the-comprehensive-tutorial-on-detaching-audible-elements-from-video-clips-for-2024/"><u>Updated The Comprehensive Tutorial on Detaching Audible Elements From Video Clips for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-game-on-tips-for-excellent-video-game-clips/"><u>2024 Approved  Game On! Tips for Excellent Video Game Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-art-of-uploading-youtube-shorts-on-devices/"><u>[New] Mastering the Art of Uploading YouTube Shorts on Devices</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/best-mp4-editor-for-mavericks-unlock-professional-editing-features-for-2024/"><u>Best MP4 Editor for Mavericks Unlock Professional Editing Features for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/extensive-analysis-best-cloud-storage-recommendations-for-2024/"><u>Extensive Analysis  Best Cloud Storage Recommendations for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-simplifying-your-life-with-tiktok-mac-and-pc-edition/"><u>[New] 2024 Approved  Simplifying Your Life with TikTok, Mac, and PC Edition</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/m1-dominance-video-editors-rejoice-in-seamless-experience/"><u>M1 Dominance  Video Editors Rejoice in Seamless Experience</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-essential-guide-to-zero-cost-webinars-on-youtube/"><u>In 2024, The Essential Guide to Zero-Cost Webinars on YouTube</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering LUTs  Unlocking Color Grading in AR & VFX\""
-date: 2024-06-24 23:54:21
-updated: 2024-06-25 11:32:23
+date: 2024-06-25T15:32:57.777Z
+updated: 2024-06-26T15:32:57.777Z
 tags: 
   - screen-recording
   - ai video
@@ -64,7 +64,7 @@ The patch graph that renders the color gradation effect looks like this:
 
 Here are the best free LUTs resources for Spark AR:
 
-### 1\. [Frost Zombie (Technical Showcase)](https://we.tl/t-1uj4wJKluG)
+### 1\. Frost Zombie (Technical Showcase)
 
 Client filter pieces occasionally end up on the scrap heap. It was a poor Frost Zombie in this instance. Since this is one of my simpler filters, I felt it was okay to publish the build information. Four objects make up much of the scene: an EyeColor block, a custom canvas segmentation, a face mesh, and an emitter for the breath mist (my personal favorite). To show the layers used in generating the primary zombie texture, I also moved to Substance Painter. This is a demonstration of my methods rather than a step-by-step manual.
 
@@ -111,11 +111,11 @@ Given how beautifully Glitter Rain was received, I believed it would be fitting 
 
 Spark AR is an amazing website for LUTs and color grading. Whether you're a new student or a seasoned pro, Spark AR Studio has all the features and capabilities you need to become a good video editor. You can download free LUTs from Spark AR and apply them to your videos. The article guides on how to use LUTs in Spark AR and how to download free LUTs. So, Spark AR is one of the best online websites for LUTs I have tried.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,3 +138,24 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-nostalgia-spin-off-the-goofy-movie-on-tape-for-2024/"><u>[Updated] Nostalgia Spin-Off  The Goofy Movie on Tape for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-ranking-the-best-free-passport-picture-services-worldwide/"><u>[Updated] In 2024, Ranking the Best Free Passport Picture Services Worldwide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-screensphere-comprehensively-global-plus-locally-connected/"><u>[Updated] In 2024, ScreenSphere  Comprehensively Global + Locally Connected</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-apps-upgrade-your-mobile-movies-instantly-for-2024/"><u>[Updated] Top Apps  Upgrade Your Mobile Movies Instantly for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-art-of-gentle-audio-dampening-on-lumafusion-platforms/"><u>[New] 2024 Approved  The Art of Gentle Audio Dampening on Lumafusion Platforms</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mediacutmaster-review-in-depth-evaluation-for-2024/"><u>[Updated] MediaCutMaster Review – In-Depth Evaluation for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/jest-sculptor-undead-funnybots/"><u>Jest Sculptor  Undead Funnybots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-probing-the-potential-of-samsungs-photo-editor/"><u>[New] 2024 Approved  Probing the Potential of Samsung's Photo Editor</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlock-your-content-potential-best-ideas-for-youtube-themes/"><u>In 2024, Unlock Your Content Potential  Best Ideas for YouTube Themes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-how-can-i-use-twitter-archive/"><u>2024 Approved  How Can I Use Twitter Archive?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-android-sound-recording-without-root-simple-guide/"><u>2024 Approved  Android Sound Recording Without Root [Simple Guide]</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-on-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication On Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-mouthwateringmatters-leading-food-vloggers/"><u>[Updated] In 2024, MouthwateringMatters  Leading Food Vloggers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-crafting-a-memorable-channel-presence-with-imagery/"><u>[New] Crafting a Memorable Channel Presence with Imagery</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-infallible-way-to-forbid-youtubes-snappy-videos/"><u>2024 Approved  Infallible Way to Forbid YouTube's Snappy Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-cutting-edge-game-recording-for-league-of-legends-lol-players/"><u>[New] Cutting-Edge Game Recording for League of Legends LoL Players</u></a></li>
+</ul></div>

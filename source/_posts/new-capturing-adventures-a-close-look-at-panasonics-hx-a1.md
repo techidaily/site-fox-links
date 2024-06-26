@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Capturing Adventures  A Close Look at Panasonic's HX-A1\""
-date: 2024-06-20 10:13:43
-updated: 2024-06-23 10:22:37
+date: 2024-06-25T15:53:52.399Z
+updated: 2024-06-26T15:53:52.399Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/f5eeb9ebfa2de64a3d4ee3942e718c9f14502e6b8
 
 ## Capturing Adventures: A Close Look at Panasonic's HX-A1
 
-# Panasonic HX-A1 Wearable Action Camera Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Panasonic HX-A1 Wearable Action Camera Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -32,9 +30,7 @@ thumbnail: https://thmb.techidaily.com/f5eeb9ebfa2de64a3d4ee3942e718c9f14502e6b8
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
-## Design and Usability
-
-![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
+## Design and Usability ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
@@ -96,9 +92,7 @@ thumbnail: https://thmb.techidaily.com/f5eeb9ebfa2de64a3d4ee3942e718c9f14502e6b8
 
 #### Wind jammer and strap adapter
 
- Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all!
-
-[Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
+ Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all ![Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Features
 
@@ -158,3 +152,22 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-detailed-walkthrough-implementing-microsoft-azure-speech-services/"><u>[Updated] In 2024, Detailed Walkthrough  Implementing Microsoft Azure Speech Services</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-expertly-edited-beginnings-anywhere/"><u>[New] In 2024, Expertly Edited Beginnings, Anywhere</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-virtual-reality-development-tools-gamers-for-2024/"><u>[Updated] Top Virtual Reality Development Tools Gamers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unveiling-the-secrets-how-to-efficiently-record-internet-radio/"><u>[New] 2024 Approved  Unveiling the Secrets  How To Efficiently Record Internet Radio</u></a></li>
+<li><a href="https://fox-links.techidaily.com/jest-sculptor-undead-funnybots/"><u>Jest Sculptor  Undead Funnybots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-sound-top-10-microphones/"><u>[New] Mastering Sound  Top 10 Microphones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-10-best-drones-for-industrial-lifting-tasks-for-2024/"><u>[New] The 10 Best Drones for Industrial Lifting Tasks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cutting-edge-techniques-for-incorporating-soundtracks-in-youtube-creations-for-2024/"><u>[New] Cutting-Edge Techniques for Incorporating Soundtracks in YouTube Creations for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-fostering-friendship-through-conversations-with-viewers/"><u>[New] Fostering Friendship Through Conversations With Viewers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-cutting-edge-choices-best-6-mac-video-grabber-apps/"><u>[Updated] In 2024, Cutting-Edge Choices  Best 6 Mac Video Grabber Apps</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-essential-guide-for-beginners-in-final-cut-pro/"><u>[New] The Ultimate Essential Guide for Beginners in Final Cut Pro</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/secrets-unveiled-successful-podcast-on-apple-store-for-2024/"><u>Secrets Unveiled  Successful Podcast on Apple Store for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/master-the-art-of-adding-snapchat-to-your-mac-os-for-2024/"><u>Master the Art of Adding Snapchat to Your Mac OS for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-the-ultimate-list-top-10-free-green-screen-apps-for-android-and-ios/"><u>Updated In 2024, The Ultimate List Top 10 Free Green Screen Apps for Android & iOS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-elevate-engagement-10-effective-facebook-video-tips/"><u>[New] Elevate Engagement  10 Effective Facebook Video Tips</u></a></li>
+</ul></div>

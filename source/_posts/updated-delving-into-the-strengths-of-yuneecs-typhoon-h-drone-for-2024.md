@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Delving Into the Strengths of Yuneec's Typhoon H Drone for 2024"
-date: 2024-06-23 11:28:10
-updated: 2024-06-25 11:10:24
+date: 2024-06-25T15:05:31.476Z
+updated: 2024-06-26T15:05:31.476Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 
 ## Delving Into the Strengths of Yuneec's Typhoon H Drone
 
-# Yuneec Typhoon H Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Yuneec Typhoon H Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -81,15 +79,11 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 
  Typhoon H is equipped with a built in type obstacle avoidance sensor that can find all distractions easily around and keeps your drone safe from crashes. It works with sonar technology that means your device can easily detect all the undesired objects on the way even in low light conditions or in darkness. Note that this sensor is attached at front portion of your drone so it can serve with the detection ability to front facing objects only, if anything comes from sides then your drone will not be able to stay safe. But still, at least you have a new feature and it works amazingly.
 
-#### 6\.  Controller
-
-![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
+#### 6\.  Controller ![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
 
  The controller part is really interesting with few additional features as compared to its predecessors. You will be able to access button and knobs but one new addition to controller is in form of its built in type 7 inch touchscreen that can display the telemetry data on continuous basis. Here is good news for professionals; it is possible to connect this drone to more than one controller at a time so that few highly customized shoots can be gathered. Filmmakers love to access these advanced features.
 
-#### 7\.  Camera
-
-![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
+#### 7\.  Camera ![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
 
  The drone camera can provide 4K recording facility whereas users can also switch between 2.5K and 1080p level as per need. The FPS ratings can be shifted for better results. Results can be enhanced with its ½.3” CMOS sensor and the developers also claim to serve with video transmission range of about 400 meters. The 360 degree gimbal is also available with this drone and its results are professional looking with advantage of sonar sensor.
 
@@ -121,3 +115,23 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/in-2024-choreographed-ice-winter-olympics-highlights/"><u>In 2024, Choreographed Ice  Winter Olympics Highlights</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-garageband-guide-gently-dissolve-decibels/"><u>2024 Approved  Garageband Guide  Gently Dissolve Decibels</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-canva-guide-swiftly-erasing-image-borders-for-2024/"><u>[New] Canva Guide  Swiftly Erasing Image Borders for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-art-of-high-quality-sound-recording-via-audacity-for-2024/"><u>[New] The Art of High-Quality Sound Recording via Audacity for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-adventure-essentials-top-10-gopro-protectors-reviewed/"><u>[New] In 2024, Adventure Essentials - Top 10 GoPro Protectors Reviewed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-android-gaming-delight-with-kinemaster-app-explored/"><u>[New] In 2024, Android Gaming Delight with KineMaster App Explored</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-streamlight-solutions-best-for-video-illumination/"><u>2024 Approved  Streamlight Solutions  Best for Video Illumination</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-innovative-pathways-broadcasting-facebook-videos-via-whatsapp/"><u>[New] 2024 Approved  Innovative Pathways  Broadcasting Facebook Videos via WhatsApp</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-xiaomi-13t-pro-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Xiaomi 13T Pro? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-maximize-your-reach-the-2024-tiktok-aspect-ratio-blueprint/"><u>New Maximize Your Reach The 2024 TikTok Aspect Ratio Blueprint</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/the-ultimate-list-of-mp4-video-tagging-applications-for-2024/"><u>The Ultimate List of MP4 Video Tagging Applications for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-master-your-livestream-essential-tips-for-top-9-filters/"><u>[New] Master Your Livestream  Essential Tips for Top 9 Filters</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-reigning-reddit-stars-10-all-time-favorites/"><u>2024 Approved  Reigning Reddit Stars  10 All-Time Favorites</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/rapid-reactivities-leading-fast-paced-titles-on-pc-and-tablet/"><u>Rapid Reactivities  Leading Fast-Paced Titles on PC & Tablet</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-nokia-g22-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Nokia G22?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Exploring the Boundaries with Syma X8C Flight\""
-date: 2024-06-20 22:21:46
-updated: 2024-06-23 10:20:40
+date: 2024-06-25T15:42:29.635Z
+updated: 2024-06-26T15:42:29.635Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/49570c4e8b47ea82b7ecf56be528fbefc2ec46d86
 
 ## Exploring the Boundaries with Syma X8C Flight
 
-# Syma X8C Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Syma X8C Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -69,9 +67,7 @@ thumbnail: https://thmb.techidaily.com/49570c4e8b47ea82b7ecf56be528fbefc2ec46d86
 | Charging Time        | 200 Minutes            | Control Distance        | 100 meter approx.                                     |
 | Transmitter Power    | 4 x 1.5 V AA Batteries | Camera                  | 2 MP                                                  |
 
-#### 2\.  Design
-
-![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
+#### 2\.  Design ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
@@ -85,15 +81,11 @@ thumbnail: https://thmb.techidaily.com/49570c4e8b47ea82b7ecf56be528fbefc2ec46d86
 
  With the headless mode, Syma X8C appears similar to X5C design with little bigger structure. This drone unit is extremely stable with easy to fly options that appear much easier to beginners too. The best part is that this drone responds perfectly to transmitter with very small delay. The performance is much better as compared to many models of this price range. If we talk about the wind stability then larger size and heavier design make this drone much stable. It will rarely face an undesired flip due to unfavourable weather conditions so you need not to struggle more to keep it tuned to its normal position. Those who want a drone for aerial photography will also e able to take advantage from Syma X8C design.
 
-#### 5\.  Controller/Transmitter
-
-![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
+#### 5\.  Controller/Transmitter ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
-#### 6\.  Camera
-
-![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
+#### 6\.  Camera ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
@@ -125,3 +117,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-filmmaking-faceoff-hero-session-x-or-polaroid-cube/"><u>[Updated] 2024 Approved  Filmmaking Faceoff  Hero Session X or Polaroid Cube?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/navigating-audacitys-volume-dissipation-features-for-2024/"><u>Navigating Audacity's Volume Dissipation Features for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-expertly-edited-entries-anywhere-at-the-tap-of-a-finger-in-2e23-for-2024/"><u>[Updated] Expertly Edited Entries, Anywhere at the Tap of a Finger in 2E23 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-transforming-your-shots-with-ease-in-photoshop-for-2024/"><u>[Updated] Transforming Your Shots with Ease in Photoshop for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-image-enhancement-made-simple-how-to-inject-text-into-pictures-on-windowsmacos/"><u>[Updated] In 2024, Image Enhancement Made Simple  How to Inject Text Into Pictures on Windows/MacOS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-craft-movies-on-windows-11-using-the-free-movie-maker-app/"><u>[Updated] Craft Movies on Windows 11 Using the Free Movie Maker App</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-enhancing-moments-tips-for-creating-captivating-slow-motion-on-android/"><u>[Updated] 2024 Approved  Enhancing Moments  Tips for Creating Captivating Slow Motion on Android</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-mastering-motion-blur-aadobe-photoshop-tutorial/"><u>2024 Approved  Mastering Motion Blur  AAdobe Photoshop Tutorial</u></a></li>
+<li><a href="https://fox-links.techidaily.com/from-realism-to-fantasy-how-green-screen-paints-new-worlds-for-2024/"><u>From Realism to Fantasy  How Green Screen Paints New Worlds for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-fiscally-friendly-celestial-saving-service-for-files-for-2024/"><u>[Updated] The Fiscally Friendly Celestial Saving Service for Files for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-heart-of-storytelling-engaging-dialogue-in-scripts/"><u>2024 Approved  The Heart of Storytelling  Engaging Dialogue in Scripts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mediamatters-size-your-content-for-stellar-instagram/"><u>[New] In 2024, MediaMatters  Size Your Content for Stellar Instagram</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-oppo-k11x-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Oppo K11x to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-7-strategies-for-delicious-food-vids/"><u>2024 Approved  Top 7 Strategies for Delicious Food Vids</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-content-creation-battleground-choosing-between-vimeo-youtube-dailymotion/"><u>[New] Content Creation Battleground  Choosing Between Vimeo, YouTube, DailyMotion</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-8-best-instagram-scheduler-for-android-and-iphone/"><u>[Updated] 2024 Approved  8 Best Instagram Scheduler for Android and iPhone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-simple-guide-to-record-unrooted-android-sounds/"><u>[Updated] Simple Guide to Record Unrooted Android Sounds</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unleashing-androids-audio-potential-mastering-the-art-of-ringtones-and-sounds-for-2024/"><u>Unleashing Android's Audio Potential  Mastering the Art of Ringtones & Sounds for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-vivo-s17withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Vivo S17with/without a PC</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-quicksnapper-simple-recording-on-windows-10/"><u>[Updated] In 2024, QuickSnapper  Simple Recording on Windows 10</u></a></li>
+</ul></div>

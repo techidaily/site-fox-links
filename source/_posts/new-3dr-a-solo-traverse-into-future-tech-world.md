@@ -1,7 +1,7 @@
 ---
 title: "\"[New] '3DR'  A Solo Traverse Into Future Tech World\""
-date: 2024-06-22 21:27:43
-updated: 2024-06-24 10:43:28
+date: 2024-06-25T15:05:11.513Z
+updated: 2024-06-26T15:05:11.513Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
 
 ## '3DR': A Solo Traverse Into Future Tech World
 
-# 3DR Solo Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# 3DR Solo Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -63,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
 | Camera               | GoPro 3+/4                                  | Battery Life          | 20/22 minutes (5200 mAh, Li-ion) |
 | Video Resolution     | 4K/60P (as per GoPro Camera Specifications) | Rotors                | 4 replaceable (10 inch diameter) |
 
-#### 2\.  Design
-
-![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
+#### 2\.  Design ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
@@ -79,9 +75,7 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
 
  This device possesses very simple and intuitive controls for flight with automated landing and takeoff feature. When you are ready for the flight, switch your drone and wait for one minute so that it can activate the GPS system and then press fly button. It will immediately move in the air and hover at about 4 feel height from ground. There are numerous flight modes over which users can easily switch from application: four video modes and five advanced flight modes. If you are a beginner in the world of drones then you may probably love its autonomous flying feature. In this mode, drone takes all flight decisions itself instead of depending on application based controls.
 
-#### 5\. Control Range
-
-![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
+#### 5\. Control Range ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
@@ -119,3 +113,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-seamlessly-enhancing-content-learn-video-filter-techniques-on-pcmobile/"><u>[New] Seamlessly Enhancing Content  Learn Video Filter Techniques on PC/Mobile</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-where-to-hunt-for-excellent-instagram-ringtones-and-perfect-alarm-crafts/"><u>2024 Approved  Where to Hunt for Excellent Instagram Ringtones and Perfect Alarm Crafts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-50plus-best-practices-in-video-text-design/"><u>2024 Approved  50+ Best Practices in Video Text Design</u></a></li>
+<li><a href="https://fox-links.techidaily.com/zooming-in-smoothly-youtube-video-upgrades/"><u>Zooming in Smoothly  YouTube Video Upgrades</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-preserving-the-past-in-motion-photo-to-video-transition/"><u>[New] 2024 Approved  Preserving the Past in Motion  Photo to Video Transition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-best-music-players-software-for-windows/"><u>[New] Best Music Players Software for Windows</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-complete-breakdown-dji-inspire-1-explored/"><u>[New] 2024 Approved  Complete Breakdown  DJI Inspire 1 Explored</u></a></li>
+<li><a href="https://fox-links.techidaily.com/key-steps-to-accurate-and-effective-market-research-analysis-for-2024/"><u>Key Steps to Accurate and Effective Market Research Analysis for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-streamlining-screens-for-large-scale-youtubers/"><u>[New] 2024 Approved  Streamlining Screens for Large-Scale YouTubers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-virtual-reality-wisdom-30plus-metaverse-quotes/"><u>[Updated] Virtual Reality Wisdom  30+ Metaverse Quotes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-motion-blur-aadobe-photoshop-tutorial/"><u>In 2024, Mastering Motion Blur  AAdobe Photoshop Tutorial</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-pioneering-screen-capture-methods-with-adobe-captivity-unveiled-for-2024/"><u>[Updated] Pioneering Screen Capture Methods with Adobe Captivity Unveiled for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/from-antagonism-to-action-a-clear-framework-for-handling-virtual-harassment-on-discord/"><u>From Antagonism to Action  A Clear Framework for Handling Virtual Harassment on Discord</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-seamless-audio-visual-integration-top-techniques-for-auto-synchronization-for-2024/"><u>Updated Seamless Audio-Visual Integration Top Techniques for Auto-Synchronization for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-elevating-minecraft-performance-with-increased-memory-allocation-for-2024/"><u>[Updated] Elevating Minecraft Performance with Increased Memory Allocation for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-gif-making-software-the-ultimate-guide-for-2024/"><u>[New] Essential GIF Making Software  The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-se-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone SE?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-download-unlimited-mcb-visual-elements/"><u>2024 Approved  Download Unlimited MCB Visual Elements</u></a></li>
+<li><a href="https://howto.techidaily.com/google-pixel-7a-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Pixel 7a Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+</ul></div>

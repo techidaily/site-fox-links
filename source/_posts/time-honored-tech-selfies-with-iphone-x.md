@@ -1,7 +1,7 @@
 ---
 title: "\"Time-Honored Tech  Selfies with iPhone X\""
-date: 2024-06-21 11:14:25
-updated: 2024-06-24 10:13:17
+date: 2024-06-25T15:12:48.331Z
+updated: 2024-06-26T15:12:48.331Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/c9d63107d989d631581c5dbe79eb35fbfb926a1d5
 
 ## Time-Honored Tech: Selfies with iPhone X
 
-# How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -63,43 +61,35 @@ If there is not enough light or if you are too far away from the camera, the app
 
 ### For iPhone 8, 7 or older iPhones users
 
-#### [FabFocus](https://itunes.apple.com/us/app/fabfocus-portraits-with-depth-and-bokeh/id1080434313?mt=8)
+#### FabFocus
 
 **Price:** $3.99
 
-**Compatible with:** iOS 8.0 or later
-
-![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
+**Compatible with:** iOS 8.0 or later ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
-#### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
+#### Tadaa SLR
 
 **Price:** $3.99
 
-**Compatible with:** iOS 8.0 or later
-
-![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
+**Compatible with:** iOS 8.0 or later ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
-#### [Bokeh Lens](https://itunes.apple.com/us/app/bokeh-lens/id587849880?mt=8)
+#### Bokeh Lens
 
 **Price:** $0.99
 
-**Compatible with:** iOS 8.0 or later
-
-![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
+**Compatible with:** iOS 8.0 or later ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
-#### [Defocus](https://itunes.apple.com/us/app/defocus/id1048310180?mt=8)
+#### Defocus
 
 **Price:** $1.99
 
-**Compatible with:** iOS 8.0 or later
-
-![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
+**Compatible with:** iOS 8.0 or later ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
@@ -127,3 +117,22 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-stepwise-approach-to-downloading-movie-maker-6/"><u>[New] In 2024, Stepwise Approach to Downloading Movie Maker 6</u></a></li>
+<li><a href="https://fox-links.techidaily.com/blurry-looks-simple-ways-to-hide-identities-in-pictures/"><u>Blurry Looks  Simple Ways to Hide Identities in Pictures</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-roadmap-to-crafting-memorable-tiktok-videos-for-2024/"><u>The Ultimate Roadmap to Crafting Memorable TikTok Videos for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-dreamshot-dslr-selection-the-leading-6-in-4k-quality/"><u>[New] Dreamshot DSLR Selection  The Leading 6 in 4K Quality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-conquer-youtubes-default-snippet-feature/"><u>In 2024, Conquer YouTube's Default Snippet Feature</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-content-calendar-for-successful-instagram-filmmaking/"><u>[Updated] In 2024, Content Calendar for Successful Instagram Filmmaking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ranking-the-leading-free-srt-translators-online-for-2024/"><u>Ranking the Leading Free SRT Translators Online for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-how-to-turn-onoff-motion-blur-in-fortnite-is-it-good-for-fortnite/"><u>Updated How to Turn On/Off Motion Blur in Fortnite? Is It Good for Fortnite?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-oneplus-12r-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlocking-your-potential-for-higher-instagram-video-visibility-for-2024/"><u>[New] Unlocking Your Potential for Higher Instagram Video Visibility for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-nubia-z50s-pro-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Nubia Z50S Pro Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-premier-general-knowledge-trivia-hubs/"><u>2024 Approved  Premier General Knowledge Trivia Hubs</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-precision-editing-in-photopea-sculpting-cleaner-visual-space/"><u>[Updated] Precision Editing in Photopea  Sculpting Cleaner Visual Space</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-ai-translation-online/"><u>Updated AI Translation | Online</u></a></li>
+</ul></div>

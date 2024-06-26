@@ -1,7 +1,7 @@
 ---
 title: "[New] Notable Top 5 Superlight Action Camera Picks for 2024"
-date: 2024-06-23 18:36:46
-updated: 2024-06-25 12:25:12
+date: 2024-06-25T15:35:13.576Z
+updated: 2024-06-26T15:35:13.576Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/d8236c8823bf190018d4a9a0035905199e51992e3
 
 ## Notable Top 5 Superlight Action Camera Picks
 
-# Top 5 Best Lightweight Action Cameras For Backpacking Or Hiking
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 5 Best Lightweight Action Cameras For Backpacking Or Hiking ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -43,8 +41,7 @@ thumbnail: https://thmb.techidaily.com/d8236c8823bf190018d4a9a0035905199e51992e3
 
 #### 1\. GoPro Hero5 Black ($399)
 
-[Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
 
  It is the most rugged camera unit that makes users always ready for adventure; you can easily carry this camera for underwater adventure, on rough terrains, to skies on in order tough conditions like snow, dirt, sand and concrete etc. Hero Black is designed to serve best recording with single button operation and once you have finished your video then touch screen offers you immediate playback along with footage editing option. Some of the incredible features of Hero5 Black are:
 
@@ -65,21 +62,15 @@ thumbnail: https://thmb.techidaily.com/d8236c8823bf190018d4a9a0035905199e51992e3
 
  This camera unit possess GPS and WiFi facility along with water resistant body so that you can mount it anywhere as per need. It can record videos with 1080p resolution and for images you will have 16MP clarity. Maximum storage offered by microSD card is 64GB whereas Remote + ANT compatibility makes it much easier to monitor and control. The water resistant design along with flexible mounting options make it more suitable for hiking needs. With advanced digital image stabilization feature you can mount this camera on vehicle, bicycle, quadcopter and any other moving object. Automatic noise correction filters are activated on lens surface to create breathtaking results for each footage.
 
-#### 3\. [Olympus TG-Tracker](https://tools.techidaily.com/wondershare/filmora/download/) ($299.99)
+#### 3\. Olympus TG-Tracker ![Backpacking/Hiking Cameras - Olympus TG-Tracker](https://images.wondershare.com/filmora/article-images/olympus-tg-tracker.jpg)
 
-![Backpacking/Hiking Cameras - Olympus TG-Tracker](https://images.wondershare.com/filmora/article-images/olympus-tg-tracker.jpg)
-
-[Check at Amazon](https://www.amazon.com/gp/product/B01ERLMTSI/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01ERLMTSI&linkId=34d5c0e389cef67e7a6b9e5d754a12fc
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B01ERLMTSI/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01ERLMTSI&linkId=34d5c0e389cef67e7a6b9e5d754a12fc)
 
  The TG tracker camera is always ready to capture all your action sports activities with UHD 4K resolution at 30fps. You need not to buy additional protective housing for this camera as its body is already tough with shockproof and water proof design up to 98.4’. TG-Tracker can resist temperature ranges as low as up to 14 degree F and its dust proof design allows you to carry it to the risky mountains. The ultra wide lens offers total coverage of 204 degrees whereas users will be able to take benefits from so many inbuilt sensors like barometer, thermometer, altitude and location sensor etc. You can control this device from mobile phones directly using TG Track app.
 
-#### 4\. [Sony FDR-X1000V](https://tools.techidaily.com/wondershare/filmora/download/) ($399.99)
+#### 4\. Sony FDR-X1000V ![Backpacking/Hiking Cameras - Sony FDR x1000v](https://images.wondershare.com/filmora/article-images/sony-fdr-1000.jpg)
 
-![Backpacking/Hiking Cameras - Sony FDR x1000v](https://images.wondershare.com/filmora/article-images/sony-fdr-1000.jpg)
-
-[Check at Amazon](https://www.amazon.com/gp/product/B00R1COCT0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00R1COCT0&linkId=eb0771cffd16191ae77ad0a5c6df67b1
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B00R1COCT0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00R1COCT0&linkId=eb0771cffd16191ae77ad0a5c6df67b1)
 
  This 4K action cam can be worn on wrist while climbing mountains and it is also compatible with so many commonly available mounting accessories. You can easily place it over tripod, static location, vehicles or on bikes. The Wi-Fi connectivity and RM-LVR2 app provides remote control feature to this camera. 4K recording can be done at 30fps with advanced bit rate of 100BMbps whereas for 24p you need to follow 60Mbps bit rate. Sony has developed this product with improved steady image stabilization feature with 170 degree ultra wide lens makes everything easy to cover.
 
@@ -87,8 +78,7 @@ thumbnail: https://thmb.techidaily.com/d8236c8823bf190018d4a9a0035905199e51992e3
 
 ![Backpacking/Hiking Cameras - Ricoh WG M-2](https://images.wondershare.com/filmora/article-images/ricoh-wg-m2.jpg)
 
-[Check at Amazon](https://www.amazon.com/gp/product/B01C395NWU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C395NWU&linkId=6090fffac05d4c82ef9e790492fd38f8
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B01C395NWU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C395NWU&linkId=6090fffac05d4c82ef9e790492fd38f8)
 
  This camera is equipped with ultra wide lenses of 204 degree coverage capacity and its compact and attractive construction make it action ready device. The 4K resolution can be obtained with 30 frames per second rate and you can even record at rough locations with this shock resistant camera. It can go under water up to 65’ and can stay there up to two hours without any trouble whereas freezing temperature is adjusted to its maximum value of 14 degrees.
 
@@ -116,3 +106,24 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-spark-interest-with-animated-text-a-guide-for-instagram-storytellers/"><u>[New] In 2024, Spark Interest with Animated Text  A Guide for Instagram Storytellers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-a-complete-overview-of-polarr-photo-editor/"><u>[New] 2024 Approved  A Complete Overview of Polarr Photo Editor</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-launching-laughs-a-beginners-blueprint-for-memes-on-9gag/"><u>[Updated] Launching Laughs  A Beginner's Blueprint for Memes on 9GAG</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-image-edition-excellence-tutorial-insights/"><u>[New] 2024 Approved  Image Edition Excellence  Tutorial Insights</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ultimate-guide-to-iphones-video-length-tailoring/"><u>Ultimate Guide to iPhone's Video Length Tailoring</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-pioneering-virtual-realms-equip-yourself-with-these-tech/"><u>[Updated] Pioneering Virtual Realms - Equip Yourself With These Tech</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-enhance-accessibility-with-top-free-text-conversion-software-for-macs/"><u>In 2024, Enhance Accessibility with Top Free Text Conversion Software for Macs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/isnapmaker-ios-and-macos-media-synthesis-tool/"><u>ISnapMaker  IOS & macOS Media Synthesis Tool</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-clear-path-for-your-instagram-videos-now/"><u>[Updated] 2024 Approved  Clear Path for Your Instagram Videos Now</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-3d-text-in-adobe-photoshop/"><u>[Updated] Mastering 3D Text in Adobe Photoshop</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-seamless-switching-between-screens-with-chromes-pip-for-2024/"><u>[Updated] Seamless Switching Between Screens with Chrome's PIP for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-convert-any-instagram-video-in-minutes-best-free-tools-windowsmac-for-2024/"><u>[New] Convert Any Instagram Video in Minutes  Best Free Tools (Windows/Mac) for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-speech-to-text-made-easy-top-mac-apps-you-can-use-right-now-free-and-no-installation-required/"><u>Updated Speech to Text Made Easy Top Mac Apps You Can Use Right Now (Free & No Installation Required)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cut-trim-and-enhance-youtube-editing-tips-for-the-rookie/"><u>[New] 2024 Approved  Cut, Trim & Enhance  YouTube Editing Tips for the Rookie</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-discover-the-ultimate-luts-for-wondershare-filmora-uncover-the-answer/"><u>New In 2024, Discover the Ultimate LUTs for Wondershare Filmora Uncover the Answer</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-uncover-8-effective-youtube-promotion-methods/"><u>In 2024, Uncover 8 Effective YouTube Promotion Methods</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Aerial Visionaries Revealed  Detailed DJI Phantom 4 Study\""
-date: 2024-06-22 17:47:34
-updated: 2024-06-23 10:10:36
+date: 2024-06-25T15:13:42.501Z
+updated: 2024-06-26T15:13:42.501Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
 ## Aerial Visionaries Revealed: Detailed DJI Phantom 4 Study
 
-# DJI Phantom 4 Complete Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# DJI Phantom 4 Complete Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -73,9 +71,7 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 * Max Capacity: 128GB
 * Write speed ≥15MB/s, Class 10 or UHS-1 rating required
 
-#### Design
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
+#### Design ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
 
  The Phantom 4 is similar to the previous version in terms of looks. It is white in color and plastic with sturdy legs to rest on. Two sensors are located on the front and back of the drone and more underneath and to the sides. The camera begins to record on takeoff allowing the drone to find a homing position when ready to return home. The camera hangs below the drone with gimbals that keep it sturdy whatever conditions it is flown in. The arms each have lights so that you can find it easily when in flight.
 
@@ -95,9 +91,7 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
  The Phantom 4 plus comes with a built in screen which has a display screen of 5.5 inches and 1080p. The remote is able to connect to the drone from up to 4.3 miles away and can stream full HD to the display screen. The remote battery can last for up to 5 hours before it needs to be charged.
 
-#### Camera
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
+#### Camera ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
 
  The Phantom 4 has been upgraded to include a 20 megapixel sensor which has 12 dynamic range stops which allows for more detailed shots even in intense light. This improves the performance from its predecessor significantly. The mechanical shutter stops the distortion and makes for smoother footage. The 4K video at 60 fps capabilities increase the quality overall giving users better results.
 
@@ -129,3 +123,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-secrets-of-effortless-online-video-downloading-on-pinterest/"><u>[Updated] 2024 Approved  Secrets of Effortless Online Video Downloading on Pinterest</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-dynamic-image-narration-toolbox/"><u>[Updated] In 2024, Dynamic Image Narration Toolbox</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-detailed-walkthrough-implementing-microsoft-azure-speech-services/"><u>[Updated] In 2024, Detailed Walkthrough  Implementing Microsoft Azure Speech Services</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-exploring-the-world-of-digital-color-grading/"><u>[Updated] In 2024, Exploring the World of Digital Color Grading</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-expert-advice-youtube-to-mpeg-compression-guide/"><u>In 2024, Expert Advice  YouTube to MPEG Compression Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-quick-chuckles-on-iphone/"><u>In 2024, Quick Chuckles on iPhone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unleashing-creativity-with-tiktok-video-tricks-for-2024/"><u>[Updated] Unleashing Creativity with TikTok Video Tricks for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-metaverse-laughs-crafting-funny-virtual-memes/"><u>[New] Metaverse Laughs  Crafting Funny Virtual Memes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-breaking-boundaries-top-6-artists-leading-nft-frontier/"><u>2024 Approved  Breaking Boundaries  Top 6 Artists Leading NFT Frontier</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-master-the-art-of-technological-advancement-with-this-guide/"><u>[Updated] In 2024, Master the Art of Technological Advancement with This Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-audience-growth-secrets-top-50plus-tiktok-hashtags/"><u>2024 Approved  Audience Growth Secrets  Top 50+ TikTok HashTags</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-how-to-use-twixtor-effect-to-add-slow-motion-effect-to-video/"><u>Updated In 2024, How to Use Twixtor Effect to Add Slow-Motion Effect to Video?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-the-art-of-cinematic-content-on-instagram/"><u>[Updated] In 2024, Mastering the Art of Cinematic Content on Instagram</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-list-of-video-editors-with-audio-features/"><u>The Ultimate List of Video Editors with Audio Features</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-the-complete-zoomers-guide-achieving-exceptional-video-and-audio-recordings-on-zoom/"><u>[Updated] 2024 Approved  The Complete Zoomer's Guide  Achieving Exceptional Video & Audio Recordings on Zoom</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-top-cartoonizer-apps-transform-your-photos-on-mobile-devices-for-2024/"><u>Updated Top Cartoonizer Apps Transform Your Photos on Mobile Devices for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-elevate-your-gaming-by-recording-ps3-games/"><u>[New] In 2024, Elevate Your Gaming by Recording PS3 Games</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/aesir-rebellion-skies-of-valhalla/"><u>Aesir Rebellion  Skies of Valhalla</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-step-by-step-guide-uploading-imovie-videos-to-vimeo-platform/"><u>[New] 2024 Approved  Step-by-Step Guide  Uploading iMovie Videos to Vimeo Platform</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-make-reaction-videos-like-a-pro-simplified-with-filmoras-user-friendly-tools/"><u>New Make Reaction Videos Like a Pro Simplified with Filmoras User-Friendly Tools</u></a></li>
+</ul></div>

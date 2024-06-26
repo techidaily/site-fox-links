@@ -1,7 +1,7 @@
 ---
 title: "\"Aerial Artistry in Motion  Examining GoPro Karma Performance for 2024\""
-date: 2024-06-23 21:27:12
-updated: 2024-06-24 12:15:22
+date: 2024-06-25T15:27:43.529Z
+updated: 2024-06-26T15:27:43.529Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/a1248d9b4e7ad7b3aedb40cb2befdc93715f7a754
 
 ## Aerial Artistry in Motion: Examining GoPro Karma Performance
 
-# GoPro Karma Drone Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# GoPro Karma Drone Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -83,9 +81,7 @@ thumbnail: https://thmb.techidaily.com/a1248d9b4e7ad7b3aedb40cb2befdc93715f7a754
 
  Cable Cam: In this mode, you can set two points in the sky and then make the drone fly back and forth between those points over and over again.
 
-#### 5\.  Controller
-
-![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
+#### 5\.  Controller ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
 
@@ -117,3 +113,26 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-prime-uav-options-to-maximize-your-gopro-video-potential-for-2024/"><u>[New] Prime UAV Options to Maximize Your GoPro Video Potential for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unveiling-the-secrets-how-to-efficiently-record-internet-radio/"><u>[New] 2024 Approved  Unveiling the Secrets  How To Efficiently Record Internet Radio</u></a></li>
+<li><a href="https://fox-links.techidaily.com/from-novices-to-pros-the-journey-of-learning-magix-maker/"><u>From Novices to Pros  The Journey of Learning Magix Maker</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-streaming-software-showdown-the-verdict-on-wirecast-vs-obs/"><u>In 2024, Streaming Software Showdown  The Verdict on Wirecast Vs. OBS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-low-cost-gopro-cameras-where-to-find-them/"><u>[New] 2024 Approved  Low-Cost GoPro Cameras  Where to Find Them</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-setting-the-stage-for-success-zoom-configuration-101/"><u>[Updated] In 2024, Setting the Stage for Success  Zoom Configuration 101</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-microsofts-glimpse-into-augmented-reality-the-hololens-journey/"><u>[Updated] Microsoft’s Glimpse Into Augmented Reality – The HoloLens Journey</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-innovative-methods-for-chronological-disruption-in-acting-for-2024/"><u>[Updated] Innovative Methods for Chronological Disruption in Acting for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-secure-your-travel-documents-grab-10-free-passport-photos-onlinedesktop/"><u>[New] 2024 Approved  Secure Your Travel Documents  Grab 10 FREE Passport Photos Online/Desktop</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-technical-treasure-trove-mastering-the-art-of-capturing-roblox-adventures-on-apple-devices/"><u>[New] In 2024, Technical Treasure Trove  Mastering the Art of Capturing Roblox Adventures on Apple Devices</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exploring-virtual-realities-shortcomings-for-2024/"><u>Exploring Virtual Realities' Shortcomings for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-movie-magic-on-your-device-top-10-trailer-apps-for-iphone-and-ipad/"><u>Updated In 2024, Movie Magic on Your Device Top 10 Trailer Apps for iPhone and iPad</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Motorola Moto G84 5G? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-record-perfectly-with-apples-webcam-on-macbook-for-2024/"><u>[Updated] Record Perfectly with Apple's Webcam on MacBook for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-motorola-g24-power-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Motorola G24 Power</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/where-can-i-find-angry-dog-bark-effect-in-2024/"><u>Where Can I Find Angry Dog Bark Effect, In 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-step-by-step-to-rotate-videos-using-obs/"><u>New 2024 Approved Step by Step to Rotate Videos Using OBS</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-8-plus-data-from-ios-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 8 Plus Data From iOS iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-cutting-edge-audio-to-text-transcription-software-of-the-year-2023-edition/"><u>Updated 2024 Approved Cutting-Edge Audio to Text Transcription Software of the Year, 2023 Edition</u></a></li>
+</ul></div>

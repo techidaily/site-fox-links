@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Taking Your Photos to New Heights  Mastering iOS 11'S Features\""
-date: 2024-06-23 16:31:59
-updated: 2024-06-24 12:16:21
+date: 2024-06-25T15:25:58.417Z
+updated: 2024-06-26T15:25:58.417Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/04440a12467eb00d2e76ab58c49996f10e544f909
 
 ## Taking Your Photos to New Heights: Mastering iOS 11'S Features
 
-# 10 iPhone Camera Features You Should Know in iOS 11
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# 10 iPhone Camera Features You Should Know in iOS 11 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -36,33 +34,25 @@ thumbnail: https://thmb.techidaily.com/04440a12467eb00d2e76ab58c49996f10e544f909
 
  The quality of your photos is in direct relation to your level of familiarity with the camera's features because the more you know about the camera the better you will be at finding the proper use for those features.
 
-#### 1\. Don't Be Shy to Use the Grid Mode
-
-![](https://images.wondershare.com/filmora/article-images/grid-mode-iphone.jpg)
+#### 1\. Don't Be Shy to Use the Grid Mode ![](https://images.wondershare.com/filmora/article-images/grid-mode-iphone.jpg)
 
  Image resource: Macworld
 
  If you want to improve your photo taking skills, you must start paying attention to picture composition. Fortunately, the iPhone camera app offers the Grid Mode that divides the screen into nine equal parts. The grid will provide assistance in placing the subjects of your photos at the very center of the picture or when learning how to use the rule of thirds, one of the most basic composition techniques in photography.
 
-#### 2\. Set the Focus and Exposure manually
-
-![](https://images.wondershare.com/filmora/article-images/set-focus-iphone.jpg)
+#### 2\. Set the Focus and Exposure manually ![](https://images.wondershare.com/filmora/article-images/set-focus-iphone.jpg)
 
  Image resource: iPhone Photography School
 
  Relying on auto settings will not get you far in the photography world. Even though your iPhone is perfectly capable of setting the exposure or focus automatically, adjusting these values manually will provide you with more control over the process of taking a photo. Choosing where the focal point in your photo will be and finding the perfect exposure by yourself will allow you to highlight the subjects of your pictures and it will enable you to decide how bright or dark your photo is going to be.
 
-#### 3\. HDR Photos Have More Balanced Lightning
-
-![](https://images.wondershare.com/filmora/article-images/turn-on-hdr.jpg)
+#### 3\. HDR Photos Have More Balanced Lightning ![](https://images.wondershare.com/filmora/article-images/turn-on-hdr.jpg)
 
  Image resource: Gadget Bistro Malaysia
 
  Utilizing the HDR or High Dynamic Range feature is yet another effective way to control the exposure of your pictures. When activated, HDR feature will allow your iPhone to combine three different exposures in a single shot, and the result will be a picture that has a higher amount of detail in its shadows and highlights.
 
-#### 4\. Use the Timer to Stabilize Your Shots
-
-![](https://images.wondershare.com/filmora/article-images/use-timer-on-iphone.jpg)
+#### 4\. Use the Timer to Stabilize Your Shots ![](https://images.wondershare.com/filmora/article-images/use-timer-on-iphone.jpg)
 
  iPhone X weighs only 174 grams, which makes it nearly impossible to hold perfectly still. This complicates things even further in difficult light conditions, but the Timer feature on iPhone X can help you solve this problem. You can compose your shot and set the Timer for 3 or 10 seconds and the device will take ten photos in a row, which will enable you to select the sharpest photo and delete the others.
 
@@ -70,17 +60,13 @@ thumbnail: https://thmb.techidaily.com/04440a12467eb00d2e76ab58c49996f10e544f909
 
  Taking Live Photos hasn't changed at all on the new model of the iPhone, but now you can also edit live photos in pretty much the same way you would edit a still photo. You can turn off the sound, crop or rotate live photos effortlessly, as well as apply filters, adjust color balance or improve lightning on all of your live photos.
 
-#### 6\. QR Codes Detection
-
-![](https://images.wondershare.com/filmora/article-images/qr-detection-iphone.jpg)
+#### 6\. QR Codes Detection ![](https://images.wondershare.com/filmora/article-images/qr-detection-iphone.jpg)
 
  Image resource: 9to5Mac
 
  QR codes are actually quite convenient because they save you the trouble of typing the URL by yourself. The iOS 11 is the first iPhone OS with the ability to read QR codes. All you need to do is open your camera app and point it in the direction of the QR code you want to view, and your iPhone X will do the rest.
 
-#### 7\. Take Selfies in Portrait Mode - Only for iPhone X
-
-![](https://images.wondershare.com/filmora/article-images/selfie-portrait-mode-iphone.jpg)
+#### 7\. Take Selfies in Portrait Mode - Only for iPhone X ![](https://images.wondershare.com/filmora/article-images/selfie-portrait-mode-iphone.jpg)
 
  Image resource: Tom's Guide
 
@@ -90,15 +76,11 @@ thumbnail: https://thmb.techidaily.com/04440a12467eb00d2e76ab58c49996f10e544f909
 
  The rear camera on iPhone X is capable of capturing 4K videos at 30 or at 60 fps, and you can also use it to record slow-motion 1080p videos at 120 or at 240 fps. These features are a significant step up from the previous iPhone model both in terms of video image quality and in terms of possibilities they provide to iPhone X owners.
 
-#### 9\. Dual Optical Image Stabilization Lets you Take Better Photos - iPhone X/8
-
-![](https://images.wondershare.com/filmora/article-images/dual-image-stabilization-iphone.jpg)
+#### 9\. Dual Optical Image Stabilization Lets you Take Better Photos - iPhone X/8 ![](https://images.wondershare.com/filmora/article-images/dual-image-stabilization-iphone.jpg)
 
  Keeping the moving objects in focus is a major concern regardless of the camera you are using. We were excited about the [dual camera feature in iPhone 7](https://tools.techidaily.com/wondershare/filmora/download/), now the Dual Optical Image Stabilization feature in iOS 11 reduces motion blur and it also decreases the impact the camera shakes have on your photos. iPhone 8's Optical Image Stabilization has been improved on iPhone X and it works alongside the image sensor to ensure that all pictures taken with this device are razor sharp.
 
-#### 10\. Portrait Lighting Lets You Adjust Light to Best Fit Your Subject - iPhone X/8
-
-![](https://images.wondershare.com/filmora/article-images/portrait-lighting-iphone.jpg)
+#### 10\. Portrait Lighting Lets You Adjust Light to Best Fit Your Subject - iPhone X/8 ![](https://images.wondershare.com/filmora/article-images/portrait-lighting-iphone.jpg)
 
  iPhone 8 Plus and iPhone X offer a new feature, specifically designed to let you find the perfect lighting for the subject of your photos. This feature doesn't work like a filter, but rather like a real-time light meter, that calculates the optimum light values on the face of the person or persons depicted in a photo.
 
@@ -132,3 +114,24 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-scripting-space-and-time-manipulation-for-movies-for-2024/"><u>[Updated] Scripting Space & Time Manipulation for Movies for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unlock-creative-potential-in-filmmaking-with-filmora-answers/"><u>[New] Unlock Creative Potential in Filmmaking with Filmora Answers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-full-guide-to-google-docs-speech-to-text-service/"><u>[Updated] 2024 Approved  Full Guide to Google Docs Speech to Text Service</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-switching-on-windows-11-for-automatic-hdr-mode/"><u>[New] In 2024, Switching On Windows 11 for Automatic HDR Mode</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-sonic-scenes-from-still-shots/"><u>[New] 2024 Approved  Sonic Scenes From Still Shots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-invaluable-list-of-prime-no-charge-sites-for-seamless-video-editing-experience/"><u>2024 Approved  Invaluable List of Prime No-Charge Sites for Seamless Video Editing Experience</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-yuneecs-typhoon-h-unmasked-detailed-uav-analysis/"><u>[Updated] Yuneec's Typhoon H Unmasked  Detailed UAV Analysis</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-panoramic-lenses-vs-depth-filled-images/"><u>[Updated] 2024 Approved  Panoramic Lenses vs Depth-Filled Images</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-how-to-fix-distorted-audio-using-different-methods/"><u>Updated How to Fix Distorted Audio Using Different Methods</u></a></li>
+<li><a href="https://change-location.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-vivo-s17e-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-12-pro-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 Pro?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-unlock-partner-status-a-step-by-step-guide-to-discord-verification/"><u>[New] In 2024, Unlock Partner Status  A Step-by-Step Guide to Discord Verification</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-vivo-s17t-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Vivo S17t</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-non-retweet-strategies-for-mobile-video-shares/"><u>In 2024, Non-Retweet Strategies for Mobile Video Shares</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/tricks-to-taper-down-video-playback-speed-in-snapchat/"><u>Tricks to Taper Down Video Playback Speed in Snapchat</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-realme-c33-2023-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Realme C33 2023 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-blaze-2-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Blaze 2 5G</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[New] Dissecting the Technical Specifications of DJI Phantom 3"
-date: 2024-06-21 12:38:42
-updated: 2024-06-24 12:14:23
+date: 2024-06-25T15:49:56.366Z
+updated: 2024-06-26T15:49:56.366Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 
 ## Dissecting the Technical Specifications of DJI Phantom 3
 
-# Review for DJI Phantom 3 Standard
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Review for DJI Phantom 3 Standard ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -114,3 +112,27 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-best-frame-rate-selection-for-effective-slow-motion-capture/"><u>[Updated] Best Frame Rate Selection for Effective Slow Motion Capture</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-sound-in-sight-mixing-music-into-microsofts-presentation-tool/"><u>[Updated] In 2024, Sound in Sight  Mixing Music Into Microsoft's Presentation Tool</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-compreenasive-breakdown-how-to-use-microsofts-movie-maker-on-w11/"><u>2024 Approved  The Compreenasive Breakdown  How to Use Microsoft's Movie Maker on W11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-videoeditorpro-comprehensive-analysis-and-reviews/"><u>[Updated] VideoEditorPro  Comprehensive Analysis & Reviews</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-essential-fps-for-pristine-slow-motion-film-quality/"><u>[Updated] Essential FPS for Pristine Slow-Motion Film Quality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-inverted-indexing-flipping-your-iphones-videos/"><u>[New] 2024 Approved  Inverted Indexing  Flipping Your iPhone's Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-tomtoms-newest-bold-camera-the-bandit-2023/"><u>2024 Approved  TomTom's Newest Bold Camera, The Bandit 2023</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-redefining-blu-ray-with-updated-sony-s6700/"><u>[New] In 2024, Redefining Blu-Ray with Updated Sony S6700</u></a></li>
+<li><a href="https://fox-links.techidaily.com/celebrating-maker-spirits-creative-otu-packs/"><u>Celebrating Maker Spirits  Creative OTU Packs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-elite-camera-drones-10-unveiling-visuals-like-never-before/"><u>[Updated] 2024 Approved  Elite Camera Drones #10  Unveiling Visuals Like Never Before</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-an-honored-list-top-15-stop-motion-gems-through-ages/"><u>[Updated] An Honored List  Top 15 Stop-Motion Gems Through Ages</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/branding-beats-technicalities-focus-on-your-streams-signature-style-for-2024/"><u>Branding Beats Technicalities  Focus on Your Stream's Signature Style for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/best-captures-of-macs-visual-display-under-156-characters/"><u>Best Captures of Mac's Visual Display (Under 156 Characters)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-bizarre-battles-unconventional-gaming-challenges-on-tiktok-for-2024/"><u>[New] Bizarre Battles  Unconventional Gaming Challenges on TikTok for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/navigating-the-world-of-apex-legends-on-a-personal-platform-quest/"><u>Navigating the World of Apex Legends on a Personal Platform Quest</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/reel-it-in-techs-video-harvest-for-2024/"><u>Reel It In  Tech's Video Harvest for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-smooth-shooting-clear-screens-top-10-devices-for-exceptional-video-quality/"><u>[Updated] Smooth Shooting, Clear Screens  Top 10 Devices for Exceptional Video Quality</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-after-effects-text-enhancements/"><u>In 2024, Premium After Effects Text Enhancements</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-beyondthebaseline-mycams-successor-in-2024/"><u>[New] BeyondTheBaseline  MyCam's Successor, In 2024</u></a></li>
+</ul></div>

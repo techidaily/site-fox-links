@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Luster Leads  Transformative Techniques for Videos\""
-date: 2024-06-23 21:58:48
-updated: 2024-06-25 11:23:39
+date: 2024-06-25T15:07:09.773Z
+updated: 2024-06-26T15:07:09.773Z
 tags: 
   - screen-recording
   - ai video
@@ -44,21 +44,15 @@ A Fresnel lens is an optional attachment that can bounce the light off of the ce
 
 For this tutorial, we will use the Three-Point Lighting technique:
 
-##### Step1 Set the Key Light
-
-![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
+##### Step1 Set the Key Light ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
-##### Step2 Set the Fill Light
-
-![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
+##### Step2 Set the Fill Light ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
-##### Step3 Set the Backlight
-
-![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+##### Step3 Set the Backlight ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -123,3 +117,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-prime-time-top-10-methods-for-flawless-cricket-broadcasts-for-2024/"><u>[New] Prime Time  Top 10 Methods for Flawless Cricket Broadcasts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-professional-photography-with-canons-complimentary-luts-for-2024/"><u>[Updated] Professional Photography with Canon's Complimentary LUTs for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-ultimate-vr-buying-guide-mobile-liberty-or-tethered-unity-in-2024/"><u>[New] The Ultimate VR Buying Guide  Mobile Liberty or Tethered Unity, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-augmented-gaming-experience-the-top-8-list-for-2024/"><u>[New] Augmented Gaming Experience  The Top 8 List for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-elevate-your-match-chances-with-clever-tinder-bios/"><u>In 2024, Elevate Your Match Chances with Clever Tinder Bios</u></a></li>
+<li><a href="https://fox-links.techidaily.com/prime-vhs-illusions-to-enhance-film-projects-for-2024/"><u>Prime VHS Illusions to Enhance Film Projects for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-captivating-cuts-10-essential-filmora-edits-everyone-loves-for-2024/"><u>[New] Captivating Cuts  10 Essential Filmora Edits Everyone Loves for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-precision-photography-snippets-from-videos-on-windows-11/"><u>[Updated] Precision Photography Snippets From Videos on Windows 11</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-building-business-via-beauty-vlogs-for-2024/"><u>[New] Building Business via Beauty Vlogs for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-connect-optimizing-your-tiktok-content-for-2024/"><u>[Updated] Twitter Connect  Optimizing Your TikTok Content for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-fcpx-lower-thirds-101-a-beginners-guide-to-success/"><u>New 2024 Approved FCPX Lower Thirds 101 A Beginners Guide to Success</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-ensuring-earning-potential-on-youtubers/"><u>[New] Ensuring Earning Potential on YouTubers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/ideal-strategies-for-noiseless-filming/"><u>Ideal Strategies for Noiseless Filming</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-webp-mastery-converting-to-jpeg-for-2024/"><u>[New] WebP Mastery  Converting to JPEG for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-mastering-profit-on-facebook-essential-insights-and-hacks/"><u>[New] Mastering Profit on Facebook  Essential Insights & Hacks</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-chortlechamber-personalize-everyday-humor-online/"><u>In 2024, ChortleChamber  Personalize Everyday Humor Online</u></a></li>
+</ul></div>

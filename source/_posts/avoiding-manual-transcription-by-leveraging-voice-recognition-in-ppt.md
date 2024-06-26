@@ -1,7 +1,7 @@
 ---
 title: "Avoiding Manual Transcription by Leveraging Voice Recognition in PPT"
-date: 2024-06-23 14:17:45
-updated: 2024-06-26 12:54:23
+date: 2024-06-25T14:56:58.659Z
+updated: 2024-06-26T14:56:58.659Z
 tags: 
   - screen-recording
   - ai video
@@ -135,9 +135,7 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ##### Step 2
 
-Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
-
-![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
+Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
 ## FAQs
 
@@ -157,9 +155,9 @@ You can use your device's in-built microphone. However, you may need external ge
 
 Speech-to-text is an additional feature for all users. Typing is, however, the default practice.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -181,3 +179,27 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-introduction-to-plot-and-character-dynamics/"><u>[New] In 2024, Introduction to Plot and Character Dynamics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-visual-learning-experience-quick-edit-tips-for-educators/"><u>2024 Approved  Visual Learning Experience  Quick Edit Tips for Educators</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-top-tier-mobile-and-desktop-player-for-avis/"><u>[New] In 2024, Top-Tier Mobile and Desktop Player for AVIs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-toongems-detailed-analysis-24-summary/"><u>2024 Approved  ToonGems Detailed Analysis '24 Summary</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-elevate-video-production-quality-by-integrating-luts-in-your-obs-setup/"><u>[Updated] 2024 Approved  Elevate Video Production Quality by Integrating LUTs in Your OBS Setup</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-prime-additions-for-newbie-gopro-photographers-for-2024/"><u>[New] Prime Additions for Newbie GoPro Photographers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-calculating-20mb-video-length-in-secs/"><u>[New] In 2024, Calculating 20MB Video Length in Secs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-game-changer-or-gamble-a-2021-review-of-vegas-pros-evolution-for-2024/"><u>[Updated] Game Changer or Gamble? A 2021 Review of Vegas Pro's Evolution for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-color-correctors-handbook/"><u>The Ultimate Color Corrector's Handbook</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-dji-drone-tiers-basic-package-enhanced-series-proficiency-edition-uhd/"><u>[New] DJI Drone Tiers  Basic Package, Enhanced Series, Proficiency Edition UHD</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-create-a-brand-video-to-make-your-business-shine-for-2024/"><u>Updated Create a Brand Video to Make Your Business Shine for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-basics-of-zoom-group-divisions-unveiled/"><u>2024 Approved  Basics of Zoom Group Divisions Unveiled</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/sony-vegas-not-your-cup-of-tea-discover-top-alternatives-for-windows/"><u>Sony Vegas Not Your Cup of Tea? Discover Top Alternatives for Windows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-magic5-ultimate-by-fonelab-android-recover-music/"><u>How to restore wiped music on Magic5 Ultimate</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/3-ways-to-track-apple-iphone-xr-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>3 Ways to Track Apple iPhone XR without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/video-directors-ultimate-companion-powerdirector-full-review/"><u>Video Directors' Ultimate Companion - PowerDirector Full Review</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-sharpsnap-recorder-for-windows-10-for-2024/"><u>[Updated] SharpSnap Recorder for Windows 10 for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/how-to-get-motion-blur-in-valorant-in-2024/"><u>How to Get Motion Blur in Valorant, In 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigating-image-editing-remove-background-in-picsart-guide/"><u>2024 Approved  Navigating Image Editing  Remove Background in Picsart Guide</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-capture-your-gaming-moments-3-easy-recording-options-for-2024/"><u>Updated Capture Your Gaming Moments 3 Easy Recording Options for 2024</u></a></li>
+</ul></div>

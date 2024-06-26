@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Flight Paths Revealed  Full Review of DJI Phantom 4\""
-date: 2024-06-21 15:15:12
-updated: 2024-06-23 12:33:18
+date: 2024-06-25T15:13:54.088Z
+updated: 2024-06-26T15:13:54.088Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/8f7510761ca720ed11b8607a0a38e0963e70a7dc5
 
 ## Flight Paths Revealed: Full Review of DJI Phantom 4
 
-# DJI Phantom 4 Complete Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# DJI Phantom 4 Complete Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -73,9 +71,7 @@ thumbnail: https://thmb.techidaily.com/8f7510761ca720ed11b8607a0a38e0963e70a7dc5
 * Max Capacity: 128GB
 * Write speed ≥15MB/s, Class 10 or UHS-1 rating required
 
-#### Design
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
+#### Design ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
 
  The Phantom 4 is similar to the previous version in terms of looks. It is white in color and plastic with sturdy legs to rest on. Two sensors are located on the front and back of the drone and more underneath and to the sides. The camera begins to record on takeoff allowing the drone to find a homing position when ready to return home. The camera hangs below the drone with gimbals that keep it sturdy whatever conditions it is flown in. The arms each have lights so that you can find it easily when in flight.
 
@@ -95,9 +91,7 @@ thumbnail: https://thmb.techidaily.com/8f7510761ca720ed11b8607a0a38e0963e70a7dc5
 
  The Phantom 4 plus comes with a built in screen which has a display screen of 5.5 inches and 1080p. The remote is able to connect to the drone from up to 4.3 miles away and can stream full HD to the display screen. The remote battery can last for up to 5 hours before it needs to be charged.
 
-#### Camera
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
+#### Camera ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
 
  The Phantom 4 has been upgraded to include a 20 megapixel sensor which has 12 dynamic range stops which allows for more detailed shots even in intense light. This improves the performance from its predecessor significantly. The mechanical shutter stops the distortion and makes for smoother footage. The 4K video at 60 fps capabilities increase the quality overall giving users better results.
 
@@ -129,3 +123,23 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-funny-photos-for-iphones-for-2024/"><u>[New] Funny Photos for IPhones for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-transform-your-airborran-viewing-20-free-dji-drone-luts-offer/"><u>[New] In 2024, Transform Your Airborran Viewing - 20 FREE DJI Drone LUTS Offer</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-gentle-art-of-reducing-audio-amplitude-in-logic-pro/"><u>In 2024, The Gentle Art of Reducing Audio Amplitude in Logic Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/frozen-frontiers-highlights-from-beijings-winter-games-for-2024/"><u>Frozen Frontiers  Highlights From Beijing's Winter Games for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-media-the-best-12-tools-to-translate-videos-into-text-for-2024/"><u>[Updated] Mastering Media  The Best 12 Tools to Translate Videos Into Text for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/radio-dramaturgys-finest-works/"><u>Radio Dramaturgy's Finest Works</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-strategies-for-downloading-twitter-video-content-to-mp3/"><u>In 2024, Strategies for Downloading Twitter Video Content to MP3</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/tactics-to-accelerate-vimeo-video-viewership/"><u>Tactics to Accelerate Vimeo Video Viewership</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-oppo-find-n3-flip-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Oppo Find N3 Flip phone? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/thorough-vsco-editor-user-manual-for-2024/"><u>Thorough VSCO Editor User Manual for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-optimizing-vimeo-playback-speed/"><u>In 2024, Optimizing Vimeo Playback Speed</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-laughloop-app-a-hub-for-humor-enthusiasts/"><u>2024 Approved  LaughLoop App - A Hub for Humor Enthusiasts</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-perfect-pairings-adding-captions-that-enhance-your-tiktoks/"><u>[New] Perfect Pairings  Adding Captions that Enhance Your TikToks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-apple-iphone-se-have-find-my-friends-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Apple iPhone SE Have Find My Friends? | Dr.fone</u></a></li>
+</ul></div>

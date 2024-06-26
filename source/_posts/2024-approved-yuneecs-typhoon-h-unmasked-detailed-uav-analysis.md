@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Yuneec's Typhoon H Unmasked  Detailed UAV Analysis\""
-date: 2024-06-23 13:34:54
-updated: 2024-06-24 12:28:27
+date: 2024-06-25T15:58:28.643Z
+updated: 2024-06-26T15:58:28.643Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 
 ## Yuneec's Typhoon H Unmasked: Detailed UAV Analysis
 
-# Yuneec Typhoon H Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Yuneec Typhoon H Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -81,15 +79,11 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 
  Typhoon H is equipped with a built in type obstacle avoidance sensor that can find all distractions easily around and keeps your drone safe from crashes. It works with sonar technology that means your device can easily detect all the undesired objects on the way even in low light conditions or in darkness. Note that this sensor is attached at front portion of your drone so it can serve with the detection ability to front facing objects only, if anything comes from sides then your drone will not be able to stay safe. But still, at least you have a new feature and it works amazingly.
 
-#### 6\.  Controller
-
-![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
+#### 6\.  Controller ![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
 
  The controller part is really interesting with few additional features as compared to its predecessors. You will be able to access button and knobs but one new addition to controller is in form of its built in type 7 inch touchscreen that can display the telemetry data on continuous basis. Here is good news for professionals; it is possible to connect this drone to more than one controller at a time so that few highly customized shoots can be gathered. Filmmakers love to access these advanced features.
 
-#### 7\.  Camera
-
-![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
+#### 7\.  Camera ![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
 
  The drone camera can provide 4K recording facility whereas users can also switch between 2.5K and 1080p level as per need. The FPS ratings can be shifted for better results. Results can be enhanced with its ½.3” CMOS sensor and the developers also claim to serve with video transmission range of about 400 meters. The 360 degree gimbal is also available with this drone and its results are professional looking with advantage of sonar sensor.
 
@@ -121,3 +115,22 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-virtual-reality-therapy-breakthroughs/"><u>[Updated] In 2024, Virtual Reality Therapy Breakthroughs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-photographic-soundtracking-online/"><u>[New] Photographic Soundtracking Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-achieving-professional-level-audio-crossfades-in-audacity/"><u>[Updated] In 2024, Achieving Professional-Level Audio Crossfades in Audacity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/writing-that-grabs-and-grips-podcast-description-tactics-for-2024/"><u>Writing That Grabs and Grips  Podcast Description Tactics for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/toolwiz-photography-companion-a-thorough-2023-breakdown/"><u>Toolwiz Photography Companion  A Thorough 2023 Breakdown</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-from-novice-to-pro-periscope-stream-mastery/"><u>In 2024, From Novice to Pro  Periscope Stream Mastery</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-hand-tracking-reference-guide/"><u>The Ultimate Hand-Tracking Reference Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Samsung Galaxy M34? | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-sync-up-songs-and-screenshots-on-snapchat/"><u>[New] 2024 Approved  Sync-Up Songs and Screenshots on Snapchat</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-4-things-you-must-know-about-iphone-6-activation-lock-by-drfone-ios/"><u>In 2024, 4 Things You Must Know About iPhone 6 Activation Lock</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-snapchats-money-making-opportunities-exposed/"><u>2024 Approved  Snapchat's Money-Making Opportunities Exposed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-becoming-a-youtube-guru-essential-production-know-how-for-2024/"><u>[Updated] Becoming a YouTube Guru  Essential Production Know-How for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-seamless-sound-changes-with-premiere-pro/"><u>[New] Seamless Sound Changes with Premiere Pro</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-vivo-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Vivo Phone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/audio-clarity-on-the-go-best-practices-for-transcribing-speech-via-mobile-for-2024/"><u>Audio Clarity on the Go Best Practices for Transcribing Speech via Mobile for 2024</u></a></li>
+</ul></div>

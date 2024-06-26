@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  In Depth Review  DJI Phantom 4 in Action\""
-date: 2024-06-24 19:34:18
-updated: 2024-06-25 11:57:31
+date: 2024-06-25T15:19:17.220Z
+updated: 2024-06-26T15:19:17.220Z
 tags: 
   - screen-recording
   - ai video
@@ -18,9 +18,7 @@ thumbnail: https://thmb.techidaily.com/d558a627b87b79877888fadd197a60bce9f9f1882
 
 ## In Depth Review: DJI Phantom 4 in Action
 
-# DJI Phantom 4 Complete Review
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# DJI Phantom 4 Complete Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -73,9 +71,7 @@ thumbnail: https://thmb.techidaily.com/d558a627b87b79877888fadd197a60bce9f9f1882
 * Max Capacity: 128GB
 * Write speed ≥15MB/s, Class 10 or UHS-1 rating required
 
-#### Design
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
+#### Design ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
 
  The Phantom 4 is similar to the previous version in terms of looks. It is white in color and plastic with sturdy legs to rest on. Two sensors are located on the front and back of the drone and more underneath and to the sides. The camera begins to record on takeoff allowing the drone to find a homing position when ready to return home. The camera hangs below the drone with gimbals that keep it sturdy whatever conditions it is flown in. The arms each have lights so that you can find it easily when in flight.
 
@@ -95,9 +91,7 @@ thumbnail: https://thmb.techidaily.com/d558a627b87b79877888fadd197a60bce9f9f1882
 
  The Phantom 4 plus comes with a built in screen which has a display screen of 5.5 inches and 1080p. The remote is able to connect to the drone from up to 4.3 miles away and can stream full HD to the display screen. The remote battery can last for up to 5 hours before it needs to be charged.
 
-#### Camera
-
-![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
+#### Camera ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
 
  The Phantom 4 has been upgraded to include a 20 megapixel sensor which has 12 dynamic range stops which allows for more detailed shots even in intense light. This improves the performance from its predecessor significantly. The mechanical shutter stops the distortion and makes for smoother footage. The 4K video at 60 fps capabilities increase the quality overall giving users better results.
 
@@ -129,3 +123,24 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-complete-gif-makers-manual/"><u>[New] In 2024, The Complete GIF Maker's Manual</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-podcast-summary-genius-guidance-and-examples-for-2024/"><u>[New] Podcast Summary Genius  Guidance & Examples for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-htcs-immersive-revolution-a-deep-dive-into-vr-headset-magic/"><u>[Updated] HTC's Immersive Revolution  A Deep Dive Into VR Headset Magic</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-uncharted-territory-latest-windows-10-apps-and-games-for-2024/"><u>[New] Uncharted Territory  Latest Windows 10 Apps & Games for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-unlocking-premiere-pro-full-screen-magic/"><u>In 2024, Unlocking Premiere Pro Full-Screen Magic</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ringing-in-the-faith-customizing-your-mobile-music-for-2024/"><u>[Updated] Ringing in the Faith - Customizing Your Mobile Music for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-affordable-asmr-microphones-with-peak-performance-quality-crest/"><u>[Updated] In 2024, Affordable ASMR Microphones with Peak Performance, Quality Crest</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-dynamic-enhancements-for-your-tiktok-projects/"><u>[Updated] Dynamic Enhancements for Your TikTok Projects</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-reflection-photography-tips-for-iphone/"><u>In 2024, Reflection Photography Tips for iPhone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-meizu-21-drfone-by-drfone-android/"><u>How to Screen Mirroring Meizu 21? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-realme-v30-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-best-ispoofer-alternative-to-try-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-online-audio-enhancement-a-step-by-step-guide-to-adjusting-speed-and-pitch-for-2024/"><u>Updated Online Audio Enhancement A Step-by-Step Guide to Adjusting Speed & Pitch for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-tecno-spark-10-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Tecno Spark 10 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-infinix-hot-40-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Infinix Hot 40 Users</u></a></li>
+</ul></div>
