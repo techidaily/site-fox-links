@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Top 10 Casual Pursuits Away From Sports Fields"
-date: 2024-06-25T15:36:05.390Z
-updated: 2024-06-26T15:36:05.390Z
+date: 2024-07-03T12:27:37.121Z
+updated: 2024-07-04T12:27:37.121Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/7e535a24da23299616c0c4ebf30823de033f9fe39
 
 ## Top 10 Casual Pursuits Away From Sports Fields
 
-# Top 10 Firstrow Sports Alternatives ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# Top 10 Firstrow Sports Alternatives
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

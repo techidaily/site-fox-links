@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Use Windows Media Player to Rip and Burn Cd\""
-date: 2024-06-25T15:45:12.866Z
-updated: 2024-06-26T15:45:12.866Z
+date: 2024-07-03T12:27:31.678Z
+updated: 2024-07-04T12:27:31.678Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/42e80c71c3e676d07f669fb711246bda708f83a95
 
 ## How to Use Windows Media Player to Rip and Burn Cd
 
-# How to use windows media player to rip and burn cd ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to use windows media player to rip and burn cd
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

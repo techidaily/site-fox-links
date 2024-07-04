@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  First Row Leisure  10 Alternatives to Sports\""
-date: 2024-06-25T15:45:33.606Z
-updated: 2024-06-26T15:45:33.606Z
+date: 2024-07-03T12:27:35.933Z
+updated: 2024-07-04T12:27:35.933Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/c47d9b748677be35ea8562c8673e1a0adea4db02b
 
 ## First Row Leisure: 10 Alternatives to Sports
 
-# Top 10 Firstrow Sports Alternatives ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# Top 10 Firstrow Sports Alternatives
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

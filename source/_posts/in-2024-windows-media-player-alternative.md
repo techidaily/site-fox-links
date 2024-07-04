@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Windows Media Player Alternative"
-date: 2024-06-25T15:31:04.244Z
-updated: 2024-06-26T15:31:04.244Z
+date: 2024-07-03T12:27:34.690Z
+updated: 2024-07-04T12:27:34.690Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/84dab43ab035d91cb56a4eae408b40758af9a9a2b
 
 ## Vuze Media Player: Open Source Multimedia Hub
 
-# Windows Media Player Alternative ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# Windows Media Player Alternative
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

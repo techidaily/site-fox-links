@@ -1,7 +1,7 @@
 ---
 title: "\"Step Up Your Content Game  Top 30 Video Plans\""
-date: 2024-06-25T15:42:40.835Z
-updated: 2024-06-26T15:42:40.835Z
+date: 2024-07-03T12:27:37.720Z
+updated: 2024-07-04T12:27:37.720Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/965071db1f866296dbd6b7c6cdfb4395621995dd5
 
 ## Step Up Your Content Game: Top 30 Video Plans
 
-# 10+ Video Presentation Ideas to Delight Your Audience ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# 10+ Video Presentation Ideas to Delight Your Audience
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

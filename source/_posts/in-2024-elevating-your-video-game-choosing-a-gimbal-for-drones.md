@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Elevating Your Video Game  Choosing a Gimbal for Drones\""
-date: 2024-06-25T15:14:52.170Z
-updated: 2024-06-26T15:14:52.170Z
+date: 2024-07-03T12:27:36.857Z
+updated: 2024-07-04T12:27:36.857Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/b23f7aea0239ccf0208f3f76d9301c76c818b9985
 
 ## Elevating Your Video Game: Choosing a Gimbal for Drones
 
-# How to Choose a Camera Gimbal for Your Drone ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Choose a Camera Gimbal for Your Drone
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

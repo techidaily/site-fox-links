@@ -1,7 +1,7 @@
 ---
 title: "Efficiently Setting Up Mixer on MacOS for 2024"
-date: 2024-06-25T15:26:56.076Z
-updated: 2024-06-26T15:26:56.076Z
+date: 2024-07-03T12:27:36.461Z
+updated: 2024-07-04T12:27:36.461Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/279c7ee1ef176fcfbe647ba1dd5b67d647bd153ee
 
 ## Efficiently Setting Up Mixer on MacOS
 
-# How to Stream on Mixer MacOS ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Stream on Mixer MacOS
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

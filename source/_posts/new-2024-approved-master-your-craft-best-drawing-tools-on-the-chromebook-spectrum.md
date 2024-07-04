@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Master Your Craft  Best Drawing Tools on the Chromebook Spectrum\""
-date: 2024-06-25T15:37:36.205Z
-updated: 2024-06-26T15:37:36.205Z
+date: 2024-07-03T12:27:35.161Z
+updated: 2024-07-04T12:27:35.161Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/d141dd05ed10b1bd39fa40502c6b028dc88f2f05d
 
 ## Master Your Craft: Best Drawing Tools on the Chromebook Spectrum
 
-# FREE Best Drawing Apps for Chromebook ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# FREE Best Drawing Apps for Chromebook
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

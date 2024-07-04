@@ -1,7 +1,7 @@
 ---
 title: "10 Steps to Perfectly Plated Food Vids"
-date: 2024-06-25T15:33:17.139Z
-updated: 2024-06-26T15:33:17.139Z
+date: 2024-07-03T12:27:36.399Z
+updated: 2024-07-04T12:27:36.399Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/bc22e110eacd1143aa0bdeeb05b2f88960a893ae5
 
 ## 10 Steps to Perfectly Plated Food Vids
 
-# 7 Tips to Make Your Tasty Cooking Videos ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# 7 Tips to Make Your Tasty Cooking Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

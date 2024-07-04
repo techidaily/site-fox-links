@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Unlocking the Potential of Wide Angle 360 Photos"
-date: 2024-06-25T15:46:53.120Z
-updated: 2024-06-26T15:46:53.120Z
+date: 2024-07-03T12:27:37.649Z
+updated: 2024-07-04T12:27:37.649Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 
 ## Unlocking the Potential of Wide Angle 360 Photos
 
-# How to Create 360 Degree Photos/Images with Fisheye Lens ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+# How to Create 360 Degree Photos/Images with Fisheye Lens
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 

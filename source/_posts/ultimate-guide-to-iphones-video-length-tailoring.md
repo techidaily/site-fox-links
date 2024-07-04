@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide to iPhone's Video Length Tailoring"
-date: 2024-06-25T15:12:49.289Z
-updated: 2024-06-26T15:12:49.289Z
+date: 2024-07-03T12:27:35.800Z
+updated: 2024-07-04T12:27:35.800Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/4abc1e0d974f64940dfb669b21c754808ce4ab1e9
 
 ## Ultimate Guide to iPhone's Video Length Tailoring
 
-# How to Shorten and Resize Video on iPhone ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Shorten and Resize Video on iPhone
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

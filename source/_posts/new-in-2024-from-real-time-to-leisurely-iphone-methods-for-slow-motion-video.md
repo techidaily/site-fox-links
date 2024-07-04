@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Real Time to Leisurely  IPhone Methods for Slow Motion Video\""
-date: 2024-06-25T15:28:48.513Z
-updated: 2024-06-26T15:28:48.513Z
+date: 2024-07-03T12:27:34.027Z
+updated: 2024-07-04T12:27:34.027Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/6dd8f57eda55f51f780fa0fbffb1950bf2ad08124
 
 ## From Real Time to Leisurely: IPhone Methods for Slow Motion Video
 
-# How to Make and Convert Slow Motion Videos on iPhone ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Make and Convert Slow Motion Videos on iPhone
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

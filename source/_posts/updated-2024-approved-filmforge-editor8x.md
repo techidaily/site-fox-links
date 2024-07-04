@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  FilmForge Editor8X\""
-date: 2024-06-25T15:52:35.822Z
-updated: 2024-06-26T15:52:35.822Z
+date: 2024-07-03T12:27:35.254Z
+updated: 2024-07-04T12:27:35.254Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/ed1580a633035850affefcaff2905a61682a6fee4
 
 ## FilmForge Editor8X
 
-# Video Movie Maker for Windows 8: Easily Make Video Movie ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Video Movie Maker for Windows 8: Easily Make Video Movie
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -58,7 +59,8 @@ You can also add some adorable elements to make your movie video more funny and 
 
 ![DVD Slideshow Personalize](https://images.wondershare.com/filmora/article-images/dvd-slideshow-personalize.jpg)
 
-#### 3.Save your own video movie or share online ![DVD Slideshow Create](https://images.wondershare.com/filmora/article-images/dvd-slideshow-create.jpg)
+#### 3.Save your own video movie or share online
+![DVD Slideshow Create](https://images.wondershare.com/filmora/article-images/dvd-slideshow-create.jpg)
 
 Now hit "Create", and preview your video movie. Then choose a way to output. Here are some options for you:
 

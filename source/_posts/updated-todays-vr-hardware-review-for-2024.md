@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Today's VR Hardware Review for 2024"
-date: 2024-06-25T15:19:31.371Z
-updated: 2024-06-26T15:19:31.371Z
+date: 2024-07-03T12:27:36.074Z
+updated: 2024-07-04T12:27:36.074Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/e8207335add140aa41173bc907c1a473d602bd8fa
 
 ## Today's VR Hardware Review
 
-# Current state of VR hardware ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# Current state of VR hardware
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

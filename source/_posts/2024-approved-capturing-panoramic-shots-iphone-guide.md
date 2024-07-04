@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Capturing Panoramic Shots  IPhone Guide\""
-date: 2024-06-25T15:43:02.101Z
-updated: 2024-06-26T15:43:02.101Z
+date: 2024-07-03T12:27:33.860Z
+updated: 2024-07-04T12:27:33.860Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/04715cc01635128f130003aeefa217d9440724157
 
 ## Capturing Panoramic Shots: IPhone Guide
 
-# How to Make 360 Videos with iPhone ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+# How to Make 360 Videos with iPhone
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 

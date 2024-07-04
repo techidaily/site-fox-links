@@ -1,7 +1,7 @@
 ---
 title: "\"[New] ASUS Unboxing Special  The MG28UQ Monitor - A High-Res Journey\""
-date: 2024-06-25T15:43:15.261Z
-updated: 2024-06-26T15:43:15.261Z
+date: 2024-07-03T12:27:35.962Z
+updated: 2024-07-04T12:27:35.962Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
 
 ## ASUS Unboxing Special: The MG28UQ Monitor - A High-Res Journey
 
-# ASUS MG28UQ 4K Monitor Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# ASUS MG28UQ 4K Monitor Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -50,7 +51,8 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
 
  The ASUS MG28UQ is also VESA compatible. This simply means that it has a standardized apparatus for mounting it safely on a wall. VESA compatibility guarantees that the mount is sufficient for the weight and size of the monitor. The importance of this feature cannot be overstated as inadequate wall mounts can prove very costly indeed.
 
-#### 2. Ports and Connectivity ![asus-mg28uq-gaming-monitor-ports](https://images.wondershare.com/filmora/article-images/asus-mg28uq-gaming-monitor-ports.jpg)
+#### 2. Ports and Connectivity
+![asus-mg28uq-gaming-monitor-ports](https://images.wondershare.com/filmora/article-images/asus-mg28uq-gaming-monitor-ports.jpg)
 
  It’s hard to fault the ASUS MG28UQ 4K monitor for input connectivity since it features a total of 8 input ports. It includes one HDMI 2.0 port, two HDMI 1.4 ports, one DisplayPort 1.2, three USB 3.0 ports and a 3.5mm headphone jack. This monitor has enough connectivity options to support robust gaming data transfer as well as external media devices like a keyboard, mouse, camera and smartphone. Along with its AMD FreeSync technology, this monitor is built to support a fully-equipped game station for optimal gaming performance.
 
@@ -66,7 +68,8 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
 
  GamePlus Technology is a proprietary feature that can also be activated through the OSD. It lets gamers display timers, FPS counters and custom crosshairs for better aiming accuracy.
 
-#### 2.Color Performance ![asus-mg28uq-gaming-monitor-color-accuracy](https://images.wondershare.com/filmora/article-images/asus-mg28uq-gaming-monitor-color-accuracy.jpg)
+#### 2.Color Performance
+![asus-mg28uq-gaming-monitor-color-accuracy](https://images.wondershare.com/filmora/article-images/asus-mg28uq-gaming-monitor-color-accuracy.jpg)
 
  Eye strain is a problem most users experience after hours of non-stop gaming. It helps to have a monitor that can reduce eye strain and improve user comfort. The ASUS MG28UQ monitor is a great choice in this regard. It has an effective Glare Filter as well as Blue Light Reduction and Flicker-Free technologies that mean it can be used comfortably in daylight.
 
@@ -78,7 +81,8 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
 
  As mentioned above however, even with powerful GPUs, the maximum refresh rate possible on this 4K UHD monitor is 60Hz. In all fairness, this is due to the bandwidth limit on the input ports that ship with this monitor. DisplayPort 1.4 and HDMI 2.0 can easily support 144Hz refresh rates.
 
-#### 5.Highlighted Features ![asus-mg28uq-gaming-monitor-game-visual-settings](https://images.wondershare.com/filmora/article-images/asus-mg28uq-gaming-monitor-game-visual-settings.jpg)
+#### 5.Highlighted Features
+![asus-mg28uq-gaming-monitor-game-visual-settings](https://images.wondershare.com/filmora/article-images/asus-mg28uq-gaming-monitor-game-visual-settings.jpg)
 
  ASUS claims their MG28HQ 4K monitor is “built for victory in the gaming arena”. With their exclusive GamePlus and GameVisual technologies, it’s hard to dispute their claim.
 

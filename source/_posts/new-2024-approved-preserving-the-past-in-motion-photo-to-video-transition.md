@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Preserving the Past in Motion  Photo to Video Transition\""
-date: 2024-06-25T15:13:17.813Z
-updated: 2024-06-26T15:13:17.813Z
+date: 2024-07-03T12:27:31.981Z
+updated: 2024-07-04T12:27:31.981Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
 ## Preserving the Past in Motion: Photo to Video Transition
 
-# How to Digitize Your Old Photos and Turn Them into Impressive Videos ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Digitize Your Old Photos and Turn Them into Impressive Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

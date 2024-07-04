@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Aerial Visionaries Revealed  Detailed DJI Phantom 4 Study\""
-date: 2024-06-25T15:13:42.501Z
-updated: 2024-06-26T15:13:42.501Z
+date: 2024-07-03T12:27:35.867Z
+updated: 2024-07-04T12:27:35.867Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
 ## Aerial Visionaries Revealed: Detailed DJI Phantom 4 Study
 
-# DJI Phantom 4 Complete Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# DJI Phantom 4 Complete Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -71,7 +72,8 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 * Max Capacity: 128GB
 * Write speed ≥15MB/s, Class 10 or UHS-1 rating required
 
-#### Design ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
+#### Design
+![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
 
  The Phantom 4 is similar to the previous version in terms of looks. It is white in color and plastic with sturdy legs to rest on. Two sensors are located on the front and back of the drone and more underneath and to the sides. The camera begins to record on takeoff allowing the drone to find a homing position when ready to return home. The camera hangs below the drone with gimbals that keep it sturdy whatever conditions it is flown in. The arms each have lights so that you can find it easily when in flight.
 
@@ -91,7 +93,8 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
  The Phantom 4 plus comes with a built in screen which has a display screen of 5.5 inches and 1080p. The remote is able to connect to the drone from up to 4.3 miles away and can stream full HD to the display screen. The remote battery can last for up to 5 hours before it needs to be charged.
 
-#### Camera ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
+#### Camera
+![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
 
  The Phantom 4 has been upgraded to include a 20 megapixel sensor which has 12 dynamic range stops which allows for more detailed shots even in intense light. This improves the performance from its predecessor significantly. The mechanical shutter stops the distortion and makes for smoother footage. The 4K video at 60 fps capabilities increase the quality overall giving users better results.
 

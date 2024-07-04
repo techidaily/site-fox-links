@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating WhatsApp's Depths  Tricks You Need to Know\""
-date: 2024-06-25T15:46:56.983Z
-updated: 2024-06-26T15:46:56.983Z
+date: 2024-07-03T12:27:32.530Z
+updated: 2024-07-04T12:27:32.530Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/c08cfb9fc52b90a12972e5ec144ec0c7f63bc215d
 
 ## Navigating WhatsApp's Depths: Tricks You Need to Know
 
-# Cool Whatsapp Tricks and Hidden Features You Should Know ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# Cool Whatsapp Tricks and Hidden Features You Should Know
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

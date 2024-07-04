@@ -1,7 +1,7 @@
 ---
 title: "\"Thrifty Aerial Assemblies  Top Drones for <$500 for 2024\""
-date: 2024-06-25T15:58:51.830Z
-updated: 2024-06-26T15:58:51.830Z
+date: 2024-07-03T12:27:33.141Z
+updated: 2024-07-04T12:27:33.141Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 
 ## Thrifty Aerial Assemblies: Top Drones for <$500
 
-# Top 5 Affordable Drones under $500 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 5 Affordable Drones under $500
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -37,7 +38,8 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 | UPair One Drone with 4K Camera Bundle | $399    | 18min       | 4k               | 800m          |
 | Walkera F210 3D Edition               | $449    | 9min        | 720p             | 1km           |
 
-#### DJI Phantom 3 Standard - Best drone under $500 ![dji phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg)
+#### DJI Phantom 3 Standard - Best drone under $500
+![dji phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B013U0F6EQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B013U0F6EQ&linkId=7eb3c6ed8291356e6acb86c74ddca833)
 
@@ -54,7 +56,8 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 * Photo: JPEG, DNG
 * Video: MP4, MOV (MPEG-4 AVC/)
 
-#### Parrot Bebop - Best quadcopters for learning aerial photography and videography ![parrot bebop](https://images.wondershare.com/filmora/article-images/parrot-bebop.jpg)
+#### Parrot Bebop - Best quadcopters for learning aerial photography and videography
+![parrot bebop](https://images.wondershare.com/filmora/article-images/parrot-bebop.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01K4U4O9S/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01K4U4O9S&linkId=559bfd9a35c5117ca75942a267175750)
 
@@ -72,7 +75,8 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 * Max altitude: 150 meters
 * Maximum speed: 29 mph
 
-#### Yuneec Breeze - The ultimate selfie drone for new and experienced pilots ![yuneec breeze](https://images.wondershare.com/filmora/article-images/yuneec-breeze.jpg)
+#### Yuneec Breeze - The ultimate selfie drone for new and experienced pilots
+![yuneec breeze](https://images.wondershare.com/filmora/article-images/yuneec-breeze.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01LANE77M/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LANE77M&linkId=36ad7237fd26bf3cb5012480c0e0957a)
 
@@ -95,13 +99,15 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 * White Balance
 * Internal Memory: 16 GB Flash
 
-#### 3DR Solo - Best Drone for GoPro ![3dr solo](https://images.wondershare.com/filmora/article-images/3dr-solo.jpg)
+#### 3DR Solo - Best Drone for GoPro
+![3dr solo](https://images.wondershare.com/filmora/article-images/3dr-solo.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=6e3a0783ff748b66e7ccc673543bde8f)
 
  If you are looking for affordable drones under $500 that works with GoPro then the 3D Solo should be right up your street. It can be purchased for under $300 and has professional features including first person view, compatibility with GoPro HERO3, HERO3+ and HERO4 and you can purchase a 3-axis gimbal to keep the camera stable while it is in flight as well as allowing you to take pictures and videos easily. You can use the included remote to control both the camera and drone so no fiddling about and it can take off automatically and return home with just one button being pressed to action it. Footage can be saved directly to your phone and you can get rid of unwanted footage in flight making it easier to store the parts you want to and make later editing easier. You can easily operate the drone in its automated modes so that the drone can follow pre-decided routes or follow you. This clever drone even includes a simulator for you to practice before using your drone which is great for those that want to perfect their flying skills. The battery lasts for up to 20 minutes of in-flight action per charge and to keep track there is a battery status so you don't run out in the middle of the flight.
 
-#### UPair One Drone with 4K Camera Bundle ![upair one drone with 4k camera bundle](https://images.wondershare.com/filmora/article-images/upair-one-drone-with-4k-camera-bundle.jpg)
+#### UPair One Drone with 4K Camera Bundle
+![upair one drone with 4k camera bundle](https://images.wondershare.com/filmora/article-images/upair-one-drone-with-4k-camera-bundle.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01M0YYO87/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M0YYO87&linkId=d3373098f24af25a42abdd84a32e0366)
 
@@ -116,7 +122,8 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 * 5400mAh Smart Battery
 * 11-15 minutes runtime with gimball and camera, 25 minutes without
 
-#### Walkera F210 3D Edition - Best racing drone ![walkera f210 3d edition](https://images.wondershare.com/filmora/article-images/walkera-f210-3d-edition.jpg)
+#### Walkera F210 3D Edition - Best racing drone
+![walkera f210 3d edition](https://images.wondershare.com/filmora/article-images/walkera-f210-3d-edition.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01EW0EPU4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01EW0EPU4&linkId=4c6a236382213dec0668e4971adfb53a)
 

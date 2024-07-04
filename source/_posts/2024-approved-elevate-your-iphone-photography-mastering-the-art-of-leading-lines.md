@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Elevate Your iPhone Photography  Mastering the Art of Leading Lines\""
-date: 2024-06-25T15:10:36.910Z
-updated: 2024-06-26T15:10:36.910Z
+date: 2024-07-03T12:27:36.710Z
+updated: 2024-07-04T12:27:36.710Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/0817e17832f9eb6eaafa089134585eb7da7e6eb52
 
 ## Elevate Your iPhone Photography: Mastering the Art of Leading Lines
 
-# How to Use Leading Lines in Photography for iPhone Photos ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Use Leading Lines in Photography for iPhone Photos
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

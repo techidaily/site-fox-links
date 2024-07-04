@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Sketch Like a Pro  Top 10 Drawing Apps for Android Artists for 2024\""
-date: 2024-06-25T15:35:14.544Z
-updated: 2024-06-26T15:35:14.544Z
+date: 2024-07-03T12:27:37.275Z
+updated: 2024-07-04T12:27:37.275Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/aa2122a37a5989c0b8e6135c848a9b094e794d7aa
 
 ## Sketch Like a Pro: Top 10 Drawing Apps for Android Artists
 
-# Best Free and Paid Drawing Apps for Android OS ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# Best Free and Paid Drawing Apps for Android OS
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

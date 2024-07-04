@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  SJ6 Mastery Showdown  SJCam Vs. Xiaomi's Yi Pro 4K\""
-date: 2024-06-25T15:34:17.329Z
-updated: 2024-06-26T15:34:17.329Z
+date: 2024-07-03T12:27:37.659Z
+updated: 2024-07-04T12:27:37.659Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/c0c3ff7158c5ed074bf14161f2b9dd7e6d6a38364
 
 ## SJ6 Mastery Showdown: SJCam Vs. Xiaomi's Yi Pro 4K
 
-# SJCam SJ6 Legend VS Xiaomi Yi 4K ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# SJCam SJ6 Legend VS Xiaomi Yi 4K
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

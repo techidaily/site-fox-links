@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Explore Windows 11  Best New Gaming Titles\""
-date: 2024-06-25T15:15:54.109Z
-updated: 2024-06-26T15:15:54.109Z
+date: 2024-07-03T12:27:36.145Z
+updated: 2024-07-04T12:27:36.145Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/7e37922976a0cd02bd45d34c10fef6f069d63ae07
 
 ## Explore Windows 11: Best New Gaming Titles
 
-# Windows 10 Apps and Games to Explore and Download ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Windows 10 Apps and Games to Explore and Download
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -30,23 +31,28 @@ The first step towards downloading apps and games is that you need to have a Mic
 
 Once you have found your app tap or click on the install button right below the description. Button changes color. Read through the apps reviews and price to see if it’s for you. At the bottom of the individual store page you will see what platform the app works on and also the languages it supports. Here are some Apps you might find useful besides the music, videos and movie Apps.
 
-#### 1. App for Flipboard is Free ![flipboard](https://images.wondershare.com/filmora/article-images/flipboard.jpg)
+#### 1. App for Flipboard is Free
+![flipboard](https://images.wondershare.com/filmora/article-images/flipboard.jpg)
 
 If you like to follow news or spend time on social networks then perhaps you would like to download Flipboard. The App collects all the latest feeds from social networks and news sites and delivers them in package to you. You have stories from around the world to read or save for later. Try it since it’s all free
 
-#### 2. PowerPoint Template App ![powerpoint](https://images.wondershare.com/filmora/article-images/powerpoint.jpg)
+#### 2. PowerPoint Template App
+![powerpoint](https://images.wondershare.com/filmora/article-images/powerpoint.jpg)
 
 If you are into presentations then you could find Templates for PowerPoint App really useful. You can access a wide number of templates for PowerPoint and even modify them and customize features according to your requirements. It integrates easily into PowerPoint and has some worthwhile designs but you have to download it for $7.99.
 
-#### 3. Adobe's Photoshop Express ![adobe](https://images.wondershare.com/filmora/article-images/adobe.png)
+#### 3. Adobe's Photoshop Express
+![adobe](https://images.wondershare.com/filmora/article-images/adobe.png)
 
 Another app that is free is the Photoshop Express. Users can load photos into the software and tweak the images. It might not be a total Photoshop but does a good job and since it is touch compatible you can work with it on a tablet too.
 
-#### 4. Netflix for video streaming ![netflix](https://images.wondershare.com/filmora/article-images/netflix.jpg)
+#### 4. Netflix for video streaming
+![netflix](https://images.wondershare.com/filmora/article-images/netflix.jpg)
 
 This App allows you to use the streaming video service and is available on tablets, phones and PC. The app remembers where you left off watching and even shows you lists for TV shows and movies. It is likely to be aligned with Xbox app.
 
-#### 5. Microsoft SmartGlass App ![smart](https://images.wondershare.com/filmora/article-images/smart.jpg)
+#### 5. Microsoft SmartGlass App
+![smart](https://images.wondershare.com/filmora/article-images/smart.jpg)
 
 This app enables PCs to connect to and also control the Xbox console. You can also track game player achievements and buy Xbox games online. Since Xbox One doubles up as media box users can also control their TVs from the PC with SmartGlass.
 

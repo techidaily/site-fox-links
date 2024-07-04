@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Simple Windows 11 Techniques for Video Editing\""
-date: 2024-06-25T15:08:11.808Z
-updated: 2024-06-26T15:08:11.808Z
+date: 2024-07-03T12:27:35.597Z
+updated: 2024-07-04T12:27:35.597Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
 ## Simple Windows 11 Techniques for Video Editing
 
-# How to Trim Video in Windows 10 Photos Easily ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Trim Video in Windows 10 Photos Easily
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

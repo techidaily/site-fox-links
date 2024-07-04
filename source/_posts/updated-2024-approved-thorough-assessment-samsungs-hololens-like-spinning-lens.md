@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Thorough Assessment  Samsung's Hololens-Like Spinning Lens\""
-date: 2024-06-25T14:57:27.217Z
-updated: 2024-06-26T14:57:27.217Z
+date: 2024-07-03T12:27:31.051Z
+updated: 2024-07-04T12:27:31.051Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/4b0cf62f8598176374094f1d5008db55cda943f9c
 
 ## Thorough Assessment: Samsung's Hololens-Like Spinning Lens
 
-# Complete Review for Samsung Gear 360 Camera ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+# Complete Review for Samsung Gear 360 Camera
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 

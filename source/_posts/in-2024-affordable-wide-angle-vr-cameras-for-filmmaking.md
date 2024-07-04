@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Affordable Wide-Angle VR Cameras for Filmmaking\""
-date: 2024-06-25T15:43:06.931Z
-updated: 2024-06-26T15:43:06.931Z
+date: 2024-07-03T12:27:37.442Z
+updated: 2024-07-04T12:27:37.442Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7
 
 ## Affordable Wide-Angle VR Cameras for Filmmaking
 
-# Top 10 Affordable 360 Degree Cameras ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+# Top 10 Affordable 360 Degree Cameras
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 

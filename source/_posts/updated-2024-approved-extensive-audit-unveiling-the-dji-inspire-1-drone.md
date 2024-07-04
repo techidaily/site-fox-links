@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Extensive Audit  Unveiling the DJI Inspire 1 Drone\""
-date: 2024-06-25T15:34:36.327Z
-updated: 2024-06-26T15:34:36.327Z
+date: 2024-07-03T12:27:37.742Z
+updated: 2024-07-04T12:27:37.742Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/a5f798f7cf1ad15667826396aa244ceb4353a103f
 
 ## Extensive Audit: Unveiling the DJI Inspire 1 Drone
 
-# Complete Review for DJI Inspire 1 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Complete Review for DJI Inspire 1
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -71,7 +72,8 @@ thumbnail: https://thmb.techidaily.com/a5f798f7cf1ad15667826396aa244ceb4353a103f
 
  The range on this drone is nothing short of professional with a 1.2 mile radio control for each receiver. Having access to this type of range ensures that you can film aerial shots quite comfortably as well as film shots on the move. The range of the controllers with this drone will often push you to the limit of sight line rules for drone flight.
 
-#### 6\.  Dual operator function ![dji inspire 1 controller](https://images.wondershare.com/filmora/article-images/dji-inspire-1-controller.jpg)
+#### 6\.  Dual operator function
+![dji inspire 1 controller](https://images.wondershare.com/filmora/article-images/dji-inspire-1-controller.jpg)
 
  With the dual operator function on this drone it becomes very easy to have one operator control the Jerome for smooth flight and another one easily control the camera on the drone for a better picture. Operating with two controls ensures that a more professional shooting style can be achieved.
 

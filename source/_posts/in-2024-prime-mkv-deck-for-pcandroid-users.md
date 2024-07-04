@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Prime MKV Deck for PC/Android Users"
-date: 2024-06-25T15:06:42.156Z
-updated: 2024-06-26T15:06:42.156Z
+date: 2024-07-03T12:27:30.947Z
+updated: 2024-07-04T12:27:30.947Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/a6c09f57496c52b8e907a972b91ffe1ac4bdb6bfa
 
 ## Prime MKV Deck for PC/Android Users
 
-# Best mkv player for PC and mobile ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# Best mkv player for PC and mobile
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

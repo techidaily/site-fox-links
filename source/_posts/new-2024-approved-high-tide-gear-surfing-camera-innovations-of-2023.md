@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  High Tide Gear  Surfing Camera Innovations of 2023\""
-date: 2024-06-25T15:40:47.295Z
-updated: 2024-06-26T15:40:47.295Z
+date: 2024-07-03T12:27:37.059Z
+updated: 2024-07-04T12:27:37.059Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/873f9c54a1afdeacaf0a7bf0a90200e4a3988d188
 
 ## High Tide Gear: Surfing Camera Innovations of 2023
 
-# Top 10 Action Cameras for Surfing ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 10 Action Cameras for Surfing
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -76,11 +77,13 @@ With 4K recording facility and advanced optical image stabilization, the Sony FD
 
 The Contour+2 is an HD type action camcorder that allows users to enjoy 5 MP photos along with high definition video recording. This device can be easily mounted on any surface and the flush lenses can rotate up to 270 degrees to cover wider view. The MicroSD card can serve with maximum storage capacity of 32GB whereas so many modes are available for recording. It comes with 196’ underwater casing so that you can capture scenes underwater so easily.
 
-#### 6\. Fuji Film Fine Pix XP120 - $299.95 ![Fuji Film Fine Pix XP120](https://images.wondershare.com/filmora/article-images/fuji-film-fine-pix-xp120.jpg)
+#### 6\. Fuji Film Fine Pix XP120 - $299.95
+![Fuji Film Fine Pix XP120](https://images.wondershare.com/filmora/article-images/fuji-film-fine-pix-xp120.jpg)
 
 This is a sleek but rugged type compact camera unit that possess amazing imaging abilities along with wireless sharing feature, shock resistant construction, freeze resistant material, dustproof design and robust waterproof body. The full HD videos can be recorded at 1080p with 10 frames/ second and still quality goes up to 16.4 MP. The optical type image stabilization feature along with wide focal length of camera makes everything much impressive in your shooting results.
 
-#### 7\. Intova DUB Camera - $119.99 ![Intova DUB Camera](https://images.wondershare.com/filmora/article-images/intova-dub-action-camera.jpg)
+#### 7\. Intova DUB Camera - $119.99
+![Intova DUB Camera](https://images.wondershare.com/filmora/article-images/intova-dub-action-camera.jpg)
 
 This DUB action camera unit is available with waterproof casing so that divers can enjoy breathtaking video recordings even at 200 feet under water. The build in mic facility makes your videos more impressive whereas 32GB storage offers by MicroSD card makes date handling much easier. The rechargeable type lithium ion battery of this device can serve you for 120 minutes and you can transfer your memories easily to computer via USB port.
 

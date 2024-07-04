@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Perfecting Your Video with Story Remix & Windows Photos"
-date: 2024-06-25T14:59:08.281Z
-updated: 2024-06-26T14:59:08.281Z
+date: 2024-07-03T12:27:35.753Z
+updated: 2024-07-04T12:27:35.753Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/72f5184d5296c1cbee8c85039f08d18862c38c7bc
 
 ## Perfecting Your Video with Story Remix & Windows Photos
 
-# How to Use Story Remix to Edit a Video in Windows 10 Photos ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Use Story Remix to Edit a Video in Windows 10 Photos
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

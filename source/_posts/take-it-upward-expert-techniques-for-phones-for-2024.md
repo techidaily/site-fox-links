@@ -1,7 +1,7 @@
 ---
 title: "\"Take It Upward  Expert Techniques for Phones for 2024\""
-date: 2024-06-25T15:23:21.821Z
-updated: 2024-06-26T15:23:21.821Z
+date: 2024-07-03T12:27:37.107Z
+updated: 2024-07-04T12:27:37.107Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/fbaa6ca73b5c5357b713260d15cd44fa4ef0636a4
 
 ## Take It Upward: Expert Techniques for Phones
 
-# How to Shoot Vertical Panorama Photos with Your Smartphone Android/iOS ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Shoot Vertical Panorama Photos with Your Smartphone Android/iOS
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

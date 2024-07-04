@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Quantum HDR Unveiled  Insightful Guide for Professionals for 2024\""
-date: 2024-06-25T15:58:07.735Z
-updated: 2024-06-26T15:58:07.735Z
+date: 2024-07-03T12:27:33.479Z
+updated: 2024-07-04T12:27:33.479Z
 tags: 
   - screen-recording
   - ai video
@@ -30,7 +30,8 @@ Perhaps you’ve heard about Quantum HDR once or twice, but you still didn't kno
 
 Here, we've covered all you need to know about Quantum HDR. So it's advisable that you read this article till the end.
 
-## Part 1: What is Quantum HDR ![quantum hdr](https://images.wondershare.com/filmora/article-images/2022/07/quantum-hdr-everything-you-may-want-to-know-about-quantum-hdr-1.jpg)
+## Part 1: What is Quantum HDR
+![quantum hdr](https://images.wondershare.com/filmora/article-images/2022/07/quantum-hdr-everything-you-may-want-to-know-about-quantum-hdr-1.jpg)
 
 Just as the name suggests, Quantum HDR is a combination of two amazing technologies namely, ‘Quantum Dots and HDR (High dynamic range).
 

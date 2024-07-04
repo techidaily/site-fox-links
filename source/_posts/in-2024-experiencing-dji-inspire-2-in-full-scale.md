@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Experiencing DJI Inspire 2 in Full Scale"
-date: 2024-06-25T14:57:02.486Z
-updated: 2024-06-26T14:57:02.486Z
+date: 2024-07-03T12:27:37.286Z
+updated: 2024-07-04T12:27:37.286Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/6d060e78cf4821c16957dc0af5764350800050d4c
 
 ## Experiencing DJI Inspire 2 in Full Scale
 
-# DJI Inspire 2 Full Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# DJI Inspire 2 Full Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -88,7 +89,8 @@ thumbnail: https://thmb.techidaily.com/6d060e78cf4821c16957dc0af5764350800050d4c
 
  The control unit of DJI Inspire 2 works on two frequency ranges: one is 2.4 GHz and another is 5.8 GHz. It supports Lightbridge technology for effective results and the controllable range goes up to 4.3mi or 7 Km. The controller works in master slave mode and the best part is that it can support multiple slaves so you can have amazing time with friends while flying your drone in air.
 
-#### 6. Camera ![dji inspire 2 camera](https://images.wondershare.com/filmora/article-images/dji-inspire-2-camera.jpg)
+#### 6. Camera
+![dji inspire 2 camera](https://images.wondershare.com/filmora/article-images/dji-inspire-2-camera.jpg)
 
  DJI Inspire 2 offers breathtaking results for aerial footage where  encoding format is supported. Professionals love to use this drone for aerial shooting due to its ability to serve with 5.2 K resolution that provides breathtaking and crystal clear results for every minute detail. The live view images can be transferred with 1080 p resolution level and they follow extreme power for transfer speeds with 108Km/h. This drone camera unit is capable enough to serve recording needs of users who perform stunts on vehicles, boats and snowboards.
 

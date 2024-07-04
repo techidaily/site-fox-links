@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Pace Perfection  Snappy Windows 11 Image Tips\""
-date: 2024-06-25T15:47:11.048Z
-updated: 2024-06-26T15:47:11.048Z
+date: 2024-07-03T12:27:32.377Z
+updated: 2024-07-04T12:27:32.377Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/729729197b22ccebe2bbfe977aa7bc85dbf69a72f
 
 ## Pace Perfection: Snappy Windows 11 Image Tips
 
-# How to Easily and Quickly Draw on Photos App in Windows 10 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Easily and Quickly Draw on Photos App in Windows 10
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

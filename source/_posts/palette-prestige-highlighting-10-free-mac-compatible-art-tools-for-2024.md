@@ -1,7 +1,7 @@
 ---
 title: "\"Palette Prestige  Highlighting 10 Free, Mac-Compatible Art Tools for 2024\""
-date: 2024-06-25T15:31:21.327Z
-updated: 2024-06-26T15:31:21.327Z
+date: 2024-07-03T12:27:32.705Z
+updated: 2024-07-04T12:27:32.705Z
 tags: 
   - screen-recording
   - ai video
@@ -81,7 +81,8 @@ You can go to <https://paintbrush.sourceforge.io/downloads/> to learn more about
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-## A cross-platform for making videos anywhere for all creators ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+## A cross-platform for making videos anywhere for all creators
+![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -276,7 +277,8 @@ You can go to <https://paintbrush.sourceforge.io/downloads/> to learn more about
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-## A cross-platform for making videos anywhere for all creators ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+## A cross-platform for making videos anywhere for all creators
+![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -471,7 +473,8 @@ You can go to <https://paintbrush.sourceforge.io/downloads/> to learn more about
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-## A cross-platform for making videos anywhere for all creators ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+## A cross-platform for making videos anywhere for all creators
+![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -666,7 +669,8 @@ You can go to <https://paintbrush.sourceforge.io/downloads/> to learn more about
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-## A cross-platform for making videos anywhere for all creators ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+## A cross-platform for making videos anywhere for all creators
+![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
  Why your video editing isn't good enough? How about some creative inspo?
 

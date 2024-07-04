@@ -1,7 +1,7 @@
 ---
 title: "[New] Top 10 Free Slideshow Designs for Easy Presentations"
-date: 2024-06-25T15:41:51.366Z
-updated: 2024-06-26T15:41:51.366Z
+date: 2024-07-03T12:27:34.844Z
+updated: 2024-07-04T12:27:34.844Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/696965aa1a0f4c21fdfd456761bb63f354f50ffc3
 
 ## Top 10 Free Slideshow Designs for Easy Presentations
 
-# 10 Best Sites to Download Free Slideshow Templates ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# 10 Best Sites to Download Free Slideshow Templates
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

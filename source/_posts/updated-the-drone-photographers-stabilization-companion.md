@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Drone Photographer's Stabilization Companion"
-date: 2024-06-25T15:13:02.394Z
-updated: 2024-06-26T15:13:02.394Z
+date: 2024-07-03T12:27:32.332Z
+updated: 2024-07-04T12:27:32.332Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/fdc872e52961baec6923b458dbd6d98e67f3ed40f
 
 ## The Drone Photographer's Stabilization Companion
 
-# How to Choose a Camera Gimbal for Your Drone ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Choose a Camera Gimbal for Your Drone
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

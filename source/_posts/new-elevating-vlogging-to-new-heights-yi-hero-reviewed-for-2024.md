@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Elevating Vlogging to New Heights  Yi Hero Reviewed for 2024\""
-date: 2024-06-25T15:27:08.233Z
-updated: 2024-06-26T15:27:08.233Z
+date: 2024-07-03T12:27:33.156Z
+updated: 2024-07-04T12:27:33.156Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d
 
 ## Elevating Vlogging to New Heights: Yi Hero Reviewed
 
-# Yi 4K + Action Camera Complete Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Yi 4K + Action Camera Complete Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

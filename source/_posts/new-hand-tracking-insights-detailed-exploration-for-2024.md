@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Hand Tracking Insights  Detailed Exploration for 2024\""
-date: 2024-06-25T15:29:34.544Z
-updated: 2024-06-26T15:29:34.544Z
+date: 2024-07-03T12:27:35.661Z
+updated: 2024-07-04T12:27:35.661Z
 tags: 
   - screen-recording
   - ai video
@@ -138,7 +138,8 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
-##### Step4 Creating Method For Tracking Hands In Input Image ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
+##### Step4 Creating Method For Tracking Hands In Input Image
+![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
 
@@ -290,7 +291,8 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
-##### Step4 Creating Method For Tracking Hands In Input Image ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
+##### Step4 Creating Method For Tracking Hands In Input Image
+![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
 

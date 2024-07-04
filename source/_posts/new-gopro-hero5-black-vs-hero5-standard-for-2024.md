@@ -1,7 +1,7 @@
 ---
 title: "[New] GoPro Hero5 Black vs Hero5 Standard for 2024"
-date: 2024-06-25T15:52:58.706Z
-updated: 2024-06-26T15:52:58.706Z
+date: 2024-07-03T12:27:34.289Z
+updated: 2024-07-04T12:27:34.289Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/de6795aa500edeb21b509dd38328958388c423fd6
 
 ## GoPro Hero5 Black vs Hero5 Standard
 
-# GoPro Hero5 Black Vs Hero5 Session ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# GoPro Hero5 Black Vs Hero5 Session
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

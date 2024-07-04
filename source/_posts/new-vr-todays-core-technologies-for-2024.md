@@ -1,7 +1,7 @@
 ---
 title: "[New] VR Today's Core Technologies for 2024"
-date: 2024-06-25T15:13:38.644Z
-updated: 2024-06-26T15:13:38.644Z
+date: 2024-07-03T12:27:31.608Z
+updated: 2024-07-04T12:27:31.608Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
 
 ## VR Today's Core Technologies
 
-# Current state of VR hardware ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# Current state of VR hardware
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

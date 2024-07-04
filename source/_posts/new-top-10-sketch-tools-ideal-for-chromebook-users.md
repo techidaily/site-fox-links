@@ -1,7 +1,7 @@
 ---
 title: "[New] Top 10 Sketch Tools Ideal for Chromebook Users"
-date: 2024-06-25T15:38:35.553Z
-updated: 2024-06-26T15:38:35.553Z
+date: 2024-07-03T12:27:33.037Z
+updated: 2024-07-04T12:27:33.037Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/9f62d3731a8382b4f3dd399792beace27de12660d
 
 ## Top 10 Sketch Tools Ideal for Chromebook Users
 
-# FREE Best Drawing Apps for Chromebook ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# FREE Best Drawing Apps for Chromebook
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

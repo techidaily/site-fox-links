@@ -1,7 +1,7 @@
 ---
 title: "\"Transforming iPhone Photos  Upside-Down & Sideways Tricks\""
-date: 2024-06-25T15:32:08.305Z
-updated: 2024-06-26T15:32:08.305Z
+date: 2024-07-03T12:27:33.769Z
+updated: 2024-07-04T12:27:33.769Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/50a0e21454dc02c593e958f3f8488f7e3d42941b9
 
 ## Transforming iPhone Photos: Upside-Down & Sideways Tricks
 
-# How to Rotate Your Upside Down and Sideway Photos on iPhone ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Rotate Your Upside Down and Sideway Photos on iPhone
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -44,7 +45,8 @@ thumbnail: https://thmb.techidaily.com/50a0e21454dc02c593e958f3f8488f7e3d42941b9
 
  It's the button at the bottom which looks like three lines with circles on them.
 
-#### 4\. Tap the 'crop' button ![](https://images.wondershare.com/filmora/article-images/rotate-iphone-photos.jpg)
+#### 4\. Tap the 'crop' button
+![](https://images.wondershare.com/filmora/article-images/rotate-iphone-photos.jpg)
 
  Image resource: imore.com
 
@@ -80,7 +82,8 @@ thumbnail: https://thmb.techidaily.com/50a0e21454dc02c593e958f3f8488f7e3d42941b9
 
  Take a glance at the lens position on the back of the phone. Whether you're taking a portrait or landscape picture, the lens should always be at the top.
 
-#### 2\. Practice holding it the right way up ![](https://images.wondershare.com/filmora/article-images/rotate-iphone-photos-3.jpg)
+#### 2\. Practice holding it the right way up
+![](https://images.wondershare.com/filmora/article-images/rotate-iphone-photos-3.jpg)
 
  Image resource: imore.com
 

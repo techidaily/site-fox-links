@@ -1,7 +1,7 @@
 ---
 title: "Best HD Action Recorder Brands Under $100"
-date: 2024-06-25T15:27:44.488Z
-updated: 2024-06-26T15:27:44.488Z
+date: 2024-07-03T12:27:34.103Z
+updated: 2024-07-04T12:27:34.103Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/669bc1413d235f8908afbf69f357ad5578fda1c30
 
 ## Best HD Action Recorder Brands Under $100
 
-# Top 5 Best Full HD Action Cameras Below $100 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 5 Best Full HD Action Cameras Below $100
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -28,7 +29,8 @@ thumbnail: https://thmb.techidaily.com/669bc1413d235f8908afbf69f357ad5578fda1c30
 
 ## Top 5 Best Full HD Action Cameras Below $100
 
-#### 1. Drift Innovation STEALTH-2 ![drift ghost s](//images.wondershare.com/filmora/article-images/drift-innocations-ghost-s-1.jpg)
+#### 1. Drift Innovation STEALTH-2
+![drift ghost s](//images.wondershare.com/filmora/article-images/drift-innocations-ghost-s-1.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00MCWWL0G/ref=as%5Fli%5Fqf%5Fsp%5Fasin%5Fil%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00MCWWL0G&linkId=18467dac61fdbb82717c78990474d825)
 
@@ -41,7 +43,8 @@ thumbnail: https://thmb.techidaily.com/669bc1413d235f8908afbf69f357ad5578fda1c30
 
 This device copies so many features from the all time favorite Ghost-S action camera unit. The easy mounting options, discrete design and automotive control features- all these impressive additions make this action camera best buy product for beginners as well as professionals. As Ghost S users were searching for a feature rich but lightweight and compact action camera unit from long past so this time Drift Innovation STEALTH-2 can serve their all requirements. Some of its incredible features include three hour long battery life, quick orientation adjustments without additional mounts and lens designs are quite impressive. You may find little trouble with brighter shoots but all details are well managed at high contrast levels. This is one of the most popular model in 2017 so far.
 
-#### 2. Polaroid XS100i Wi-Fi Waterproof Action Camera ![polaroid xs 100i](https://images.wondershare.com/filmora/article-images/polaroid-xs-100i-1.jpg)
+#### 2. Polaroid XS100i Wi-Fi Waterproof Action Camera
+![polaroid xs 100i](https://images.wondershare.com/filmora/article-images/polaroid-xs-100i-1.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f)
 
@@ -54,7 +57,8 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
  Polaroid S XS100 is designed with lots of advanced features so that users can enjoy fast and detailed movements with each shot. Its 170 degree FOV capability ensures wide focus whereas the battery can serve you for 2 ½ hours when you are recording at 1080p resolution level. You need not to buy any additional protective case for this device as it is waterproof up to 30 feet. The fish eye lenses make it barrel free and its shock resistant design allows users to enjoy immersive recording experience even in tough weather conditions. You will love to explore its easy functionality via smartphone using Wi-Fi connectivity or specially designed application.
 
-#### 3. Polaroid Cube + 1440p Wi-Fi ![polaroid cube plus](https://images.wondershare.com/filmora/article-images/polaroid-cube-plus.jpg)
+#### 3. Polaroid Cube + 1440p Wi-Fi
+![polaroid cube plus](https://images.wondershare.com/filmora/article-images/polaroid-cube-plus.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e)
 
@@ -67,7 +71,8 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
  Polaroid Cube Plus is well known for its compact size and light weight construction and the wireless connectivity assists in effective remote controlling. The advanced photo and video recording features offer slow motion, time lapse capture abilities and Full HD recording can go with 60fps frame rate. This product is accompanies by a protective case and microSD card that offers 8GB storage. The Cube+ device offers 124 degree wide angle of view and its weather proof as well as shock proof design make it best choice for little rain or snowy mountain recording needs. Cube+ offers simple operation, impressive design and breathtaking video quality with its reasonable price range. You can easily control it from iOS or android using wireless connectivity feature and device screen can better act as a viewfinder with this device.
 
-#### 4. Xiaomi Yi ![yi action amera](https://images.wondershare.com/filmora/article-images/yi-action-camera.jpg)
+#### 4. Xiaomi Yi
+![yi action amera](https://images.wondershare.com/filmora/article-images/yi-action-camera.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01C89GCHU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C89GCHU&linkId=0fa33bbe15256887fcfa7957bd8e3a3a)
 
@@ -80,7 +85,8 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
  Xiaomi Yi is a new action camera unit with wide range of interesting features. It can record Full HD videos seamlessly whereas advanced noise reduction and image stabilization features make footage more interesting. Users can switch between different recording modes depending upon their mood and the advance 16MP image sensor grabs perfect shots even in low light conditions. You will love to explore its wide angle focus during action photography whereas built in Wi-Fi facility make it more suitable for enjoying live preview of recording on phone screen. Four popular shooting modes are burst mode, self timer mode, time lapse mode and single mode.
 
-#### 5. iON Camera Air Pro 2 ![ino airpro2](https://images.wondershare.com/filmora/article-images/ino-air-pro-3.jpg)
+#### 5. iON Camera Air Pro 2
+![ino airpro2](https://images.wondershare.com/filmora/article-images/ino-air-pro-3.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00CKPMHSQ/ref=as%5Fli%5Fqf%5Fsp%5Fasin%5Fil%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00CKPMHSQ&linkId=10f82ce1fa07ee60640f908cfbf0d05c)
 

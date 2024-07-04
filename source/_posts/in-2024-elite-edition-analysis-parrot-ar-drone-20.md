@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Elite Edition Analysis - Parrot AR Drone 2.0\""
-date: 2024-06-25T15:51:17.641Z
-updated: 2024-06-26T15:51:17.641Z
+date: 2024-07-03T12:27:30.614Z
+updated: 2024-07-04T12:27:30.614Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/b9b05a126aedfd2f1ee9a14603409ac5ab4c281dd
 
 ## Elite Edition Analysis - Parrot AR Drone 2.0
 
-# Review for Parrot AR Drone 2.0 Elite Edition ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Review for Parrot AR Drone 2.0 Elite Edition
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

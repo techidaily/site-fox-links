@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Onscreen Excellence  Video Talent Licensing\""
-date: 2024-06-25T15:14:45.392Z
-updated: 2024-06-26T15:14:45.392Z
+date: 2024-07-03T12:27:37.515Z
+updated: 2024-07-04T12:27:37.515Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
 ## Onscreen Excellence: Video Talent Licensing
 
-# Talent Release Form for Filming and Video to Free Download ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# Talent Release Form for Filming and Video to Free Download
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

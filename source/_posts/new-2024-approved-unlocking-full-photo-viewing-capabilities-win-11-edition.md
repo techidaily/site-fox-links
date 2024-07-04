@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unlocking Full Photo Viewing Capabilities  Win 11 Edition\""
-date: 2024-06-25T15:14:09.165Z
-updated: 2024-06-26T15:14:09.165Z
+date: 2024-07-03T12:27:36.424Z
+updated: 2024-07-04T12:27:36.424Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 
 ## Unlocking Full Photo Viewing Capabilities: Win 11 Edition
 
-# How to Restore Windows Photo Viewer in Windows 10 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Restore Windows Photo Viewer in Windows 10
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

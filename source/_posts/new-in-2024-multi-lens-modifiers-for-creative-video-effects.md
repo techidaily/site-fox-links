@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Multi-Lens Modifiers for Creative Video Effects\""
-date: 2024-06-25T15:14:12.043Z
-updated: 2024-06-26T15:14:12.043Z
+date: 2024-07-03T12:27:35.896Z
+updated: 2024-07-04T12:27:35.896Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/1acb8c811dd75a749590a9459a8ce73dd17ec95c9
 
 ## Multi-Lens Modifiers for Creative Video Effects
 
-# Smartphone Accessories for Making Videos ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# Smartphone Accessories for Making Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 
@@ -32,25 +33,29 @@ The best smartphone accessories are lightweight and require as little setup as p
 
 Here are four of the best accessories for shooting videos on your smartphone:
 
-#### 1\. Clip-On Lenses ![tips on lenses](https://images.wondershare.com/filmora/article-images/accessories-clip-on-lenses.JPG)
+#### 1\. Clip-On Lenses
+![tips on lenses](https://images.wondershare.com/filmora/article-images/accessories-clip-on-lenses.JPG)
 
 When you use a DSLR you generally have a lot more control over your images than when you record using other kinds of cameras. Part of this is due to the variety of lenses that are available for DSLRs. Most cameras only have the one built-in lens, but DSLRs have detachable lenses you can change to create different effects. Using Clip-On Lenses you can adjust the built-in lens of your smartphone camera to create these same kinds of effects.
 
 Clip-On Lenses are tiny, which makes them convenient for carrying around. Using them is as easy as clipping them right over your smartphone camera lens. Sets of Clip-On Lenses can be found for under $50.
 
-#### 2\. Pistol Grip ![pistol grip](https://images.wondershare.com/filmora/article-images/accessories-pistol-grip.JPG)
+#### 2\. Pistol Grip
+![pistol grip](https://images.wondershare.com/filmora/article-images/accessories-pistol-grip.JPG)
 
 It will not matter how clear and sharp your videos are if they are shaky. To avoid the stereotypically shaky ‘cellphone vid’ look you will need to stabilize your phone while you record, and there are a lot of ways you can do that. Mounting your phone on a Pistol Grip is one of them.
 
 Smartphones mounted on Pistol Grips will record more stable footage while you walk around with them, and the many Pistol Grips will also attach to a tripod or monopod. If you already have a tripod for a different camera a pistol grip will allow you to use it for your smartphone as well without purchasing a second tripod mount. Pistol Grips for mobile phones cost around $15.
 
-#### 3\. Selfie Stick ![selfiestick](https://images.wondershare.com/filmora/article-images/accessories-selfiestick.jpg)
+#### 3\. Selfie Stick
+![selfiestick](https://images.wondershare.com/filmora/article-images/accessories-selfiestick.jpg)
 
 Selfie Sticks are great for more than just taking selfies; using a selfie stick also helps you record more stable videos. Besides holding a selfie stick the way you normally do, with your hand on the grip, you can use your selfie stick a lot like you would a monopod. Simply place the handle on the floor, extend your selfie stick to the height you want to record at, and hold it still while you film. Your footage will be from one stable height.
 
 Selfie Sticks make it possible for you to record from a wider variety of angles, especially high angles. No smartphone videographer should be without a Selfie Stick. They cost about $40.
 
-#### 4\. LAV Mic ![lav mic](https://images.wondershare.com/filmora/article-images/accessories-lav-mic.JPG)
+#### 4\. LAV Mic
+![lav mic](https://images.wondershare.com/filmora/article-images/accessories-lav-mic.JPG)
 
 One of the biggest obstacles when shooting smartphone videos is capturing adequate audio. Not all videos need audio – sometimes you just want to use music – but if there is any speaking in your video then your audio becomes just as important as your visual recording. As great as most smartphone cameras are, the microphones that come with them usually lack that same quality. You can improve the quality of your audio recordings using a free program called Audacity, or you can get an external microphone.
 

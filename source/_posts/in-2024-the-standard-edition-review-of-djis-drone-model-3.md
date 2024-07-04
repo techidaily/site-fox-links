@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Standard Edition Review of DJI's Drone Model 3"
-date: 2024-06-25T15:57:47.833Z
-updated: 2024-06-26T15:57:47.833Z
+date: 2024-07-03T12:27:32.407Z
+updated: 2024-07-04T12:27:32.407Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/83e25eed69df3aa92880d650ba4560e8ba50f00f0
 
 ## The Standard Edition Review of DJI's Drone Model 3
 
-# Review for DJI Phantom 3 Standard ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Review for DJI Phantom 3 Standard
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

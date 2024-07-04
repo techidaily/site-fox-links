@@ -1,7 +1,7 @@
 ---
 title: "Best Editors on Smartphones for DJi Footage Excellence for 2024"
-date: 2024-06-25T15:12:23.217Z
-updated: 2024-06-26T15:12:23.217Z
+date: 2024-07-03T12:27:37.027Z
+updated: 2024-07-04T12:27:37.027Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/f2cea06ab8ae79e3da9341215d5a2b3791081a5d0
 
 ## Best Editors on Smartphones for DJi Footage Excellence
 
-# Best Mobile Editing Apps for DJI Videos ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Best Mobile Editing Apps for DJI Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

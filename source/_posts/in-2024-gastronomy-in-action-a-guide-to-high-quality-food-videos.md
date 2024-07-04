@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Gastronomy in Action  A Guide to High-Quality Food Videos\""
-date: 2024-06-25T15:06:41.204Z
-updated: 2024-06-26T15:06:41.204Z
+date: 2024-07-03T12:27:31.308Z
+updated: 2024-07-04T12:27:31.308Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
 ## Gastronomy in Action: A Guide to High-Quality Food Videos
 
-# Food Videography: How to Shoot Food Videos ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# Food Videography: How to Shoot Food Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

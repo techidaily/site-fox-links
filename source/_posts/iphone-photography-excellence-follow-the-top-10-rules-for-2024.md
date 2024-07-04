@@ -1,7 +1,7 @@
 ---
 title: "\"IPhone Photography Excellence  Follow the Top 10 Rules for 2024\""
-date: 2024-06-25T15:20:30.572Z
-updated: 2024-06-26T15:20:30.572Z
+date: 2024-07-03T12:27:37.411Z
+updated: 2024-07-04T12:27:37.411Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/f86055b0c210c48b3bc87c8b80af070af1138eb8b
 
 ## IPhone Photography Excellence: Follow the Top 10 Rules
 
-# 10 Photography Composition Rules for iPhone ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# 10 Photography Composition Rules for iPhone
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

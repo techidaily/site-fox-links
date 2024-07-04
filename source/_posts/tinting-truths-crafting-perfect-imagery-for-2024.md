@@ -1,7 +1,7 @@
 ---
 title: "\"Tinting Truths  Crafting Perfect Imagery for 2024\""
-date: 2024-06-25T15:30:34.634Z
-updated: 2024-06-26T15:30:34.634Z
+date: 2024-07-03T12:27:33.395Z
+updated: 2024-07-04T12:27:33.395Z
 tags: 
   - screen-recording
   - ai video
@@ -104,7 +104,8 @@ First, you need to select the specific video portion you want to change the colo
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
-##### Step3Apply the color correction preset that you want then click ok ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
+##### Step3Apply the color correction preset that you want then click ok
+![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
 You will notice that the color changes depending on your selected preset.
 

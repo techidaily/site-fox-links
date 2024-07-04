@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Color Keying Simplified  An All-Inclusive Beginner's Manual on Green Screens\""
-date: 2024-06-25T15:34:42.120Z
-updated: 2024-06-26T15:34:42.120Z
+date: 2024-07-03T12:27:33.837Z
+updated: 2024-07-04T12:27:33.837Z
 tags: 
   - screen-recording
   - ai video
@@ -191,7 +191,8 @@ Do not be fooled by article that claim they list free Chroma key or green screen
 
 In reality, the front-runner in the race for best green screen video editor is the [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Adobe has some nice products that may interest some people, but the best is still Wondershare Filmora. Here are a few for green screen video editors for your consideration.
 
-#### 1. Wondershare Filmora ![how do green screens work](https://images.wondershare.com/filmora/article-images/create-green-screen-by-filmora.jpg)
+#### 1. Wondershare Filmora
+![how do green screens work](https://images.wondershare.com/filmora/article-images/create-green-screen-by-filmora.jpg)
 
 It is a strong piece of video editing software that is perfectly able to handle green screening, and has many only editing features that will appeal to novice and professional film makers.
 
@@ -219,7 +220,8 @@ It's free to download. Have a try now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-#### 2. iMovie ![how do green screens work](https://images.wondershare.com/filmora/article-images/iMovie-Interface.jpg)
+#### 2. iMovie
+![how do green screens work](https://images.wondershare.com/filmora/article-images/iMovie-Interface.jpg)
 
 The iMovie program is the cheap and tacky entry in the video editing world. It is only available on the iOS and Mac, and is mostly suited for people who do not want to spend a lot of money on their video editing software.
 
@@ -243,7 +245,8 @@ The iMovie program is the cheap and tacky entry in the video editing world. It i
 
 \[- \] It is not customizable enough for a professional editor
 
-#### 3. Lightworks ![how do green screens work](https://images.wondershare.com/filmora/article-images/lightworks-interface.jpg)
+#### 3. Lightworks
+![how do green screens work](https://images.wondershare.com/filmora/article-images/lightworks-interface.jpg)
 
 Despite having a few advanced tools, this is probably the best example of bad design and marketing ideas in the video editing world. The free version is so clunky and awful that nobody would agree to buy the premium version. Furthermore, the GUI is terrible and very unintuitive. It looks like a cheap update of a 1990s editor.
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Panoramic Insights Digest"
-date: 2024-06-25T15:20:44.113Z
-updated: 2024-06-26T15:20:44.113Z
+date: 2024-07-03T12:27:33.648Z
+updated: 2024-07-04T12:27:33.648Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/e31e2df1b932fa534e864f0527ff09c3f70b9b1af
 
 ## Panoramic Insights Digest
 
-# Periscope Review ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# Periscope Review
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
