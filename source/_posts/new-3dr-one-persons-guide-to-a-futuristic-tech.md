@@ -1,7 +1,7 @@
 ---
 title: "\"[New] '3DR'  One Person’s Guide to a Futuristic Tech\""
-date: 2024-06-25T15:43:14.294Z
-updated: 2024-06-26T15:43:14.294Z
+date: 2024-07-12T07:03:14.458Z
+updated: 2024-07-13T07:03:14.458Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/07be777ce45c307461ad22ca534398f5c53e5285d
 
 ## '3DR': One Person’s Guide to a Futuristic Tech
 
-# 3DR Solo Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# 3DR Solo Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -61,7 +62,8 @@ thumbnail: https://thmb.techidaily.com/07be777ce45c307461ad22ca534398f5c53e5285d
 | Camera               | GoPro 3+/4                                  | Battery Life          | 20/22 minutes (5200 mAh, Li-ion) |
 | Video Resolution     | 4K/60P (as per GoPro Camera Specifications) | Rotors                | 4 replaceable (10 inch diameter) |
 
-#### 2\.  Design ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
+#### 2\.  Design
+![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
@@ -75,7 +77,8 @@ thumbnail: https://thmb.techidaily.com/07be777ce45c307461ad22ca534398f5c53e5285d
 
  This device possesses very simple and intuitive controls for flight with automated landing and takeoff feature. When you are ready for the flight, switch your drone and wait for one minute so that it can activate the GPS system and then press fly button. It will immediately move in the air and hover at about 4 feel height from ground. There are numerous flight modes over which users can easily switch from application: four video modes and five advanced flight modes. If you are a beginner in the world of drones then you may probably love its autonomous flying feature. In this mode, drone takes all flight decisions itself instead of depending on application based controls.
 
-#### 5\. Control Range ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
+#### 5\. Control Range
+![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
@@ -115,3 +118,44 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/master-classes-online-top-ten-subscriber-leaders/"><u>Master Classes Online  Top Ten Subscriber-Leaders</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-exclusive-charger-kits-for-gopro-hero5-official-and-alternative-models/"><u>[Updated] In 2024, Exclusive Charger Kits for GoPro Hero5 – Official & Alternative Models</u></a></li>
+<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-google-pixel-7a-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Google Pixel 7a</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-unraveling-the-mysteries-of-discord/"><u>[New] In 2024, Unraveling the Mysteries of Discord</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-the-expert-list-top-10-advanced-recording-software-tools/"><u>In 2024, The Expert List  Top 10 Advanced Recording Software Tools</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-oppo-a18-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Oppo A18</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-lg-bp550-features-and-reviews/"><u>Updated LG BP550 - Features & Reviews</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-exploring-the-land-of-virtual-possibilities/"><u>2024 Approved  Exploring the Land of Virtual Possibilities</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-popcorn-predictions-apples-no1-free-and-paid-film-watchers-guide/"><u>2024 Approved  Popcorn Predictions  Apple's No.1, Free & Paid Film Watchers Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/shaping-viewers-attention-employing-jump-cuts-in-video-editing/"><u>Shaping Viewers’ Attention  Employing Jump Cuts in Video Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-ultimate-guide-to-manipulating-image-shapes/"><u>2024 Approved  The Ultimate Guide to Manipulating Image Shapes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-social-media-sensation-kit-building-memes-on-9gag/"><u>[Updated] In 2024, The Social Media Sensation Kit  Building Memes on 9GAG</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-capturing-clarity-perfecting-image-description-via-text-in-pcmac/"><u>In 2024, Capturing Clarity  Perfecting Image Description via Text in PC/Mac</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-in-class-top-10-streamers-with-a-comparative-edge/"><u>2024 Approved  Best in Class  Top 10 Streamers with a Comparative Edge</u></a></li>
+<li><a href="https://fox-links.techidaily.com/dazzling-display-guide-for-android-videos-for-2024/"><u>Dazzling Display Guide for Android Videos for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-the-minefield-of-instasongs-and-rights/"><u>[Updated] Navigating the Minefield of InstaSongs and Rights</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-ensuring-smooth-sailing-for-iphone-xs-face-recognition/"><u>[Updated] In 2024, Ensuring Smooth Sailing for iPhone X's Face Recognition</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-how-to-make-your-memoji-talk-get-creative-with-your-messaging-for-2024/"><u>Updated How To Make Your Memoji Talk? Get Creative With Your Messaging for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-how-to-discern-and-assess-the-best-in-the-business-for-audio-post-production-excellence/"><u>Updated 2024 Approved How to Discern and Assess the Best in the Business for Audio Post-Production Excellence</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-your-ultimate-path-to-google-podcast-submission-for-2024/"><u>[Updated] Your Ultimate Path to Google Podcast Submission for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-cost-efficient-4k-camera-options-(1k/"><u>[Updated] In 2024, Cost-Efficient 4K Camera Options <$1K</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-kids-and-newbies-the-best-10-drones-out-there/"><u>In 2024, Kids and Newbies  The Best 10 Drones Out There</u></a></li>
+<li><a href="https://fox-links.techidaily.com/vanguard-designs-evaluation-studio-25-examined-current-year-for-2024/"><u>Vanguard Designs Evaluation  Studio 25 Examined, Current Year for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-synthesize-music-with-images-in-ppts/"><u>[Updated] In 2024, Synthesize Music with Images in PPTs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-fiscally-friendly-celestial-saving-service-for-files-for-2024/"><u>[Updated] The Fiscally Friendly Celestial Saving Service for Files for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/explore-15-essential-skills-for-recording-digital-music-for-2024/"><u>Explore 15 Essential Skills for Recording Digital Music for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/bass-bridges-and-high-beats-understanding-sound-mixing/"><u>Bass Bridges & High Beats  Understanding Sound Mixing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-roundup-post-vlc-media-players/"><u>[Updated] The Ultimate Roundup  Post-VLC Media Players</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-sony-xperia-10-v-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Sony Xperia 10 V to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-infinix-hot-30-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Infinix Hot 30 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-youtube-playback-tweaks-turn-off-auto-play-videos/"><u>[Updated] YouTube Playback Tweaks  Turn Off Auto-Play Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/crafting-successful-youtube-sponsorship-deals-for-2024/"><u>Crafting Successful YouTube Sponsorship Deals for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-counteract-bot-visitors-for-real-audience-growth/"><u>[New] 2024 Approved  Counteract Bot Visitors for Real Audience Growth</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-harmonic-halo-melodies-enriching-chats-on-whatsapp/"><u>[Updated] Harmonic Halo  Melodies Enriching Chats on WhatsApp</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-g42-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Nokia G42 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-engaging-audiences-the-path-to-instagram-video-fame-for-2024/"><u>[New] Engaging Audiences  The Path to Instagram Video Fame for 2024</u></a></li>
+</ul></div>

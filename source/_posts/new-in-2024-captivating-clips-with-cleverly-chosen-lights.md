@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Captivating Clips with Cleverly Chosen Lights"
-date: 2024-06-25T15:01:19.933Z
-updated: 2024-06-26T15:01:19.933Z
+date: 2024-07-12T06:16:30.879Z
+updated: 2024-07-13T06:16:30.879Z
 tags: 
   - screen-recording
   - ai video
@@ -44,15 +44,18 @@ A Fresnel lens is an optional attachment that can bounce the light off of the ce
 
 For this tutorial, we will use the Three-Point Lighting technique:
 
-##### Step1 Set the Key Light ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
+##### Step1 Set the Key Light
+![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
-##### Step2 Set the Fill Light ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
+##### Step2 Set the Fill Light
+![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
-##### Step3 Set the Backlight ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+##### Step3 Set the Backlight
+![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -119,3 +122,38 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-top-5-guitar-recording-software/"><u>New 2024 Approved Top 5 Guitar Recording Software</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-streamline-your-gameplay-professional-ps4-recording-tips/"><u>[New] Streamline Your Gameplay  Professional PS4 Recording Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-premiere-camera-lineup-for-high-definition-live-concert-videos/"><u>[New] Premiere Camera Lineup for High-Definition Live Concert Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-photographers-path-to-perfected-colors/"><u>[Updated] 2024 Approved  The Photographer's Path to Perfected Colors</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-earinsight-exploring-audio-samples/"><u>[Updated] In 2024, EarInsight  Exploring Audio Samples</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-acid-pro-effect-exploring-similar-tools-for-2024/"><u>The ACID Pro Effect  Exploring Similar Tools for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-picture-perfectionism-top-tools-and-sites-for-adding-frame-elements/"><u>[New] Picture Perfectionism  Top Tools & Sites for Adding Frame Elements</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-top-10-casual-pursuits-away-from-sports-fields/"><u>[New] In 2024, Top 10 Casual Pursuits Away From Sports Fields</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/precision-and-proficiency-youtube-edits-in-adobe-premiere-for-2024/"><u>Precision & Proficiency  YouTube Edits in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-high-definition-horizons-the-intricacies-of-dell-p2715q-screening-for-2024/"><u>[Updated] High-Definition Horizons  The Intricacies of Dell P2715Q Screening for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-capturing-sound-in-windows-11-explained/"><u>2024 Approved  Capturing Sound in Windows 11 Explained</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-a-deep-dive-into-instagrams-copyrighted-song-permissions/"><u>[Updated] A Deep Dive Into Instagram's Copyrighted Song Permissions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/radio-dramaturgys-finest-works/"><u>Radio Dramaturgy's Finest Works</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-sky-high-drone-competition-guide-plus-5-innovative-fpv-systems/"><u>[New] Sky High Drone Competition Guide + 5 Innovative FPV Systems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Oppo A18? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-novices-selection-guide-to-ideal-filming-cameras/"><u>[Updated] Novice's Selection Guide to Ideal Filming Cameras</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-advanced-techniques-in-developing-compelling-customer-success-narratives/"><u>[Updated] 2024 Approved  Advanced Techniques in Developing Compelling Customer Success Narratives</u></a></li>
+<li><a href="https://fox-links.techidaily.com/spectacular-20-anime-openers-hits-for-2024/"><u>Spectacular 20 Anime Openers' Hits for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ultimate-guide-to-premium-gopro-case-selection/"><u>Ultimate Guide to Premium GoPro Case Selection</u></a></li>
+<li><a href="https://driver-install.techidaily.com/direct-usb-driver-pack-for-versatile-oss-epson-2650/"><u>Direct USB Driver Pack for Versatile OSs - Epson 2650</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/asus-proart-pa-329q-evaluation-the-highest-quality-in-4k-professional-displays/"><u>Asus ProArt PA 329Q Evaluation – The Highest Quality in 4K Professional Displays</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-build-at-home-an-affordable-and-versatile-virtual-reality-headset/"><u>[Updated] In 2024, Build at Home an Affordable and Versatile Virtual Reality Headset</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-craft-a-memorable-youtube-channel-brand-for-more-viewers-for-2024/"><u>[Updated] Craft a Memorable YouTube Channel Brand for More Viewers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-incorporating-spiritual-sounds-on-cellphones-for-2024/"><u>[New] Incorporating Spiritual Sounds on Cellphones for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-gopro-hero5-session-vs-hero-session-for-2024/"><u>[Updated] GoPro Hero5 Session Vs Hero Session for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/step-into-professional-photoshop-mastering-luts-in-cs6cc/"><u>Step Into Professional Photoshop  Mastering LUTs in CS6/CC</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-a-detailed-review-of-murfai-ai-text-to-speech-tool/"><u>New In 2024, A Detailed Review of Murf.ai AI Text-to-Speech Tool</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-a-quick-fix-for-quirky-content-mastering-meme-creation-at-9gag/"><u>[Updated] A Quick Fix for Quirky Content  Mastering Meme Creation at 9GAG</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-8-stabilizers-optimal-tools-for-4k-camera-shooting/"><u>[New] Top 8 Stabilizers  Optimal Tools for 4K Camera Shooting</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-meme-crafters-companion-for-2024/"><u>[New] Meme Crafter's Companion for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-auditory-aesthetics-weaving-melodies-into-your-feed/"><u>In 2024, Auditory Aesthetics  Weaving Melodies Into Your Feed</u></a></li>
+</ul></div>

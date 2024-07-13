@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Hand-In-The-Wind  Understanding Its Types\""
-date: 2024-06-25T14:59:19.755Z
-updated: 2024-06-26T14:59:19.755Z
+date: 2024-07-12T06:14:15.334Z
+updated: 2024-07-13T06:14:15.334Z
 tags: 
   - screen-recording
   - ai video
@@ -138,7 +138,8 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
-##### Step4 Creating Method For Tracking Hands In Input Image ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
+##### Step4 Creating Method For Tracking Hands In Input Image
+![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
 
@@ -290,7 +291,8 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
-##### Step4 Creating Method For Tracking Hands In Input Image ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
+##### Step4 Creating Method For Tracking Hands In Input Image
+![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
 
@@ -357,3 +359,54 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-viral-eats-top-10-tiktok-cooking-challenges/"><u>[New] In 2024, Viral Eats  Top 10 TikTok Cooking Challenges</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-pricing-outline-the-cost-to-film-melodies-visually-for-2024/"><u>[New] Pricing Outline  The Cost to Film Melodies Visually for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-prime-video-recording-devices-top-10/"><u>[New] The Prime Video Recording Devices  Top 10</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-novices-compendium-understanding-pixel-perfection/"><u>[New] In 2024, Novice's Compendium  Understanding Pixel Perfection</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-seamless-shift-your-path-to-kinemaster-expertise/"><u>[New] The Seamless Shift  Your Path to Kinemaster Expertise</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-explore-a-variety-of-inexpensive-camera-models-suitable-for-making-slow-motion-footage-without-compromising-quality/"><u>New 2024 Approved Explore a Variety of Inexpensive Camera Models Suitable for Making Slow-Motion Footage without Compromising Quality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-chuckles-in-a-minute-how-to-whip-up-memes/"><u>[Updated] Chuckles in a Minute  How to Whip Up Memes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-incorporating-melodic-essence-into-your-creative-videos-with-premiere-pro/"><u>[Updated] 2024 Approved  Incorporating Melodic Essence Into Your Creative Videos with Premiere Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-20plus-digital-hubs-unlimited-image-access-for-all/"><u>[Updated] 2024 Approved  20+ Digital Hubs  Unlimited Image Access for All</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-crafting-engaging-full-degree-footage-with-adobe-premieres-state-of-the-art-tools/"><u>[Updated] 2024 Approved  Crafting Engaging Full Degree Footage with Adobe Premiere's State-of-the-Art Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-instant-access-extract-and-save-fb-videos-as-mp4s/"><u>[Updated] Instant Access  Extract and Save FB Videos as MP4s</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-realistic-or-risky-vrs-hidden-dangers-for-2024/"><u>[New] Realistic or Risky? VR's Hidden Dangers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-beyond-boxes-crafting-memorable-receiving-moments/"><u>[Updated] 2024 Approved  Beyond Boxes  Crafting Memorable Receiving Moments</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-next-level-video-top-webcam-filters-for-flawless-broadcasts/"><u>2024 Approved  Next Level Video  Top Webcam Filters for Flawless Broadcasts</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-13-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-lullabies-for-your-mind-no-stress-pcs/"><u>[New] In 2024, Lullabies for Your Mind  No-Stress PCs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-quick-fix-for-turning-yt-lists-backwards/"><u>[New] The Quick Fix for Turning YT Lists Backwards</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-assemble-an-impactful-visual-saga-with-montage-skills/"><u>[New] Assemble an Impactful Visual Saga with Montage Skills</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-becoming-a-snapshot-wizard-top-positions-for-iphone-photos-for-2024/"><u>[New] Becoming a Snapshot Wizard  Top Positions for iPhone Photos for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-noise-free-video-chats-with-skype/"><u>[New] Noise-Free Video Chats with Skype</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-11-passcode-without-computer-by-drfone-ios/"><u>How to Unlock iPhone 11 Passcode without Computer?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-discover-the-best-tools-to-monitor-and-boost-tiktok-engagement/"><u>[Updated] In 2024, Discover the Best Tools to Monitor and Boost TikTok Engagement</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-advanced-typography-animation-suites-for-2024/"><u>[Updated] Advanced Typography Animation Suites for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-se-2022-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-elevate-your-gaming-learn-xbox-zoom-use-for-2024/"><u>[New] Elevate Your Gaming  Learn Xbox Zoom Use for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/maximizing-visual-potential-with-hdr-technology/"><u>Maximizing Visual Potential with HDR Technology</u></a></li>
+<li><a href="https://fox-links.techidaily.com/peak-performance-memory-for-a7s-ii-for-2024/"><u>Peak Performance Memory for A7S II for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-evaluating-engagement-a-side-by-side-look-at-tiktok-and-snap/"><u>[New] Evaluating Engagement  A Side-by-Side Look at TikTok & Snap</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premium-audio-exploration-top-gpodc-picks/"><u>In 2024, Premium Audio Exploration  Top GPodC Picks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-full-guide-streamlining-your-files-in-the-digital-age-with-adobe-and-beyond/"><u>[New] In 2024, Full Guide  Streamlining Your Files in the Digital Age with Adobe & Beyond</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-in-depth-guide-to-automatic-text-generation-with-google-docs-voice-recognition/"><u>[New] 2024 Approved  In-Depth Guide to Automatic Text Generation with Google Docs Voice Recognition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-decoding-and-practicing-with-creative-commons-licenses/"><u>[Updated] In 2024, Decoding and Practicing with Creative Commons Licenses</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-instant-identity-protection-blur-image-edges/"><u>[Updated] In 2024, Instant Identity Protection  Blur Image Edges</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-enhance-your-aerial-imagery-dji-drones-get-20-free-luts/"><u>[New] In 2024, Enhance Your Aerial Imagery  DJI Drones Get 20 FREE LUTS</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-avian-melodies-audio-download/"><u>2024 Approved Avian Melodies Audio Download</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-fostering-fandom-creating-jujutsu-kaisen-content-for-tiktok/"><u>[New] 2024 Approved  Fostering Fandom  Creating Jujutsu Kaisen Content for TikTok</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unmatched-audio-and-video-elite-webcams-for-podcasting/"><u>[Updated] In 2024, Unmatched Audio & Video  Elite Webcams for Podcasting</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-live-stream-to-screen-seamlessly-reviewed/"><u>[Updated] Live-Stream to Screen, Seamlessly Reviewed</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-accelerated-adventures-fastest-flash-games-on-devices/"><u>[Updated] Accelerated Adventures  Fastest Flash Games on Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-a-step-by-step-guide-through-the-landscape-of-srt/"><u>[Updated] 2024 Approved  A Step-by-Step Guide Through the Landscape of SRT</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-tutorial-for-apple-music-and-video-mix/"><u>2024 Approved  The Ultimate Tutorial for Apple Music & Video Mix</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-best-8-online-locations-for-3d-text-psd-downloads/"><u>[New] 2024 Approved  Best 8 Online Locations for 3D Text PSD Downloads</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-revised-interview-guidelines-for-captivating-listeners/"><u>In 2024, Revised Interview Guidelines for Captivating Listeners</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-innovating-virtual-reality-gaming-the-2023-update/"><u>[New] Innovating Virtual Reality Gaming - The 2023 Update</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-best-wearable-camera-innovations/"><u>[Updated] 2024 Approved  Best Wearable Camera Innovations</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-converting-moments-into-art-gopro-studios-time-lapse-blueprint/"><u>[Updated] 2024 Approved  Converting Moments Into Art  GoPro Studio's Time Lapse Blueprint</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-paint-perfection-experts-guide-to-color-transformation-for-2024/"><u>[New] Paint Perfection  Expert's Guide to Color Transformation for 2024</u></a></li>
+</ul></div>

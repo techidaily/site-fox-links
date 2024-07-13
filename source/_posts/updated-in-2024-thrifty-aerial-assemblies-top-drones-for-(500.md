@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Thrifty Aerial Assemblies  Top Drones for <$500\""
-date: 2024-06-25T15:25:52.066Z
-updated: 2024-06-26T15:25:52.066Z
+date: 2024-07-12T06:43:53.462Z
+updated: 2024-07-13T06:43:53.462Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 
 ## Thrifty Aerial Assemblies: Top Drones for <$500
 
-# Top 5 Affordable Drones under $500 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 5 Affordable Drones under $500
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -37,7 +38,8 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 | UPair One Drone with 4K Camera Bundle | $399    | 18min       | 4k               | 800m          |
 | Walkera F210 3D Edition               | $449    | 9min        | 720p             | 1km           |
 
-#### DJI Phantom 3 Standard - Best drone under $500 ![dji phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg)
+#### DJI Phantom 3 Standard - Best drone under $500
+![dji phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B013U0F6EQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B013U0F6EQ&linkId=7eb3c6ed8291356e6acb86c74ddca833)
 
@@ -54,7 +56,8 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 * Photo: JPEG, DNG
 * Video: MP4, MOV (MPEG-4 AVC/)
 
-#### Parrot Bebop - Best quadcopters for learning aerial photography and videography ![parrot bebop](https://images.wondershare.com/filmora/article-images/parrot-bebop.jpg)
+#### Parrot Bebop - Best quadcopters for learning aerial photography and videography
+![parrot bebop](https://images.wondershare.com/filmora/article-images/parrot-bebop.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01K4U4O9S/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01K4U4O9S&linkId=559bfd9a35c5117ca75942a267175750)
 
@@ -72,7 +75,8 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 * Max altitude: 150 meters
 * Maximum speed: 29 mph
 
-#### Yuneec Breeze - The ultimate selfie drone for new and experienced pilots ![yuneec breeze](https://images.wondershare.com/filmora/article-images/yuneec-breeze.jpg)
+#### Yuneec Breeze - The ultimate selfie drone for new and experienced pilots
+![yuneec breeze](https://images.wondershare.com/filmora/article-images/yuneec-breeze.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01LANE77M/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LANE77M&linkId=36ad7237fd26bf3cb5012480c0e0957a)
 
@@ -95,13 +99,15 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 * White Balance
 * Internal Memory: 16 GB Flash
 
-#### 3DR Solo - Best Drone for GoPro ![3dr solo](https://images.wondershare.com/filmora/article-images/3dr-solo.jpg)
+#### 3DR Solo - Best Drone for GoPro
+![3dr solo](https://images.wondershare.com/filmora/article-images/3dr-solo.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=6e3a0783ff748b66e7ccc673543bde8f)
 
  If you are looking for affordable drones under $500 that works with GoPro then the 3D Solo should be right up your street. It can be purchased for under $300 and has professional features including first person view, compatibility with GoPro HERO3, HERO3+ and HERO4 and you can purchase a 3-axis gimbal to keep the camera stable while it is in flight as well as allowing you to take pictures and videos easily. You can use the included remote to control both the camera and drone so no fiddling about and it can take off automatically and return home with just one button being pressed to action it. Footage can be saved directly to your phone and you can get rid of unwanted footage in flight making it easier to store the parts you want to and make later editing easier. You can easily operate the drone in its automated modes so that the drone can follow pre-decided routes or follow you. This clever drone even includes a simulator for you to practice before using your drone which is great for those that want to perfect their flying skills. The battery lasts for up to 20 minutes of in-flight action per charge and to keep track there is a battery status so you don't run out in the middle of the flight.
 
-#### UPair One Drone with 4K Camera Bundle ![upair one drone with 4k camera bundle](https://images.wondershare.com/filmora/article-images/upair-one-drone-with-4k-camera-bundle.jpg)
+#### UPair One Drone with 4K Camera Bundle
+![upair one drone with 4k camera bundle](https://images.wondershare.com/filmora/article-images/upair-one-drone-with-4k-camera-bundle.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01M0YYO87/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M0YYO87&linkId=d3373098f24af25a42abdd84a32e0366)
 
@@ -116,7 +122,8 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 * 5400mAh Smart Battery
 * 11-15 minutes runtime with gimball and camera, 25 minutes without
 
-#### Walkera F210 3D Edition - Best racing drone ![walkera f210 3d edition](https://images.wondershare.com/filmora/article-images/walkera-f210-3d-edition.jpg)
+#### Walkera F210 3D Edition - Best racing drone
+![walkera f210 3d edition](https://images.wondershare.com/filmora/article-images/walkera-f210-3d-edition.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01EW0EPU4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01EW0EPU4&linkId=4c6a236382213dec0668e4971adfb53a)
 
@@ -162,3 +169,49 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-top-mobile-apps-for-flawless-snapchat-story-filters-and-effects-for-2024/"><u>[New] Top Mobile Apps for Flawless Snapchat Story Filters & Effects for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-audio-visual-transcript-maker-for-2024/"><u>[New] Audio Visual Transcript Maker for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/premium-matchmakers-15-perfect-gear-compatible-with-gopro/"><u>Premium Matchmakers  15 Perfect Gear Compatible with GoPro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-limitless-design-gratuitous-premiere-pro-templates-for-2024/"><u>[New] Limitless Design  Gratuitous Premiere Pro Templates for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-7-best-mp4-editors-on-mac-edit-mp4-in-mac/"><u>In 2024, 7 Best MP4 Editors on Mac Edit MP4 in Mac</u></a></li>
+<li><a href="https://fox-links.techidaily.com/standout-book-trailer-highlights-for-2024/"><u>Standout Book Trailer Highlights for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-lens-legends-top-six-selecting-high-quality-4k-dslrs-for-2024/"><u>[Updated] Lens Legends' Top Six  Selecting High-Quality 4K DSLRs for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/visual-enchantment-top-14-text-animation-highlights-for-2024/"><u>Visual Enchantment  Top 14 Text Animation Highlights for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-kickstart-your-telegram-promotion-journey-tips-for-newbies/"><u>[Updated] Kickstart Your Telegram Promotion Journey  Tips for Newbies</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-the-essential-guide-to-revamping-your-tiktok-identity-for-2024/"><u>[New] The Essential Guide to Revamping Your TikTok Identity for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-innovative-hubs-of-affordable-visual-content-sources/"><u>[Updated] Innovative Hubs of Affordable Visual Content Sources</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-fish-tastic-top-5-action-cameras-for-catch-for-2024/"><u>[New] Fish-Tastic  Top 5 Action Cameras for Catch for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-elevate-your-podcasts-name-game-10-ai-powered-options/"><u>[Updated] Elevate Your Podcast's Name Game  10 AI-Powered Options</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-luts-unlocking-color-grading-in-ar-and-vfx/"><u>[New] Mastering LUTs  Unlocking Color Grading in AR & VFX</u></a></li>
+<li><a href="https://fox-links.techidaily.com/photography-tutorial-how-to-shoot-and-create-impressive-hdr-portraits-for-2024/"><u>Photography Tutorial  How to Shoot and Create Impressive HDR Portraits for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-conquering-peaks-comparing-gopro-hero5-black-and-session-for-2024/"><u>[New] Conquering Peaks  Comparing GoPro Hero5 Black and Session for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-scripting-space-and-time-manipulation-for-movies-for-2024/"><u>[Updated] Scripting Space & Time Manipulation for Movies for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/disable-screen-lock-on-realme-gt-5-240w-by-drfone-android-unlock-android-unlock/"><u>Disable screen lock on Realme GT 5 (240W)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-step-into-the-future-microsofts-hololens-breakthrough/"><u>2024 Approved  Step Into the Future  Microsoft's HoloLens Breakthrough</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-how-to-download-youtube-videos-without-any-software/"><u>[New] In 2024, How to Download YouTube Videos without Any Software</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-blueprint-for-tiktok-media-transfer/"><u>[New] In 2024, The Ultimate Blueprint for TikTok Media Transfer</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-fundamentals-of-e-narrative-creation/"><u>[New] Fundamentals of E-Narrative Creation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-become-a-master-at-crafting-engaging-podcast-content-techniques-and-samples/"><u>[Updated] 2024 Approved  Become a Master at Crafting Engaging Podcast Content (Techniques & Samples)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-rhythmic-raptor-rumba/"><u>[New] In 2024, Rhythmic Raptor Rumba</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-scouting-for-subtle-sophisticated-and-spare-tiktok-screenshots/"><u>[Updated] Scouting for Subtle, Sophisticated, and Spare TikTok Screenshots</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-effective-visual-branding-crafting-compelling-youtube-logos/"><u>[Updated] In 2024, Effective Visual Branding  Crafting Compelling YouTube Logos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-humor-hacks-simplifying-the-process-of-meme-creation-for-2024/"><u>[New] Humor Hacks  Simplifying the Process of Meme Creation for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/the-allure-of-tiktok-animation-songs-dances-and-laughter-for-2024/"><u>The Allure of TikTok  Animation, Songs, Dances & Laughter for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-effortlessly-transform-youtube-tunes-to-mp3-with-mac/"><u>[New] Effortlessly Transform YouTube Tunes to MP3 with Mac</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-how-to-guide-on-bypassing-the-apple-iphone-6-icloud-lock-by-drfone-ios/"><u>In 2024, A How-To Guide on Bypassing the Apple iPhone 6 iCloud Lock</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-an-in-depth-examination-of-vivavideo-app-for-2024/"><u>[Updated] An In-Depth Examination of VivaVideo App for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-leading-8-spots-for-accessing-free-high-quality-3d-text-files/"><u>[Updated] Leading 8 Spots for Accessing FREE High-Quality 3D Text Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-skilled-uav-operation-tips-for-filmmakers/"><u>[Updated] In 2024, Skilled UAV Operation Tips for Filmmakers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-photo-perfection-for-newbies-the-lunapic-way/"><u>[New] Photo Perfection for Newbies  The LunaPic Way</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-video-cam-gurus-top-picks/"><u>[Updated] 2024 Approved  Video Cam Gurus  Top Picks</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-discover-11-secrets-of-windows-11/"><u>In 2024, Discover 11 Secrets of Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-craft-a-sonic-whatsapp-update/"><u>[Updated] Craft a Sonic WhatsApp Update</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-metaverse-promotion-essentials-for-2024/"><u>[Updated] Metaverse Promotion Essentials for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-elite-screenwriting-circle/"><u>[Updated] In 2024, Elite Screenwriting Circle</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-no-hassle-just-happiness-effortless-video-edits-on-windows-10/"><u>[Updated] In 2024, No Hassle, Just Happiness  Effortless Video Edits on Windows 10</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-battle-of-the-cameras-hero5-black-vs-hero4-silver-showdown/"><u>[Updated] Battle of the Cameras  HERO5 Black vs HERO4 Silver Showdown</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-what-are-the-alternatives-to-googles-ar-appearance/"><u>[New] 2024 Approved  What Are The Alternatives To Google's AR Appearance?</u></a></li>
+</ul></div>

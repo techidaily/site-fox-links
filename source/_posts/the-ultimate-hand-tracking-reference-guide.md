@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Hand-Tracking Reference Guide\""
-date: 2024-06-25T15:11:05.417Z
-updated: 2024-06-26T15:11:05.417Z
+date: 2024-07-12T06:27:25.384Z
+updated: 2024-07-13T06:27:25.384Z
 tags: 
   - screen-recording
   - ai video
@@ -138,7 +138,8 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
-##### Step4 Creating Method For Tracking Hands In Input Image ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
+##### Step4 Creating Method For Tracking Hands In Input Image
+![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
 
@@ -290,7 +291,8 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
-##### Step4 Creating Method For Tracking Hands In Input Image ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
+##### Step4 Creating Method For Tracking Hands In Input Image
+![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
 
@@ -357,3 +359,76 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-6-eco-friendly-affordable-4k-home-theaters/"><u>[Updated] In 2024, Top 6 Eco-Friendly, Affordable 4K Home Theaters</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-vs-camera-edition-deciding-between-gopro-hero-and-polaroid-cube/"><u>[Updated] 2024 Approved  Vs. Camera Edition  Deciding Between GoPro Hero & Polaroid Cube</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-get-ahead-with-fcp-top-5-editing-shortcuts-and-workarounds/"><u>2024 Approved Get Ahead with FCP Top 5 Editing Shortcuts and Workarounds</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-inside-window-11s-power-saving-secrets/"><u>[New] In 2024, Inside Window 11'S Power-Saving Secrets</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/exploring-the-full-potential-of-obs-screen-capture/"><u>Exploring the Full Potential of OBS Screen Capture</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-dictate-your-destiny-free-logo-creation-from-template-files/"><u>[Updated] In 2024, Dictate Your Destiny - Free Logo Creation From Template Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-navigating-download-land-free-photo-frames/"><u>[Updated] 2024 Approved  Navigating Download Land  Free Photo Frames</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlock-the-power-of-montage-in-digital-media/"><u>2024 Approved  Unlock the Power of Montage in Digital Media</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-infinix-note-30i-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Infinix Note 30i</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-finding-a-way-to-download-fcp-free-of-charge/"><u>[Updated] In 2024, Finding a Way to Download FCP Free-Of-Charge</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-daily-movie-storage-gb-explained/"><u>[Updated] In 2024, Daily Movie Storage  GB Explained</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-tiktok-video-editing-hacks-how-to-reverse-clips-with-ease/"><u>New TikTok Video Editing Hacks How to Reverse Clips with Ease</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-ultimate-method-to-seamless-integration-of-linktree-into-tiktok-profiles/"><u>[Updated] In 2024, The Ultimate Method to Seamless Integration of Linktree Into TikTok Profiles</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-popular-pictures-the-backstage-story/"><u>[Updated] Popular Pictures  The Backstage Story</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-speak-with-style-mastering-the-art-of-altering-vocal-effects-on-snapchat/"><u>[Updated] Speak with Style  Mastering the Art of Altering Vocal Effects on Snapchat</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-navigating-the-maze-to-find-your-ideal-4k-screen/"><u>[New] In 2024, Navigating the Maze to Find Your Ideal 4K Screen</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-apple-iphone-6s-device-from-icloud-by-drfone-ios/"><u>In 2024, How to Remove Apple iPhone 6s Device from iCloud</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-no-cost-mkv-cutting-solutions-our-top-10-picks/"><u>2024 Approved No-Cost MKV Cutting Solutions Our Top 10 Picks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-radiant-registering-and-unregistering-rites-for-2024/"><u>[New] Radiant Registering and Unregistering Rites for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-sony-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Sony FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-easy-voice-cutting-a-comprehensive-audacity-resource/"><u>Updated 2024 Approved Easy Voice Cutting A Comprehensive Audacity Resource</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-youtube-to-mp3-conversion-made-easy-how-to-pick-the-best-converter-for-2024/"><u>New YouTube to MP3 Conversion Made Easy How to Pick the Best Converter for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-podcast-to-text-discovering-the-top-10-free-and-paid-conversion-tools/"><u>Updated 2024 Approved Podcast to Text Discovering the Top 10 Free & Paid Conversion Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-free-software-showdown-the-leading-10-audio-capture-utilities/"><u>[New] In 2024, Free Software Showdown  The Leading 10 Audio Capture Utilities</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-prime-free-improvement-suite-pc-and-phone-edition/"><u>[Updated] 2024 Approved  Prime FREE Improvement Suite  PC & Phone Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/understanding-luts-to-amplify-your-photo-quality/"><u>Understanding LUTs to Amplify Your Photo Quality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-tailor-your-own-memetic-masterpiece-now/"><u>[New] Tailor Your Own Memetic Masterpiece Now</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-cutting-edge-video-editing-top-4k-software-solutions/"><u>Updated In 2024, Cutting-Edge Video Editing Top 4K Software Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-extensive-audit-unveiling-the-dji-inspire-1-drone/"><u>[Updated] 2024 Approved  Extensive Audit  Unveiling the DJI Inspire 1 Drone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-mastering-yourselfie-instagrams-verification-essentials/"><u>[New] 2024 Approved  Mastering Yourselfie  Instagram's Verification Essentials</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/2024-approved-top-video-smoothening-apps-for-mobile-devices/"><u>2024 Approved Top Video Smoothening Apps for Mobile Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-building-an-instagram-empire-in-just-nine-simple-steps-for-2024/"><u>[Updated] Building an Instagram Empire in Just Nine Simple Steps for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-delightful-stream-extractor-report/"><u>[Updated] Delightful Stream Extractor Report</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-color-keying-simplified-an-all-inclusive-beginners-manual-on-green-screens/"><u>[Updated] Color Keying Simplified  An All-Inclusive Beginner's Manual on Green Screens</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-clip-courage-embracing-twitters-viral-vanguard/"><u>[Updated] In 2024, Clip Courage  Embracing Twitter's Viral Vanguard</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-inshot-editors-guide-to-fluid-cut-techniques/"><u>2024 Approved  Inshot Editor's Guide to Fluid Cut Techniques</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/6-video-mergers-without-watermark/"><u>6 Video Mergers Without Watermark</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-oppo-a1-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Oppo A1 5G Phones with/without a PC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/transforming-footage-into-high-quality-content-for-2024/"><u>Transforming Footage Into High-Quality Content for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-best-zero-cost-video-editors-for-split-screen-effects-online-and-offline/"><u>2024 Approved Best Zero-Cost Video Editors for Split-Screen Effects Online & Offline</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-augment-your-cams-with-top-accessory-picks/"><u>[Updated] Augment Your Cams with Top Accessory Picks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-the-darkened-skies-with-iphones/"><u>[New] Mastering the Darkened Skies with iPhones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-transform-into-a-metaverse-virtuoso-essential-tools-list/"><u>[Updated] In 2024, Transform Into a Metaverse Virtuoso - Essential Tools List</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-hook-listeners-first-introductory-podcast-lines/"><u>[New] In 2024, Hook Listeners First  Introductory Podcast Lines</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-discover-the-power-of-easy-trimming-with-windows-photos-app/"><u>[Updated] 2024 Approved  Discover the Power of Easy Trimming with Windows Photos App</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-step-into-expertise-modifying-numbers-on-tiktok-profiles/"><u>[New] Step Into Expertise  Modifying Numbers on TikTok Profiles</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-honor-x50-phone-by-drfone-android/"><u>How to Reset a Locked Honor X50 Phone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-evaluation-of-samsungs-image-editing-software-for-2024/"><u>The Ultimate Evaluation of Samsung's Image Editing Software for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-music-after-oppo-a38-has-been-deleted-by-fonelab-android-recover-music/"><u>Recover your music after Oppo A38 has been deleted</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-art-and-science-of-capturing-stunning-gopro-time-lapse/"><u>The Art & Science of Capturing Stunning GoPro Time Lapse</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-securesave-professionals-assessment/"><u>[Updated] 2024 Approved  SecureSave Professionals' Assessment</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-creative-edge-in-tiktok-two-effect-adding-methods/"><u>[New] In 2024, Creative Edge in TikTok  Two Effect-Adding Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlock-limitless-creativity-with-free-after-effects-samples-for-2024/"><u>Unlock Limitless Creativity with Free After Effects Samples for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-prime-panzoid-layout-libraries/"><u>[New] In 2024, Prime Panzoid Layout Libraries</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-tricks-to-increase-viewership-on-your-tiktok-unboxing-sessions/"><u>In 2024, Tricks to Increase Viewership on Your TikTok Unboxing Sessions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-masterful-iphone-videography-top-8-expert-filmmaking-advice/"><u>[New] Masterful iPhone Videography  Top 8 Expert Filmmaking Advice</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-enhancing-photos-with-text-a-windowsmac-methodology/"><u>[New] Enhancing Photos with Text  A Windows/Mac Methodology</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-peak-performers-in-the-world-of-web-videos/"><u>In 2024, Peak Performers in the World of Web Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/sound-symphony-music-within-whatsapp-statuses-for-2024/"><u>Sound Symphony  Music Within WhatsApp Statuses for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-navigating-the-path-to-an-official-instagram-business-page-for-2024/"><u>[New] Navigating the Path to an Official Instagram Business Page for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/buggy-fcpx-reset-and-reboot-a-quick-fix-for-common-problems-for-2024/"><u>Buggy FCPX? Reset and Reboot A Quick Fix for Common Problems for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-vocal-transformations-high-ranked-app-options/"><u>[Updated] Mastering Vocal Transformations  High-Ranked App Options</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-harnessing-social-potential-a-compreenasculated-blueprint-for-smm-mastery/"><u>[Updated] Harnessing Social Potential  A Compreenasculated Blueprint for SMM Mastery</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-transforming-text-the-illustrator-3d-approach/"><u>[Updated] Transforming Text  The Illustrator 3D Approach</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-7-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>How To Fix Apple iPhone 7 Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-key-approaches-to-elevate-handp-facebook-campaigns-for-2024/"><u>[Updated] Key Approaches to Elevate H&P Facebook Campaigns for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-10-streaming-services-a-must-know-for-2024/"><u>[New] Top 10 Streaming Services - A Must Know for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-epic-virtual-truths-top-30-metaverse-reflections-arvr/"><u>[Updated] 2024 Approved  Epic Virtual Truths  Top 30 Metaverse Reflections [AR/VR]</u></a></li>
+</ul></div>

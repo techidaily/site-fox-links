@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Precision Followers  GPS Drones of the Year\""
-date: 2024-06-25T15:50:31.671Z
-updated: 2024-06-26T15:50:31.671Z
+date: 2024-07-12T07:11:23.604Z
+updated: 2024-07-13T07:11:23.604Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 
 ## Precision Followers: GPS Drones of the Year
 
-# Top 10 GPS Drones That Follow You ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 10 GPS Drones That Follow You
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -45,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 | [Wingsland S6 Foldable Pocket Selfie Drone](#tab9) | $550    | 4k                                      | 10min       | 120m          |
 | [Hover's Passport](#tab10)                         | $599    | 4k                                      | 10min       | 20m           |
 
-#### 1. [DJI Phantom 3 Standard: ($496)](<https://www.amazon.com/gp/product/B013U0F6EQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B013U0F6EQ&linkId=7eb3c6ed8291356e6acb86c74ddca833>)
+#### 1. DJI Phantom 3 Standard: ($496)
 
 [dji phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg) ](https://www.amazon.com/gp/product/B013U0F6EQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B013U0F6EQ&linkId=7eb3c6ed8291356e6acb86c74ddca833)
 
@@ -63,7 +64,7 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 * It offers advanced GPS based tracking and return to home function.
 * Users will be able to record videos up to 2.7K resolution and maximum supported stills of 12MP.
 
-#### 2. [DJI Phantom 4: ($961)](<https://www.amazon.com/gp/product/B01CFXQZD0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01CFXQZD0&linkId=edcac98fb2e38b9359b8299650e268df>)
+#### 2. DJI Phantom 4: ($961)
 
 [dji phantom 4](https://images.wondershare.com/filmora/article-images/dji-phantom-4.jpg) ](https://www.amazon.com/gp/product/B01CFXQZD0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01CFXQZD0&linkId=edcac98fb2e38b9359b8299650e268df)
 
@@ -80,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 * The live feed HD with FPV capability is great addition.
 * It offers gimbal stabilization for 3 axis.
 
-#### 3. [3DR Solo: ($260)](<https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=6e3a0783ff748b66e7ccc673543bde8f>)
+#### 3. 3DR Solo: ($260)
 
 [3dr solo](https://images.wondershare.com/filmora/article-images/3dr-solo.jpg)](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=6e3a0783ff748b66e7ccc673543bde8f)
 
@@ -97,7 +98,7 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 * The maximum control range goes up to 500 meters and the maximum supported payload goes up to 420 grams.
 * Its battery takes about 1.5 hours for full charging.
 
-#### 4. [Hubsan H501S: ($242.18)](<https://www.amazon.com/gp/product/B01GO1CWZO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01GO1CWZO&linkId=9b7f51dd8005d28e190aea46a7586d74>)
+#### 4. Hubsan H501S: ($242.18)
 
 [hubsan h501s](https://images.wondershare.com/filmora/article-images/hubsan-h501s.jpg) ](https://www.amazon.com/gp/product/B01GO1CWZO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01GO1CWZO&linkId=9b7f51dd8005d28e190aea46a7586d74)
 
@@ -114,7 +115,7 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 * Battery unit takes 150 minutes for full charging.
 * It supporst 5.8G wireless type video transmission feature.
 
-#### 5. [AirDog: ($650)](<https://www.amazon.com/gp/product/B0182N945I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0182N945I&linkId=dee6179c3a782f1a7b08ccb5794b76ed>)
+#### 5. AirDog: ($650)
 
 [airdog](https://images.wondershare.com/filmora/article-images/airdog.jpg)](https://www.amazon.com/gp/product/B0182N945I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0182N945I&linkId=dee6179c3a782f1a7b08ccb5794b76ed)
 
@@ -156,7 +157,7 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 * 12.4 MP stills.
 * Maximum flying range goes up to 1600 meters.
 
-#### 8. [DJI Mavic: ($999)](<https://www.amazon.com/gp/product/B01LYNH0BD/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYNH0BD&linkId=5bc2d865f754465a48d14318e26748b0>)
+#### 8. DJI Mavic: ($999)
 
 [dji mavic](https://images.wondershare.com/filmora/article-images/dji-mavic.jpg) ](https://www.amazon.com/gp/product/B01LYNH0BD/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYNH0BD&linkId=5bc2d865f754465a48d14318e26748b0)
 
@@ -172,7 +173,7 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 * Can allow users to enjoy 26 minutes in air.
 * Maximum control range goes up to 7 Km.
 
-#### 9. [Wingsland S6 Foldable Pocket Selfie Drone: ($550)](<https://www.amazon.com/gp/product/B01MU4ND0Z/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01MU4ND0Z&linkId=0cf31fc2afdcdceba4838c11fa155f16>)
+#### 9. Wingsland S6 Foldable Pocket Selfie Drone: ($550)
 
 [wingsland s6 foldable pocket selfie drone](https://images.wondershare.com/filmora/article-images/wingsland-s6-foldable-pocket-selfie-drone.jpg) ](https://www.amazon.com/gp/product/B01MU4ND0Z/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01MU4ND0Z&linkId=0cf31fc2afdcdceba4838c11fa155f16)
 
@@ -224,3 +225,46 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-trailblazers-in-auditory-and-visual-creation-list/"><u>[New] Trailblazers in Auditory & Visual Creation List</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/industrial-giants-taking-flight-heavy-duty-drones-for-2024/"><u>Industrial Giants Taking Flight  Heavy-Duty Drones for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-top-rated-free-imovie-alternatives-for-video-editing/"><u>In 2024, Top-Rated Free iMovie Alternatives for Video Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/removing-obstacles-a-guide-to-pristine-visual-backgrounds-in-canva-for-2024/"><u>Removing Obstacles  A Guide to Pristine Visual Backgrounds in Canva for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-capture-to-screen-the-complete-process-of-uploading-360-vids-on-youtube-for-2024/"><u>[Updated] From Capture to Screen  The Complete Process of Uploading 360 Vids on YouTube for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-the-complete-guide-to-video-editors-35-options-for-every-device/"><u>2024 Approved The Complete Guide to Video Editors 35 Options for Every Device</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ultimate-high-definition-slow-mo-cams/"><u>[Updated] 2024 Approved  Ultimate High Definition Slow-Mo Cams</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-seeking-entertainment-a-guide-to-watching-fb-videos/"><u>[Updated] Seeking Entertainment  A Guide to Watching FB Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-best-writing-across-the-spectrum-8-film-categories/"><u>[New] In 2024, Best Writing Across the Spectrum  8 Film Categories</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-streamline-your-movie-collection-how-to-convert-dvds-to-digital-formats/"><u>In 2024, Streamline Your Movie Collection How to Convert DVDs to Digital Formats</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-digital-dive-for-rookies-the-essentials-of-image-fidelity/"><u>[Updated] 2024 Approved  Digital Dive for Rookies  The Essentials of Image Fidelity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-lg-unveils-new-dimensions-with-its-360-degree-vr-headgear-for-2024/"><u>[New] LG Unveils New Dimensions with Its 360-Degree VR Headgear for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-bp550-review-latest-tech-advances/"><u>[Updated] BP550 Review  Latest Tech Advances</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-digital-download-king-comprerante-video-acquisition-guide/"><u>[New] Digital Download King  Comprerante Video Acquisition Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-personalized-whatsapp-tones-on-iphoneandroid-devices/"><u>[New] Personalized WhatsApp Tones on iPhone/Android Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-innovative-approach-to-enhance-mp4s-with-srt/"><u>[New] Innovative Approach to Enhance MP4s with SRT</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/how-to-effectively-upload-ultra-hd-content-on-youtube-for-2024/"><u>How to Effectively Upload Ultra HD Content on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-engineering-captivating-video-teasers-for-online-presence-for-2024/"><u>[Updated] Engineering Captivating Video Teasers for Online Presence for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-virtual-worlds-unleashed-predicted-best-psvr-gaming-experiences/"><u>[New] In 2024, Virtual Worlds Unleashed  Predicted Best PSVR Gaming Experiences</u></a></li>
+<li><a href="https://fox-links.techidaily.com/pushing-boundaries-top-prime-lenses-for-industry-pros-for-2024/"><u>Pushing Boundaries  Top Prime Lenses for Industry Pros for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-avoiding-darkness-with-lightrooms-dynamic-range-technique/"><u>[Updated] Avoiding Darkness with Lightroom’s Dynamic Range Technique</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-silent-symphony-a-compendium-of-top-speech-to-text-tools/"><u>[New] Silent Symphony  A Compendium of Top Speech-to-Text Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-best-video-equipment-for-documenting-dynamic-musical-performances/"><u>[Updated] Best Video Equipment for Documenting Dynamic Musical Performances</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-the-clear-sky-route-to-free-unmarked-tiktok-videos/"><u>In 2024, The Clear-Sky Route to Free, Unmarked TikTok Videos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-follower-fliers-best-personal-drone-tech/"><u>In 2024, Follower Fliers  Best Personal Drone Tech</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-best-vr-and-action-cameras-beyond-gopros-realm/"><u>[Updated] Best VR and Action Cameras Beyond GoPro's Realm</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-9-tips-to-become-an-instagram-star/"><u>[Updated] 9 Tips to Become an Instagram Star</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-prime-examples-14-dynamic-text-animations/"><u>[Updated] In 2024, Prime Examples  14 Dynamic Text Animations</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-hash-playbook-for-video-gamers-on-youtube/"><u>In 2024, The Ultimate Hash Playbook for Video Gamers on YouTube</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-tecno-spark-20-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Tecno Spark 20 Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-vivo-y100t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-master-the-art-of-photo-editing-unveiling-pixlrs-power/"><u>[New] Master the Art of Photo Editing  Unveiling Pixlr's Power</u></a></li>
+<li><a href="https://fox-links.techidaily.com/top-5-digital-tools-for-enhancing-web-streams/"><u>Top 5 Digital Tools for Enhancing Web Streams</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/tapping-into-youtubes-affiliate-income-streams/"><u>Tapping Into YouTube's Affiliate Income Streams</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-optimize-your-talk-on-chrome-best-web-based-speech-conversion-services/"><u>[Updated] In 2024, Optimize Your Talk on Chrome  Best Web-Based Speech Conversion Services</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-elevate-your-video-game-top-tips-for-perfect-live-thumbnails/"><u>[Updated] In 2024, Elevate Your Video Game  Top Tips for Perfect Live Thumbnails</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-navigating-vlc-software-basics-for-macos/"><u>[Updated] 2024 Approved  Navigating VLC Software Basics for MacOS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-transform-communication-top-free-mac-text-to-speech-software-rankings/"><u>[Updated] 2024 Approved  Transform Communication  Top Free Mac Text-to-Speech Software Rankings</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transforming-windows-11-password-strategy/"><u>Transforming Windows 11 Password Strategy</u></a></li>
+</ul></div>

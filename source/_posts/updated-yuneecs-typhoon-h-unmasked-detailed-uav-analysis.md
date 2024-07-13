@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Yuneec's Typhoon H Unmasked  Detailed UAV Analysis\""
-date: 2024-06-25T15:11:26.234Z
-updated: 2024-06-26T15:11:26.234Z
+date: 2024-07-12T06:27:48.638Z
+updated: 2024-07-13T06:27:48.638Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/c77188d301673882c7bd2416a75ef28040661515c
 
 ## Yuneec's Typhoon H Unmasked: Detailed UAV Analysis
 
-# Yuneec Typhoon H Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Yuneec Typhoon H Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -79,11 +80,13 @@ thumbnail: https://thmb.techidaily.com/c77188d301673882c7bd2416a75ef28040661515c
 
  Typhoon H is equipped with a built in type obstacle avoidance sensor that can find all distractions easily around and keeps your drone safe from crashes. It works with sonar technology that means your device can easily detect all the undesired objects on the way even in low light conditions or in darkness. Note that this sensor is attached at front portion of your drone so it can serve with the detection ability to front facing objects only, if anything comes from sides then your drone will not be able to stay safe. But still, at least you have a new feature and it works amazingly.
 
-#### 6\.  Controller ![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
+#### 6\.  Controller
+![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
 
  The controller part is really interesting with few additional features as compared to its predecessors. You will be able to access button and knobs but one new addition to controller is in form of its built in type 7 inch touchscreen that can display the telemetry data on continuous basis. Here is good news for professionals; it is possible to connect this drone to more than one controller at a time so that few highly customized shoots can be gathered. Filmmakers love to access these advanced features.
 
-#### 7\.  Camera ![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
+#### 7\.  Camera
+![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
 
  The drone camera can provide 4K recording facility whereas users can also switch between 2.5K and 1080p level as per need. The FPS ratings can be shifted for better results. Results can be enhanced with its ½.3” CMOS sensor and the developers also claim to serve with video transmission range of about 400 meters. The 360 degree gimbal is also available with this drone and its results are professional looking with advantage of sonar sensor.
 
@@ -117,3 +120,39 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-chucklecircuit-meme-studio-free-download/"><u>[Updated] 2024 Approved  ChuckleCircuit Meme Studio (Free Download!)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/symbolizing-sound-designing-a-captivating-podcast-image/"><u>Symbolizing Sound  Designing a Captivating Podcast Image</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ultimate-avi-player-the-perfect-match-for-pcmobile/"><u>[Updated] Ultimate AVi Player  The Perfect Match for PC/Mobile</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-unraveling-the-mysteries-of-discord/"><u>[Updated] In 2024, Unraveling the Mysteries of Discord</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-online-event-replay-collectors/"><u>[Updated] Online Event Replay Collectors</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-6s-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 6s to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-beginners-blueprint-progressive-sound-intensity-rise/"><u>[Updated] 2024 Approved  Beginner’s Blueprint  Progressive Sound Intensity Rise</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-elevating-your-images-with-words-step-by-step-guide-for-adding-text-on-pcmac/"><u>[Updated] 2024 Approved  Elevating Your Images with Words  Step-by-Step Guide for Adding Text on PC/Mac</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-streamsmart-beyond-the-dacast-shell-for-2024/"><u>[Updated] StreamSmart  Beyond the DaCast Shell for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-15-pro-to-an-older-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 15 Pro to an Older Version? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ultrawide-vs-uhd-4k-monitors-which-to-choose/"><u>[Updated] 2024 Approved  UltraWide VS UHD 4K Monitors  Which to Choose</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-mobile-media-a-guide-to-the-9-smartest-gadgets-for-filmmakers/"><u>[New] Mastering Mobile Media  A Guide to the 9 Smartest Gadgets for Filmmakers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-ios-android-unite-how-to-download-and-make-your-own-whatsapp-tones/"><u>[Updated] In 2024, IOS, Android Unite  How to Download and Make Your Own WhatsApp Tones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-fabric-of-future-cutting-edge-vr-technology/"><u>[Updated] 2024 Approved  The Fabric of Future  Cutting-Edge VR Technology</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-the-complete-process-recording-youtube-livestream-on-multiple-platforms/"><u>In 2024, The Complete Process  Recording YouTube Livestream on Multiple Platforms</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-tips-for-leveraging-snapchats-star-feature/"><u>[Updated] Tips for Leveraging Snapchat's Star Feature</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unveiling-windows-11-a-compreayer-to-master-video-editing-techniques/"><u>Unveiling Windows 11  A Compreayer to Master Video Editing Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/srt-file-handling-simplified-on-pcmac/"><u>SRT File Handling Simplified on PC/Mac</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-access-unlimited-12-stream-livestream-content/"><u>[Updated] In 2024, Access Unlimited 12-Stream Livestream Content</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-lava-storm-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Lava Storm 5G Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/night-shots-pro-tips-for-iphone-enthusiasts/"><u>Night Shots Pro Tips for iPhone Enthusiasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/pathways-of-file-formats-navigating-from-srt-to-others-for-2024/"><u>Pathways of File Formats  Navigating From SRT to Others for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-cinematic-chronology-best-video-cameras-for-detailed-speed-recording-for-2024/"><u>[Updated] Cinematic Chronology  Best Video Cameras for Detailed Speed Recording for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-htc-vive-unveiled-mastering-your-3d-world/"><u>[Updated] In 2024, HTC Vive Unveiled  Mastering Your 3D World</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-demystifying-the-digital-canvas-a-complete-guide-to-beginners-chroma-keying/"><u>[Updated] Demystifying the Digital Canvas  A Complete Guide to Beginner's Chroma Keying</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hdr-mastery-the-complete-sdr-to-hdr-transformation/"><u>In 2024, HDR Mastery  The Complete SDR-to-HDR Transformation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-screenplay-genius-weaving-compelling-narratives-and-dialogues-for-2024/"><u>[Updated] Screenplay Genius  Weaving Compelling Narratives and Dialogues for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/pixelperfect-video-creator-for-2024/"><u>PixelPerfect Video Creator for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-from-pixels-to-spirit-nurturing-memories-through-live-photo-to-video-conversion/"><u>[Updated] 2024 Approved  From Pixels to Spirit  Nurturing Memories Through Live Photo to Video Conversion</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-10-essential-strategies-for-successful-instagram-reels/"><u>The 10 Essential Strategies for Successful Instagram Reels</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-optimizing-live-periscope-video-speed-for-2024/"><u>[Updated] Optimizing Live Periscope Video Speed for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-chorus-and-bass-macs-sound-control/"><u>2024 Approved  Chorus & Bass  Mac's Sound Control</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Ultimate Checklist  What Makes DJI Phantom 4 Special?\""
-date: 2024-06-25T15:17:28.360Z
-updated: 2024-06-26T15:17:28.360Z
+date: 2024-07-12T06:34:32.065Z
+updated: 2024-07-13T06:34:32.065Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 
 ## The Ultimate Checklist: What Makes DJI Phantom 4 Special?
 
-# DJI Phantom 4 Complete Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# DJI Phantom 4 Complete Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -71,7 +72,8 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 * Max Capacity: 128GB
 * Write speed ≥15MB/s, Class 10 or UHS-1 rating required
 
-#### Design ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
+#### Design
+![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-design.jpg)
 
  The Phantom 4 is similar to the previous version in terms of looks. It is white in color and plastic with sturdy legs to rest on. Two sensors are located on the front and back of the drone and more underneath and to the sides. The camera begins to record on takeoff allowing the drone to find a homing position when ready to return home. The camera hangs below the drone with gimbals that keep it sturdy whatever conditions it is flown in. The arms each have lights so that you can find it easily when in flight.
 
@@ -91,7 +93,8 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 
  The Phantom 4 plus comes with a built in screen which has a display screen of 5.5 inches and 1080p. The remote is able to connect to the drone from up to 4.3 miles away and can stream full HD to the display screen. The remote battery can last for up to 5 hours before it needs to be charged.
 
-#### Camera ![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
+#### Camera
+![dji phantom 4 review](https://images.wondershare.com/filmora/article-images/dji-phantom-4-camera.jpg)
 
  The Phantom 4 has been upgraded to include a 20 megapixel sensor which has 12 dynamic range stops which allows for more detailed shots even in intense light. This improves the performance from its predecessor significantly. The mechanical shutter stops the distortion and makes for smoother footage. The 4K video at 60 fps capabilities increase the quality overall giving users better results.
 
@@ -125,3 +128,57 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-in-depth-dive-perfecting-the-art-of-green-screen-with-kinemaster-for-2024/"><u>[Updated] In-Depth Dive  Perfecting the Art of Green Screen with Kinemaster for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-panoramic-power-play-gear-vs-lgcam-showdown/"><u>[New] Panoramic Power Play  Gear vs LGCam Showdown</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-visual-harmony-crafting-chromatic-magic/"><u>[Updated] 2024 Approved  Visual Harmony  Crafting Chromatic Magic</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-digital-stills-and-snaps-recorder/"><u>[New] In 2024, Digital Stills & Snaps Recorder</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-samsung-galaxy-s23-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Samsung Galaxy S23 FRP</u></a></li>
+<li><a href="https://fox-links.techidaily.com/uncover-top-11-effective-video-size-slashers-for-your-phone/"><u>Uncover Top 11 Effective Video Size Slashers for Your Phone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-intersection-of-design-and-efficiency-in-professional-environments/"><u>[New] In 2024, The Intersection of Design & Efficiency in Professional Environments</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-8-youtube-to-avi-convertors-explained/"><u>Top 8 YouTube-to-AVI Convertors Explained</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/repairing-windows-camera-failure-on-photovideo-saving/"><u>Repairing Windows Camera Failure on Photo/Video Saving</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-harmony-haven-our-selection-of-the-top-20-musical-channels-on-youtube/"><u>[Updated] 2024 Approved  Harmony Haven  Our Selection of the Top 20 Musical Channels on YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/strategic-steps-for-incorporating-srt-files-into-googleplus-campaigns-for-2024/"><u>Strategic Steps for Incorporating SRT Files Into Google+ Campaigns for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/plain-definitions-in-storytelling-basics/"><u>Plain Definitions in Storytelling Basics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-reimagined-computing-with-windows-10s-upgrades-for-2024/"><u>[Updated] Reimagined Computing with Windows 10’S Upgrades for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/innovate-your-online-identity-with-these-30-exceptional-tiktok-names/"><u>Innovate Your Online Identity with These 30 Exceptional TikTok Names</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-on-iphone-11-pro-max-with-or-without-password-drfone-by-drfone-ios/"><u>How To Change Your Apple ID on iPhone 11 Pro Max With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-art-of-impressive-hdr-portraits-explained/"><u>The Art of Impressive HDR Portraits Explained</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-best-6-social-media-platforms-for-business/"><u>[Updated] In 2024, Best 6 Social Media Platforms for Business</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-raise-the-bar-top-8-speed-up-video-apps-for-2024/"><u>[Updated] Raise the Bar  Top 8 Speed Up Video Apps for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-mac-users-guide-to-utilizing-preview-to-its-maximum-for-2024/"><u>The Ultimate Mac User's Guide to Utilizing Preview to Its Maximum for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/iphones-simple-guide-for-efficient-screen-recording/"><u>IPhone's Simple Guide for Efficient Screen Recording</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-a-clear-view-ahead-how-to-pick-your-ideal-4k-monitor-wisely/"><u>[Updated] 2024 Approved  A Clear View Ahead  How to Pick Your Ideal 4K Monitor Wisely</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unleashing-the-iphones-full-potential-with-10-composition-principles-for-2024/"><u>Unleashing the iPhone's Full Potential with 10 Composition Principles for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/compassionate-3d-action-best-android-emulators/"><u>Compassionate 3D Action  Best Android Emulators</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-microsofts-glimpse-into-augmented-reality-the-hololens-journey/"><u>[Updated] Microsoft’s Glimpse Into Augmented Reality – The HoloLens Journey</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-premier-audio-labeling-software-for-windows-and-mac-users/"><u>Updated Premier Audio Labeling Software for Windows & Mac Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-millisecond-metrics-for-a-20mb-digital-creation-for-2024/"><u>[Updated] Millisecond Metrics for a 20MB Digital Creation for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-galaxy-a15-4g-support-avchd-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Does Galaxy A15 4G support AVCHD video?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-direct-linkage-bridging-youtube-and-imovie-with-music/"><u>2024 Approved  Direct Linkage  Bridging YouTube and iMovie with Music</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-zooms-power-play-top-methods-for-effective-format-shifting/"><u>[New] In 2024, Zoom's Power Play  Top Methods for Effective Format Shifting</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-youtube-top-rated-pc-and-mobile-video-extractors/"><u>[New] In 2024, Unlocking YouTube  Top-Rated PC & Mobile Video Extractors</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-switching-on-windows-11-for-automatic-hdr-mode/"><u>[New] In 2024, Switching On Windows 11 for Automatic HDR Mode</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-delving-into-the-world-of-samsung-image-processor-2023/"><u>[Updated] Delving Into the World of Samsung Image Processor, 2023</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-navigate-through-screens-the-best-recorders-for-w11w10/"><u>[Updated] In 2024, Navigate Through Screens  The Best Recorders for W11/W10</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-transforming-social-media-sounds-into-practical-mobile-alerts/"><u>[New] Transforming Social Media Sounds Into Practical Mobile Alerts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-smooth-transition-from-iphones-jpegpng-files-to-pdf-format/"><u>[Updated] In 2024, Smooth Transition From iPhone's JPEG/PNG Files to PDF Format</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-project-pics-blend-outside-focus-with-radial-filters-psx/"><u>[Updated] 2024 Approved  Project Pics  Blend Outside Focus with Radial Filters PSX</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-essential-guide-enhance-tiktok-profile-with-links/"><u>[Updated] Essential Guide  Enhance TikTok Profile with Links</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-fix-the-facebook-message-shows-its-you-in-this-video/"><u>[New] 2024 Approved  Fix the Facebook Message Shows It's You in This Video</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-missing-video-functionality-in-sony-a6400-for-2024/"><u>[Updated] Missing Video Functionality in Sony A6400 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-innovative-vocal-alteration-apps-beyond-echo-magic-for-2024/"><u>[New] Innovative Vocal Alteration Apps Beyond Echo Magic for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-diy-guide-assembling-an-advanced-pc-for-cutting-edge-editing/"><u>[New] DIY Guide  Assembling an Advanced PC for Cutting-Edge Editing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-leverage-longer-vids-on-instagram-effectively-for-2024/"><u>[Updated] How to Leverage Longer Vids on Instagram Effectively for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-iphone-photo-burst-how-to-take-burst-images/"><u>[Updated] IPhone Photo Burst  How to Take Burst Images</u></a></li>
+<li><a href="https://fox-links.techidaily.com/revealing-veiled-youtube-reviewers-opinions/"><u>Revealing Veiled YouTube Reviewers' Opinions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-step-up-your-game-advanced-video-trimming-techniques-in-windows-11/"><u>[New] Step Up Your Game  Advanced Video Trimming Techniques in Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/smartphone-as-your-gateway-to-immersive-virtual-reality/"><u>Smartphone as Your Gateway to Immersive Virtual Reality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-slomo-videography-the-complete-app-analysis-for-2024/"><u>[New] SloMo Videography  The Complete App Analysis for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-top-10-tools-to-shield-photographic-work/"><u>[Updated] 2024 Approved  Top 10 Tools to Shield Photographic Work</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-picture-puns-smilesketchers-for-2024/"><u>[New] Picture Puns  SmileSketchers for 2024</u></a></li>
+</ul></div>

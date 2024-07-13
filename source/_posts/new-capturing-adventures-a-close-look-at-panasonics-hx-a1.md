@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Capturing Adventures  A Close Look at Panasonic's HX-A1\""
-date: 2024-06-25T15:53:52.399Z
-updated: 2024-06-26T15:53:52.399Z
+date: 2024-07-12T07:15:08.315Z
+updated: 2024-07-13T07:15:08.315Z
 tags: 
   - screen-recording
   - ai video
@@ -18,7 +18,8 @@ thumbnail: https://thmb.techidaily.com/f5eeb9ebfa2de64a3d4ee3942e718c9f14502e6b8
 
 ## Capturing Adventures: A Close Look at Panasonic's HX-A1
 
-# Panasonic HX-A1 Wearable Action Camera Review ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Panasonic HX-A1 Wearable Action Camera Review
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -30,7 +31,8 @@ thumbnail: https://thmb.techidaily.com/f5eeb9ebfa2de64a3d4ee3942e718c9f14502e6b8
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
-## Design and Usability ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
+## Design and Usability
+![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
@@ -154,3 +156,63 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-essential-fps-for-pristine-slow-motion-film-quality/"><u>[Updated] Essential FPS for Pristine Slow-Motion Film Quality</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-ultimate-guide-to-picture-purity-erasing-images-excesses/"><u>2024 Approved  The Ultimate Guide to Picture Purity  Erasing Images' Excesses</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-comprehensive-guide-to-top-5-free-windows-screen-recorders/"><u>In 2024, Comprehensive Guide to Top 5 Free Windows Screen Recorders</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-rhythmic-beak-boogie/"><u>In 2024, Rhythmic Beak Boogie</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-transforming-your-profile-into-a-showstopper/"><u>[Updated] 2024 Approved  Transforming Your Profile Into a Showstopper</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-grab-your-guiltless-film-endings-with-our-template-service-for-2024/"><u>[New] Grab Your Guiltless Film Endings with Our Template Service for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-determining-facebook-video-layout-preference-for-2024/"><u>[Updated] Determining Facebook Video Layout Preference for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-is-it-possible-to-quick-review-on-windows-heres-how/"><u>[New] Is It Possible to Quick Review on Windows? Here’s How</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-revolutionizing-audio-liberation-a-deep-dive-into-pazeras-extractor/"><u>2024 Approved  Revolutionizing Audio Liberation  A Deep Dive Into Pazera's Extractor</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-adobe-audition-tutorial-managing-sound-curves/"><u>[New] 2024 Approved  Adobe Audition Tutorial  Managing Sound Curves</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-tomtoms-advanced-adventure-cameras-review-2023-edition/"><u>[New] In 2024, TomTom’s Advanced Adventure Cameras Review - 2023 Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-srt-production-via-xml-ssa-and-ttml-conversions/"><u>[Updated] In 2024, SRT Production via XML, SSA & TTML Conversions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/front-rows-of-recreation-beyond-the-sports-arena/"><u>Front Rows of Recreation Beyond the Sports Arena</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-gear-selection-guide-for-global-filmmakers-for-2024/"><u>[Updated] Gear Selection Guide for Global Filmmakers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-psychology-behind-effective-interviews/"><u>2024 Approved  The Psychology Behind Effective Interviews</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-learn-to-turn-your-photos-into-their-opposites/"><u>In 2024, Learn to Turn Your Photos Into Their Opposites</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-a-beginner-guide-to-hd-video-pixel-size-for-2024/"><u>Updated A Beginner Guide to HD Video Pixel Size for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-brand-awareness-through-opening/"><u>[Updated] Brand Awareness Through Opening</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-audio-integration-in-digital-photo-albums/"><u>[New] In 2024, Audio Integration in Digital Photo Albums</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mobile-editors-roundup-top-8-choices-for-iphone-and-android-users/"><u>Mobile Editors Roundup  Top 8 Choices for iPhone and Android Users</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-bend-reality-with-these-10-glitch-art-video-editing-apps-for-mobile/"><u>Updated 2024 Approved Bend Reality with These 10 Glitch Art Video Editing Apps for Mobile</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-must-have-settings-for-online-broadcasting-for-2024/"><u>[Updated] Must-Have Settings for Online Broadcasting for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-creating-characters-in-the-metaverse-an-easy-methodology/"><u>In 2024, Creating Characters in the Metaverse  An Easy Methodology</u></a></li>
+<li><a href="https://fox-links.techidaily.com/zero-price-green-screen-visuals/"><u>Zero Price, Green Screen Visuals</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-brief-but-impactful-which-social-platform-leads-for-short-video-content/"><u>[New] 2024 Approved  Brief but Impactful  Which Social Platform Leads for Short Video Content?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-elite-home-and-office-desk-setups/"><u>[New] Elite Home & Office Desk Setups</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-image-edition-excellence-tutorial-insights/"><u>[New] 2024 Approved  Image Edition Excellence  Tutorial Insights</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-must-know-windows-10-tips-and-tricks/"><u>2024 Approved  Must-Know Windows 10 Tips and Tricks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-stream-smoothly-with-obs-studio-on-your-android/"><u>[New] In 2024, Stream Smoothly with OBS Studio on Your Android</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-new-wave-of-youtube-channel-titles-perfect-for-vloggers-limited-to-156-characters-for-2024/"><u>The New Wave of YouTube Channel Titles  Perfect for Vloggers (Limited to 156 Characters) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-snapseed-advanced-usage-insights-for-2024/"><u>[Updated] Snapseed Advanced Usage Insights for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-core-elements-of-stories/"><u>[New] 2024 Approved  Core Elements of Stories</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-navigating-past-moments-using-android-videos/"><u>[Updated] In 2024, Navigating Past Moments Using Android Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-discovering-top-10-sites-where-pristine-images-are-abundant-and-free-for-2024/"><u>[Updated] Discovering Top 10 Sites Where Pristine Images Are Abundant and Free for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-framework-for-visual-storytelling/"><u>[New] Framework for Visual Storytelling</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-complete-insider-guide-to-creating-and-editing-videos-on-windows-11/"><u>2024 Approved  The Complete Insider Guide to Creating & Editing Videos on Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-affordable-cameras-where-to-buy-economical-gopros-for-2024/"><u>[Updated] Affordable Cameras  Where to Buy Economical GoPros for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-xiaomi-redmi-note-13-pro-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Xiaomi Redmi Note 13 Pro 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/elevate-your-twitter-video-experience-full-hd-edition-for-2024/"><u>Elevate Your Twitter Video Experience  Full HD Edition for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-ultimate-setup-guide-for-effective-after-effects-texting-for-2024/"><u>[Updated] The Ultimate Setup Guide for Effective After Effects Texting for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-how-to-create-an-affordable-customizable-virtual-reality-gear/"><u>[New] How to Create an Affordable, Customizable Virtual Reality Gear</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-be-amongst-the-few-essential-metaverse-technology/"><u>[Updated] In 2024, Be Amongst the Few  Essential Metaverse Technology</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-optimize-your-windows-11-photo-viewing-include-audio-files-and-artistic-layers/"><u>[Updated] Optimize Your Windows 11 Photo Viewing  Include Audio Files and Artistic Layers</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-11-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 11 without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-mastering-reddit-posts-a-stepwise-strategy-for-engagement/"><u>[New] In 2024, Mastering Reddit Posts  A Stepwise Strategy for Engagement</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-navigating-the-minefield-of-instasongs-and-rights-for-2024/"><u>[New] Navigating the Minefield of InstaSongs and Rights for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-7-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 7</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/10-best-zoom-alternatives/"><u>10 Best Zoom Alternatives</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-giroptic-360cam-complete-review-for-2024/"><u>[New] Giroptic 360Cam Complete Review for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-honor-90-gt-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Honor 90 GT</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-8-innovative-tablets-changing-the-face-of-photo-editing-landscape/"><u>[New] 8 Innovative Tablets Changing the Face of Photo Editing Landscape</u></a></li>
+<li><a href="https://fox-links.techidaily.com/assessing-64128gbs-video-storing-potential-for-2024/"><u>Assessing 64/128GB's Video-Storing Potential for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-rise-above-struggles-10-empowering-movies-for-life/"><u>2024 Approved  Rise Above Struggles  10 Empowering Movies for Life</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-ditching-samsungs-gear-360-here-are-your-new-camera-options/"><u>[New] 2024 Approved  Ditching Samsung's Gear 360? Here Are Your New Camera Options</u></a></li>
+</ul></div>
