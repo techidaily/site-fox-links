@@ -1,7 +1,7 @@
 ---
 title: "Avoiding Manual Transcription by Leveraging Voice Recognition in PPT"
-date: 2024-07-12T06:11:37.784Z
-updated: 2024-07-13T06:11:37.784Z
+date: 2024-07-29T06:20:46.504Z
+updated: 2024-07-30T06:20:46.504Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,9 @@ Using speech-to-text in PowerPoint is the same principle guiding other platforms
 
 Please note that “enabling speech-to-text” in PowerPoint differs from “using speech-to-text.” For example, you have to enable the speech-to-text first before you can use it. Also, how you enable speech-to-text in PowerPoint is based on the selected devices. Let's discuss enabling speech-to-text on Mac and Windows.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ### **Enable speech-to-text on Mac**
 
 * **Select the control button:** Mac allows you to select the control button for activating speech-to-text the first time you want to use the feature. Unlike other devices, the control option pops up when you select the speech-to-text option. It then displays some control options so that you can select the button suitable for you.
@@ -61,14 +64,28 @@ Aside from the regular Cortana speech recognition on Windows, you can use the sp
 
 It is easy to use PowerPoint on a Mac after activating the **“dictation”** button.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ### **Add speak to the quick access toolbar**
 
 * Sign in to the PowerPoint on your Mac device, and locate the customized **quick access toolbar.** The quick access toolbar includes **“more commands”** and other options.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![more commands and other options](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-5.jpg)
 
 * Reselect the option to “**all commands**.” The “all commands” should be enabled because they include many other commands, but you may not activate the options without selecting them.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ![reselect the option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-6.jpg)
 
 * From “all commands,” locate the speak option and add the option. Upon selection, the microphone button appears on the home screen of the PowerPoint.
@@ -79,14 +96,23 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 
 Now you can click on the microphone button and speak to add text.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **Speak clearly, but conversationally**
 
 The smart engine needs to hear you clearly before interpreting the speech into text. Do not mumble or speak fast. Each word should be audible and clearly stated. You can use the keyboard to edit or remove excess words.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Reduce background noise**
 
 Ensure the background noise does not interrupt your speech.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Use the user dictionary**
 
 Exploit the user dictionary. Visit Settings > **Languages**, and info > **Advanced** \> Personal word reference, and you can add last names and other “unofficial” words.
@@ -109,12 +135,18 @@ Real-time display and translation are suitable for the multi-language purpose. Y
 
 When you activate the real-time translation on PowerPoint, the settings occur in two stages: slideshow view and presenter view. You can vary the changes based on your view (as the presenter) or what people see (slideshow view).
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: How to make speech-to-text and translation to create PowerPoint videos
 
 When you want to make perfect PPT videos, you can use Filmora's STT feature. Wondershare Filmora Speech to Text is quite different with other STT service providers. Other STT platforms/stages require you to use the application to convert speech-to-text, save, and export into other third-party software. However, Wondershare Filmora allows you to directly convert your speech-to-text on an ongoing production. For example, you can convert speech into subtitles during a video production on Wondershare Filmora.
 
 What's more, now Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription in Filmora version 13.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Top Adavantages of Filmora STT
 
 * Supports direct transcription of bilingual subtitles.
@@ -125,6 +157,9 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make PPT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Use Filmora STT to make PowerPoint videos translation
 
 ##### Step 1
@@ -137,12 +172,22 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ### **Does speech-to-text require the internet?**
 
 No, it doesn't. However, you may need the internet to set up some settings.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ### **Does speech-to-text come with a subscription?**
 
 No. The feature is free for all registered users on PowerPoint.
@@ -161,6 +206,9 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
 
 [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 
@@ -183,3 +231,42 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-assemble-an-impactful-visual-saga-with-montage-skills/"><u>[New] Assemble an Impactful Visual Saga with Montage Skills</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-enhance-your-aerial-imagery-dji-drones-get-20-free-luts/"><u>[New] In 2024, Enhance Your Aerial Imagery  DJI Drones Get 20 FREE LUTS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-full-guide-streamlining-your-files-in-the-digital-age-with-adobe-and-beyond/"><u>[New] In 2024, Full Guide  Streamlining Your Files in the Digital Age with Adobe & Beyond</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-novices-compendium-understanding-pixel-perfection/"><u>[New] In 2024, Novice's Compendium  Understanding Pixel Perfection</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-rapid-retrieval-for-missed-snaps/"><u>[New] In 2024, Rapid Retrieval for Missed Snaps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-innovating-virtual-reality-gaming-the-2023-update/"><u>[New] Innovating Virtual Reality Gaming - The 2023 Update</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-paint-perfection-experts-guide-to-color-transformation-for-2024/"><u>[New] Paint Perfection  Expert's Guide to Color Transformation for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-pricing-outline-the-cost-to-film-melodies-visually-for-2024/"><u>[New] Pricing Outline  The Cost to Film Melodies Visually for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-prime-video-recording-devices-top-10/"><u>[New] The Prime Video Recording Devices  Top 10</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-seamless-shift-your-path-to-kinemaster-expertise/"><u>[New] The Seamless Shift  Your Path to Kinemaster Expertise</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-a-step-by-step-guide-through-the-landscape-of-srt/"><u>[Updated] 2024 Approved  A Step-by-Step Guide Through the Landscape of SRT</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-converting-moments-into-art-gopro-studios-time-lapse-blueprint/"><u>[Updated] 2024 Approved  Converting Moments Into Art  GoPro Studio's Time Lapse Blueprint</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-disabling-youtube-shorts-for-good-a-simple-approach/"><u>[Updated] 2024 Approved  Disabling YouTube Shorts for Good  A Simple Approach</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-free-studio-hd-screen-grab-audit/"><u>[Updated] In 2024, Free Studio HD Screen Grab Audit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-the-dynamic-world-of-drone-racing-and-top-5-high-speed-drones-for-2024/"><u>[Updated] Navigating the Dynamic World of Drone Racing & Top 5 High-Speed Drones for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-outro-aesthetics-selecting-templates-any-budget-for-2024/"><u>[Updated] Outro Aesthetics  Selecting Templates, Any Budget for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-tales-that-transcend-leading-academies-ranked-top-8-for-2024/"><u>[Updated] Tales That Transcend  Leading Academies Ranked Top 8 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-draft-humoristic-visuals-with-adobe-suite/"><u>2024 Approved  Draft Humoristic Visuals with Adobe Suite</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-ideal-virtual-sets-crafting-excellent-google-meet-backdrops/"><u>2024 Approved  Ideal Virtual Sets  Crafting Excellent Google Meet Backdrops</u></a></li>
+<li><a href="https://fox-links.techidaily.com/boost-video-velocity-top-android-helpers/"><u>Boost Video Velocity - Top Android Helpers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/dissecting-uav-technology-operation-design-and-use/"><u>Dissecting UAV Technology  Operation, Design, and Use</u></a></li>
+<li><a href="https://fox-links.techidaily.com/futuristic-vr-tech-for-remote-pilots/"><u>Futuristic VR Tech for Remote Pilots</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-google-pixel-7a-phone-by-drfone-android/"><u>How to Reset a Locked Google Pixel 7a Phone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-apple-iphone-11-pro-video-to-computer-drfone-by-drfone-ios/"><u>How to Stream Apple iPhone 11 Pro Video to Computer? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-data-from-apple-iphone-6-to-zte-phones-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Data from Apple iPhone 6 to ZTE Phones | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6 without Passcode or Face ID</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-iphone-techniques-for-seamless-image-to-pdf-conversion/"><u>In 2024, IPhone Techniques for Seamless Image-to-PDF Conversion</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-tricks-for-enhanced-video-quality-via-nvidia/"><u>In 2024, Tricks for Enhanced Video Quality via NVIDIA</u></a></li>
+<li><a href="https://fox-that.techidaily.com/mastering-ipad-recovery-modes-a-comprehensive-tutorial/"><u>Mastering iPad Recovery Modes: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-pinterest-videos-to-mp3s-essential-strategies/"><u>Mastering Pinterest Videos to MP3s  Essential Strategies</u></a></li>
+<li><a href="https://techidaily.com/sign-a-pdf-file-document-with-digital-signature-software-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>Sign a .pdf file document with digital signature software</u></a></li>
+<li><a href="https://extra-information.techidaily.com/superior-soundtracks-audiophile-choices-by-google/"><u>Superior Soundtracks  Audiophile Choices by Google</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-on-iphone-15-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock on iPhone 15</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-10-easy-to-use-drones-kids-edition/"><u>Top 10 Easy-to-Use Drones - Kids Edition</u></a></li>
+</ul></div>

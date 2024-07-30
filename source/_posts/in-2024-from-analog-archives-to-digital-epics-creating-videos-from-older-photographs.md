@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, From Analog Archives to Digital Epics  Creating Videos From Older Photographs\""
-date: 2024-07-12T06:17:03.447Z
-updated: 2024-07-13T06:17:03.447Z
+date: 2024-07-29T06:24:52.229Z
+updated: 2024-07-30T06:24:52.229Z
 tags: 
   - screen-recording
   - ai video
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/0911d971631dfd9a70ce54df48c6542f0fb3a0ed0
 ## From Analog Archives to Digital Epics: Creating Videos From Older Photographs
 
 # How to Digitize Your Old Photos and Turn Them into Impressive Videos
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -29,6 +32,9 @@ We all know that pictures have the magic to make some moments last forever. Thou
 
 Therefore, it is highly recommended to digitize photos to make them lasting. In this way, you can make your photos last forever and keep them handy. In this post, I’m going to discuss some smart ways to **digitize photos** without any hassle. In another case, you may want to know [how to restore old photos in old devices.](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Digitize Old Photos](https://images.wondershare.com/filmora/article-images/digitize-old-photos.jpg)
 
 * [Part 1: How to Digitize Your Memorable Old Photos](#part1)
@@ -75,6 +81,9 @@ To convert your old photos into stunning videos, you can take the assistance of 
 * The application would also let you add an audio track in the background from its library or by importing any audio of your choice.
 * Filmora is freely available and would let you export your videos to different formats and resolutions.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To learn how to come up with an impressive video collage using Filmora, just follow these steps:
@@ -89,12 +98,18 @@ To start with, you can just launch Filmora on your system and import your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![create timeline for photos](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Edit Digitized Photos](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
@@ -103,14 +118,23 @@ The edit option will present tons of additional features that you can implement 
 
 As stated above, you can find a wide range of video editing options to explore in Fimora. On top of the interface, you can switch between audio, transition, effects, titles, and other options. You can just go to any feature here (like effects) to apply it to the video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Add Effects to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add Title to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add Audio to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
 #### 5\. Export your video
@@ -179,3 +203,53 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-an-introduction-to-simple-and-effective-hdr-methods/"><u>[New] 2024 Approved  An Introduction to Simple and Effective HDR Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-evaluating-max-360-and-hero-11-the-ultimate-gopro-video-battle/"><u>[New] 2024 Approved  Evaluating Max 360 & Hero 11  The Ultimate GoPro Video Battle</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-learn-to-leverage-telegram-a-comprehensive-online-tutorial/"><u>[New] 2024 Approved  Learn to Leverage Telegram  A Comprehensive Online Tutorial</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-number-8s-expert-image-fusion-web-utility/"><u>[New] 2024 Approved  Number 8'S Expert Image Fusion Web Utility</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-top-ten-cyber-shops-where-every-gift-tells-a-story/"><u>[New] 2024 Approved  Top Ten Cyber Shops  Where Every Gift Tells a Story</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-androids-expert-choice-for-quick-vid-boosting/"><u>[New] Android's Expert Choice for Quick Vid Boosting</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-elevating-media-quality-from-xmlssattml-to-premium-srt-for-2024/"><u>[New] Elevating Media Quality  From XML/SSA/TTML to Premium SRT for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-enhancing-meeting-clarity-with-ms-teams-focus/"><u>[New] Enhancing Meeting Clarity with MS Teams Focus</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-android-gaming-delight-with-kinemaster-app-explored/"><u>[New] In 2024, Android Gaming Delight with KineMaster App Explored</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-enhance-your-editing-with-fcps-top-10-plugins/"><u>[New] In 2024, Enhance Your Editing with FCP's Top 10 Plugins</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-from-novice-to-expert-mastering-movie-maker-in-windows-8-systems/"><u>[New] In 2024, From Novice to Expert  Mastering Movie Maker in Windows 8 Systems</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-visionary-virtual-worlds-the-top-ten-sci-fi-films-of-the-metaverse-age/"><u>[New] In 2024, Visionary Virtual Worlds  The Top Ten Sci-Fi Films of the Metaverse Age</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-will-2023-see-an-increase-in-televising-video-content/"><u>[New] In 2024, Will 2023 See an Increase in Televising Video Content?</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-navigating-facebooks-memory-lane-with-ease-for-2024/"><u>[New] Navigating Facebook's Memory Lane with Ease for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-ranking-of-free-easy-to-use-image-overlay-apps-on-smartphones-for-2024/"><u>[New] Ranking of Free, Easy-to-Use Image Overlay Apps on Smartphones for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-sparks-limits-explored-by-djis-new-contender-mavic-air/"><u>[New] Spark's Limits Explored by DJI's New Contender, Mavic Air</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-10-strategies-for-captivating-close-up-cinematography-for-2024/"><u>[New] Top 10 Strategies for Captivating Close-Up Cinematography for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-step-into-retro-gaming-with-top-5-ps1-emulators-for-pc/"><u>[Updated] 2024 Approved  Step Into Retro Gaming with Top 5 PS1 Emulators for PC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-how-to-achieve-premium-picture-standards-without-paying/"><u>[Updated] How to Achieve Premium Picture Standards Without Paying</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-streamlining-your-creative-process-with-windows-10-video-tools/"><u>[Updated] In 2024, Streamlining Your Creative Process with Windows 10 Video Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unfreezing-photo-booth-recordings-a-guide-to-smoother-playback/"><u>[Updated] In 2024, Unfreezing Photo Booth Recordings  A Guide to Smoother Playback</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-innovative-apps-for-mastering-dji-footage-quality-for-2024/"><u>[Updated] Innovative Apps for Mastering DJi Footage Quality for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-audio-best-practices-for-ipodcasting-interviews-on-ios-devices/"><u>[Updated] Mastering Audio  Best Practices for iPodcasting Interviews on iOS Devices</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-metaverse-meets-omniverse-a-comparative-guide/"><u>[Updated] Metaverse Meets Omniverse  A Comparative Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mosaicmind-pro-unleashing-creative-potential-for-2024/"><u>[Updated] MosaicMind Pro  Unleashing Creative Potential for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/12-pro-5g-video-recovery-recover-deleted-videos-from-12-pro-5g-by-fonelab-android-recover-video/"><u>12 Pro 5G Video Recovery - Recover Deleted Videos from 12 Pro 5G</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-efficiently-piecing-together-google-collage-projects/"><u>2024 Approved  Efficiently Piecing Together Google Collage Projects</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-intensified-interaction-through-advanced-zoom-settings/"><u>2024 Approved  Intensified Interaction Through Advanced ZOOM Settings</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-masterful-motion-secrets-from-a-pro-canon-time-lapse-viewer/"><u>2024 Approved  Masterful Motion  Secrets From a Pro Canon Time-Lapse Viewer</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-oppo-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Oppo</u></a></li>
+<li><a href="https://fox-links.techidaily.com/boosting-visuals-with-photoshops-motion-blur-effect-tutorial/"><u>Boosting Visuals with Photoshop's Motion Blur Effect Tutorial</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/google-pixel-fold-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Google Pixel Fold ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/gopro-hero4-vs-drift-ghost-ultimate-performance-showdown/"><u>GoPro Hero4 Vs. Drift Ghost - Ultimate Performance Showdown</u></a></li>
+<li><a href="https://fox-links.techidaily.com/highlighted-visions-is-intensified-lighting-the-future-of-hd-in-hdr/"><u>Highlighted Visions  Is Intensified Lighting the Future of HD in HDR?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-from-apple-iphone-6-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock from Apple iPhone 6</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-3-ways-to-track-apple-iphone-13-mini-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Ways to Track Apple iPhone 13 mini without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-designing-dramatic-podcast-clips/"><u>In 2024, Designing Dramatic Podcast Clips</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-explore-the-best-webcams-on-your-windows-10-pc/"><u>In 2024, Explore the Best Webcams on Your Windows 10 PC</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fast-and-furious-the-prime-5-video-clipping-tools-in-chromes/"><u>In 2024, Fast & Furious  The Prime 5 Video Clipping Tools in Chromes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-high-quality-video-music-services/"><u>In 2024, High-Quality Video Music Services</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-insta-influence-unleashed-the-ultimate-guide-to-power-players-strategies/"><u>In 2024, Insta Influence Unleashed  The Ultimate Guide to Power Players' Strategies</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-notable-20-free-non-exclusive-pubg-screenshots/"><u>In 2024, Notable 20 Free, Non-Exclusive PUBG Screenshots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-streaming-software-showdown-the-verdict-on-wirecast-vs-obs/"><u>In 2024, Streaming Software Showdown  The Verdict on Wirecast Vs. OBS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-synthesis-of-song-elements-the-crossfade-approach/"><u>In 2024, Synthesis of Song Elements  The Crossfade Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-echoes-36-words-birthed-by-the-globe/"><u>Linguistic Echoes: 36 Words Birthed by the Globe</u></a></li>
+<li><a href="https://fox-http.techidaily.com/stitching-photographs-into-an-eye-catching-canvas/"><u>Stitching Photographs Into an Eye-Catching Canvas</u></a></li>
+</ul></div>
