@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Shared Sights  Origins Spelled Out\""
-date: 2024-07-12T07:34:26.460Z
-updated: 2024-07-13T07:34:26.460Z
+date: 2024-08-15T19:01:42.057Z
+updated: 2024-08-16T19:01:42.057Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,9 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
@@ -65,24 +68,37 @@ Since then, the meme continues to enjoy mass popularity, including:
 The latest version of Distracted boyfriend is a compilation of photos featuring the three models, with the last one showing the women hanging out.
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
 ## Part3: I Bet He's Thinking About Other Women
 
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
 
 However, subsequent memes feature satirical themes. Here are some of the most popular versions and their popularity.
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
 * Redditor GallowBoob received 34,700 points and 350 comments within 24 hours of posting it.
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
@@ -113,8 +129,15 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## Part5: FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Can you use stock photos for memes?
 
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
@@ -125,6 +148,9 @@ This is because not all stock photo providers offer their images with a creative
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Can you use watermarked stock photos to create memes?
 
 No. Before using watermarked images to create memes, you must get verifiable permission from the rights holder. This is because it violates copyright law and can result in heavy fines or even prison time in extreme circumstances.
@@ -160,3 +186,65 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-a-complete-introduction-to-snapchats-new-feature/"><u>[New] 2024 Approved  A Complete Introduction to Snapchat's New Feature</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-assemble-films-for-streaming-organization/"><u>[New] 2024 Approved  Assemble Films for Streaming Organization</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-decoding-srt-for-subc-effective-conversion-guide/"><u>[New] 2024 Approved  Decoding SRT for SUBC  Effective Conversion Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-effortlessly-edit-podcasts-best-practices-with-garageband/"><u>[New] 2024 Approved  Effortlessly Edit Podcasts  Best Practices with GarageBand</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-next-gen-tracker-seamless-camera-movement-coordination/"><u>[New] 2024 Approved  Next-Gen Tracker  Seamless Camera Movement Coordination</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-ultrawide-vs-uhd-4k-monitors-the-experts-advice/"><u>[New] 2024 Approved  UltraWide VS UHD 4K Monitors  The Expert's Advice</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unparalleled-dramatic-audio-experiences/"><u>[New] 2024 Approved  Unparalleled Dramatic Audio Experiences</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-which-is-it-for-you-air-or-pro-with-m1-upgrade/"><u>[New] 2024 Approved  Which Is It for You, Air or Pro with M1 Upgrade?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-bring-back-missing-watch-playlist-icon/"><u>[New] Bring Back Missing Watch Playlist Icon</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-game-on-in-reality-the-ultimate-vr-headset-comparison/"><u>[New] Game On in Reality  The Ultimate VR Headset Comparison</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-gamegazers-graphic-guide/"><u>[New] In 2024, GameGazer's Graphic Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-mastering-quick-face-blurring-on-picscroller/"><u>[New] In 2024, Mastering Quick Face-Blurring on PicScroller</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-top-game-screens-for-ps5-and-xbox-series-x-revealed/"><u>[New] In 2024, Top Game Screens for PS5 and Xbox Series X Revealed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-ultimate-selection-top-7-high-definition-camcorders-for-dynamic-shots/"><u>[New] In 2024, Ultimate Selection  Top 7 High-Definition Camcorders for Dynamic Shots</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-navigating-through-glitches-in-facebook-live-video-uploads-for-2024/"><u>[New] Navigating Through Glitches in Facebook Live Video Uploads for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-paragon-of-plot-design-in-cinemas-segmented-landscape-for-2024/"><u>[New] Paragon of Plot Design in Cinema's Segmented Landscape for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-polishing-job-experience-descriptions/"><u>[New] Polishing Job Experience Descriptions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-quick-and-simple-facial-masking-in-photos/"><u>[New] Quick & Simple Facial Masking in Photos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-powerhouse-of-4k-reviewing-the-nikon-j5-camera/"><u>[New] The Powerhouse of 4K  Reviewing the Nikon J5 Camera</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unravel-the-mystery-of-scouring-exceptional-photos-on-pexels-for-2024/"><u>[New] Unravel the Mystery of Scouring Exceptional Photos on Pexels for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-cut-the-hassle-with-macos-easy-to-follow-video-size-adjustment-for-instagram/"><u>[Updated] 2024 Approved  Cut the Hassle with MacOS  Easy-to-Follow Video Size Adjustment for Instagram</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-stabilizing-high-flying-camera-work-a-guide/"><u>[Updated] 2024 Approved  Stabilizing High-Flying Camera Work  A Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-audiences-choice-in-drama-writings/"><u>[Updated] Audience's Choice in Drama Writings</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-decoding-sound-sequence-confluence-crossfading-explained/"><u>[Updated] Decoding Sound Sequence Confluence  Crossfading Explained</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-elite-editions-high-end-macpc-video-decode-tools/"><u>[Updated] Elite Editions  High-End Mac/PC Video Decode Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-7-must-have-metaverse-devices-you-need-to-prepare/"><u>[Updated] In 2024, 7 Must-Have Metaverse Devices You Need to Prepare</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-accelerated-image-viewer-in-windows-environment/"><u>[Updated] In 2024, Accelerated Image Viewer in Windows Environment</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-design-excellence-premier-templates-and-free-2023-plan-guide/"><u>[Updated] In 2024, Design Excellence  Premier Templates & Free 2023 Plan Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-insight-into-magix-design-studio/"><u>[Updated] In 2024, Insight Into MAGIX Design Studio</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-leveraging-ios-11-for-professional-level-iphone-shots/"><u>[Updated] Leveraging iOS 11 for Professional-Level iPhone Shots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-specter-3-challenge-golem-4s-arrival-for-2024/"><u>[Updated] Specter 3 Challenge  Golem 4'S Arrival for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/accelerate-vm-performance-on-windows-6-precise-tips-and-tricks/"><u>Accelerate VM Performance on Windows: 6 Precise Tips & Tricks</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-htc-u23-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for HTC U23 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enchant-your-audience-with-these-20-marketing-phrases-for-2024/"><u>Enchant Your Audience with These 20 Marketing Phrases for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhance-your-stream-with-netflixs-flexible-screen-feature/"><u>Enhance Your Stream with Netflix's Flexible Screen Feature</u></a></li>
+<li><a href="https://fox-links.techidaily.com/fine-tuning-zoom-visuals-top-techniques/"><u>Fine-Tuning Zoom Visuals  Top Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/gionee-f3-pro-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gionee F3 Pro Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Honor 90 GT? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-c55-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Poco C55 Phone with Broken Screen</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-motorola-moto-g24-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Motorola Moto G24 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-budget-breakdown-funding-the-art-of-song-capture/"><u>In 2024, Budget Breakdown  Funding The Art of Song Capture</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-full-guide-to-iphone-14-pro-icloud-bypass-by-drfone-ios/"><u>In 2024, Full guide to iPhone 14 Pro iCloud Bypass</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-funnyframeforge-picfunnyfactory/"><u>In 2024, FunnyFrameForge  PicFunnyFactory</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-y27-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo Y27 5G by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-top-best-background-erase-software/"><u>In 2024, Top Best Background Erase Software</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/integrate-advanced-note-organization-on-mematic/"><u>Integrate Advanced Note Organization on Mematic</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-honor-magic-6-pro-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Honor Magic 6 Pro Phone FRP Lock</u></a></li>
+<li><a href="https://techtrends.techidaily.com/learn-smarter-with-these-top-8-tech-tools-of-2024/"><u>Learn Smarter with These Top 8 Tech Tools of 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/macbook-insights-how-macbook-air-stands-out-against-macbook-pro/"><u>MacBook Insights: How MacBook Air Stands Out Against MacBook Pro?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-social-crosslink-instagram-and-tiktok-guide-for-2024/"><u>Mastering Social Crosslink  Instagram & TikTok Guide for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/navigating-iphones-with-ease-download-podcasts-made-simple/"><u>Navigating iPhones with Ease - Download Podcasts Made Simple</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ct-pick-the-best-microphones-for-all-yt-content-types/"><u>Perfect Pick  The Best Microphones For All YT Content Types</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/seamless-virtual-conferencing-in-gmail-via-zoom-best-practices/"><u>Seamless Virtual Conferencing in Gmail via Zoom Best Practices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/strategies-for-effectively-swapping-gender-identity-in-digital-media-images/"><u>Strategies for Effectively Swapping Gender Identity in Digital Media Images</u></a></li>
+<li><a href="https://fox-links.techidaily.com/topeight-innovative-4k-blu-ray-player-options-for-2024/"><u>TopEight  Innovative 4K Blu-Ray Player Options for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-vivo-v27e-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Vivo V27e Phone Network-Ready</u></a></li>
+</ul></div>

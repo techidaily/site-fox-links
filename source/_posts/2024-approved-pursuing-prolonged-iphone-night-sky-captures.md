@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Pursuing Prolonged iPhone Night Sky Captures\""
-date: 2024-07-12T07:34:39.235Z
-updated: 2024-07-13T07:34:39.235Z
+date: 2024-08-15T19:01:30.625Z
+updated: 2024-08-16T19:01:30.625Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,9 @@ thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
@@ -48,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4
  Next, take a live photo. This is a moving image, a bit like recording with your video camera, but much shorter. Try to keep the iPhone steady as you take your shot, and choose to shoot something that is continually moving, but with a relatively stable background. Something like cars going down a street is a great place to start.
 
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 
  Image resource: iPhoneMod
 
@@ -91,17 +98,26 @@ thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4
 * **Motion blur:** To give the sense of something really moving fast, a motion blur can be a captivating effect. From vehicles on the city street to a galloping horse, allowing the moving object to blur whilst everything else around it stays in focus can add a dose of drama to your shots.
 
 ![motion-blur-long-exposure](https://images.wondershare.com/filmora/article-images/motion-blur-long-exposure.jpg)
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image resource: Digital Photo Secrets
 
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
 
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image resource: Nikonites
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ## To conclude
 
  Using a digital SLR is looking less and less appealing these days, as Apple push the boundaries of what a phone can do ever further. If you're not using a device that supports Live Photos, try a workaround using a specifically developed app so that you can join in the fun too.
@@ -109,6 +125,9 @@ thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4
  With the iPhone camera long exposure shots could really up your game on social media. Whether you're a budding travel photographer, a wannabe stock photo entrepreneur or simply an Instagram lover who wants to impress their friends, have a play with the technology available to you and see what you can create. Long exposure shots are massively popular right now, so grab your iPhone and get snapping!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -134,3 +153,37 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-inside-hand-tracking-techniques-and-varieties/"><u>[New] 2024 Approved  Inside Hand Tracking  Techniques & Varieties</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-navigating-skies-drone-shooting-basics/"><u>[New] 2024 Approved  Navigating Skies  Drone Shooting Basics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-seven-superior-cameras-defy-the-elements-waterproof/"><u>[New] 2024 Approved  Seven Superior Cameras Defy the Elements (Waterproof)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-best-fusion-of-cost-effective-and-premium-video-collage-for-android-devices-for-2024/"><u>[New] Best Fusion of Cost-Effective and Premium Video Collage for Android Devices for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-effortless-edits-streamlining-your-tiktok-archives-excessive-saves/"><u>[New] Effortless Edits  Streamlining Your TikTok Archive's Excessive Saves</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-external-microphones-to-elevate-film-quality-for-2024/"><u>[New] External Microphones to Elevate Film Quality for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-how-to-turn-a-tiktok-sound-into-your-ringtone-a-detailed-guidance/"><u>[New] In 2024, How To Turn A TikTok Sound Into Your Ringtone? A Detailed Guidance</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-quick-escapes-dodging-edgenuity-online-course-videos-easily/"><u>[New] In 2024, Quick Escapes  Dodging Edgenuity Online Course Videos Easily</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-record-screen-on-xiaomi-11t-mi-11mi-11-lite/"><u>[New] In 2024, Record Screen on Xiaomi 11T/ Mi 11/Mi 11 Lite</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-vr-surgical-training-and-planning-systems/"><u>[New] In 2024, VR Surgical Training and Planning Systems</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-refine-your-remote-sessions-zoom-in-effectively/"><u>[New] Refine Your Remote Sessions  Zoom in Effectively</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-imitation-ingenuity-generating-parodies-of-films/"><u>[Updated] 2024 Approved  Imitation Ingenuity  Generating Parodies of Films</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-maximizing-reach-twitch-streams-via-facebook/"><u>[Updated] 2024 Approved  Maximizing Reach  Twitch Streams via Facebook</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-safaris-picture-in-picture-feature-usage-guide/"><u>[Updated] 2024 Approved  Safari's Picture-in-Picture Feature Usage Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-balancing-dynamics-with-controlled-decays/"><u>[Updated] Balancing Dynamics with Controlled Decays</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-innovative-designs-unleashed-comprehensive-guide-to-animation-suites/"><u>[Updated] Innovative Designs Unleashed  Comprehensive Guide to Animation Suites</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-premier-music-selections-for-movie-making-for-2024/"><u>[Updated] Premier Music Selections for Movie Making for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-ultimate-mp3-compilation-top-youtube-transformers/"><u>[Updated] Ultimate MP3 Compilation  Top YouTube Transformers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-blending-pictures-into-a-single-storyboard-image/"><u>2024 Approved  Blending Pictures Into a Single Storyboard Image</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-bring-your-pics-to-life-with-easy-text-editing-apps/"><u>2024 Approved  Bring Your Pics to Life with Easy Text Editing Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/cross-platform-strategies-for-maximum-instagram-exposure/"><u>Cross-Platform Strategies for Maximum Instagram Exposure</u></a></li>
+<li><a href="https://fox-links.techidaily.com/exceptional-uav-selection-for-optimal-gopro-footage-for-2024/"><u>Exceptional UAV Selection for Optimal GoPro Footage for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/how-to-seamlessly-add-vimeo-videos-to-insta-feed-for-2024/"><u>How to Seamlessly Add Vimeo Videos to Insta Feed for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-android-photo-editor-is-pickup-top/"><u>In 2024, Best Android Photo Editor  Is PickUp Top?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/inside-the-drone-world-detailed-look-at-dji-phantom-4/"><u>Inside the Drone World  Detailed Look at DJI Phantom 4</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigating-privacy-to-locate-a-persons-email-tips-and-techniques/"><u>Navigating Privacy to Locate a Person's Email - Tips & Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/soaring-high-with-q500s-4k-vision/"><u>Soaring High with Q500's 4K Vision</u></a></li>
+<li><a href="https://fox-links.techidaily.com/streamlining-your-drone-footage-with-advanced-techniques-for-2024/"><u>Streamlining Your Drone Footage with Advanced Techniques for 2024</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-oneplus-open-by-fonelab-android-recover-video/"><u>Undeleted lost videos from OnePlus Open</u></a></li>
+</ul></div>
