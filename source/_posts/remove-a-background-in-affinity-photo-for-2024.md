@@ -1,0 +1,246 @@
+---
+title: "Remove a Background in Affinity Photo for 2024"
+date: 2024-08-23T03:03:45.846Z
+updated: 2024-08-24T03:03:45.846Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes Remove a Background in Affinity Photo for 2024"
+excerpt: "This Article Describes Remove a Background in Affinity Photo for 2024"
+keywords: "ClearPhotoBackdrop,CleanImageBackground,DeclutterPhotos,RemoveBackgroundNoise,SimplifyImages,FocusFotoBg,SharpImageFocus"
+thumbnail: https://thmb.techidaily.com/1c9229fb0800113350dfae57f612d2aef9036646b6591dcd5ed2f832a16cf380.jpg
+---
+
+## Remove a Background in Affinity Photo
+
+Affinity Photo is an image editor developed by Serif Ltd. in 2009 and is used by professional graphic designers and content editors. It makes the content editing process a hassle-free, creative, and enjoyable activity. Also, beginners and amateur content editors can easily use Affinity Photo.
+
+No matter you are a professional content creator or a newbie, we'll be discussing how to remove background in Affinity Photo. Let's explore how to use the good editing tool to be free of the stressful editing process.
+
+## How to Remove Affinity Photo to Remove Image's Background
+
+Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
+
+### How to Erase a White Background in Affinity Designer
+
+To erase a white background in Affinity Designer, do these steps:
+
+Step1 In the first step, install the [Affinity Designer](https://affinity.serif.com/en-us/designer/)software and launch it on your computer. Go to **"File" > "Open"** and head to the location of your image with a white background on your drive to import it.
+
+Now access the **Pixel Persona** section in the left corner of the software screen by clicking the **colored boxes** icon.
+
+![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
+
+Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
+
+![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
+
+Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
+
+![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
+
+Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, and use the Selection Brush tool to manually correct the rough edges of your outline.
+
+Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** menu. A red mask will be applied to your subject, giving you an idea of how your image will look once you remove the background. Zoom in and if any details are excluded, paint them over. Once you are satisfied, click **"Apply"** to save your changes.
+
+![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
+
+Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
+
+Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### How to Remove a Busy Background in Affinity Designer
+
+If you want to remove a busy background of an image in the Affinity Designer software, follow these steps carefully:
+
+Step1 Click the **"File"** option in Affinity Designer and select **"Open"** from the drop-down menu. Select your image and click **"Open"** to import your picture.
+
+From the right-side panel, open the **Layers** tab and click the **"Lock"** icon to unlock your image layer, which is set as locked by default. Now, right-click on the layer and select **"Rasterize & Trim."** Rasterization will help remove the background.
+
+Step2 Next, you have to make a selection around your object/subject in the picture. Click the **"Selection Brush"** tool from the left-side panel to do so.
+
+Now your cursor will be changed to a circle. To increase or decrease the brush size, use the **Right** and **Left Bracket** keys on your keyboard. Now, move around the brush on your image to outline your subject.
+
+Step3 Once you've made a selection around your object, it's time to refine it to make it more precise. To do so, click the **"Refine"** option from the top toolbar to open the **"Refine Selection"** menu.
+
+Focus on the **Foreground** and **Background** brushes in the **Refine Selection** menu and toggle between these settings to make your selection more accurate. You can use the **Right or Left Bracket** key on your keyboard to adjust the brush size where needed.  
+Once satisfied with your changes, click the **"Apply"** option in the **Refine Selection** menu to save your settings.
+
+Step4 Now that you've outlined your subject clearly and precisely, it's time to remove the busy background. To do so, click the **Delete key** on your keyboard if you use a Windows PC.
+
+If you are using a Mac system, click **"Edit"** in the toolbar and select **"Cut"** from the drop-down menu. Your background will be removed and changed to a checkboard pattern.
+
+Step5 In this last step, you must deselect the outline around your subject. For this, press the **"Control+D"** key on your keyboard or click **"Select"** in the toolbar and choose the **"Deselect"** option.
+
+Finally, click **"File"** and select the **"Export"** option from the drop-down menu. Then, in the Export Settings menu, choose PNG and click **"Export"** to save your file on your PC.
+
+![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Note:** To save your image with a transparent background, do not export it in JPG file format.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
+## The Best Alternative of Affinity Photo
+
+Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
+
+Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
+
+![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
+Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
+
+* Offline and online image editing tools.
+* Removes the background in just three steps. Upload an image, automatically remove the background, and get a pleasing image result.
+* Offers a transparent image background that can be replaced.
+* Helps in unblurring an image.
+* No previous editing expertise is required as it is AI-powered automatic tool.
+* Bulk removes backgrounds of up to 30 images, uploading them all at once.
+* Removes watermarks, scratches, text, and any other imperfections from your images.
+* Enlarge your images without losing their quality.
+* Integrates the image background API into other apps and websites.
+* Can be downloaded on Windows, Mac, and Android.
+* Create a free account for easier future access.
+* Paid and customized accounts for premium benefits.
+* Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
+
+## Conclusion
+
+This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
+
+With advancing technology, you can find different image editing tools online. However, only a few of them can deliver the promised results. Therefore, you need to choose carefully to save time and effort. Please read our complete guide to learn more about [removing an image's background](https://tools.techidaily.com/wondershare/filmora/download/)[.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+And if you have any interests in finding free images to expand your resource, you can watch this video:
+
+Hopefully, this article and video can help you create ideal images!
+
+## The Best Alternative of Affinity Photo
+
+Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
+
+Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
+
+![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
+Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
+
+* Offline and online image editing tools.
+* Removes the background in just three steps. Upload an image, automatically remove the background, and get a pleasing image result.
+* Offers a transparent image background that can be replaced.
+* Helps in unblurring an image.
+* No previous editing expertise is required as it is AI-powered automatic tool.
+* Bulk removes backgrounds of up to 30 images, uploading them all at once.
+* Removes watermarks, scratches, text, and any other imperfections from your images.
+* Enlarge your images without losing their quality.
+* Integrates the image background API into other apps and websites.
+* Can be downloaded on Windows, Mac, and Android.
+* Create a free account for easier future access.
+* Paid and customized accounts for premium benefits.
+* Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
+## Conclusion
+
+This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
+
+With advancing technology, you can find different image editing tools online. However, only a few of them can deliver the promised results. Therefore, you need to choose carefully to save time and effort. Please read our complete guide to learn more about [removing an image's background](https://tools.techidaily.com/wondershare/filmora/download/)[.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+And if you have any interests in finding free images to expand your resource, you can watch this video:
+
+Hopefully, this article and video can help you create ideal images!
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-capturing-brilliance-with-the-q500-drone/"><u>[New] 2024 Approved  Capturing Brilliance with the Q500 Drone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-decoding-the-mechanics-of-subscriber-tracking/"><u>[New] 2024 Approved  Decoding the Mechanics of Subscriber Tracking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-elegant-presents-made-easy-your-guide-to-shopping-for-personalized-packaging/"><u>[New] 2024 Approved  Elegant Presents Made Easy  Your Guide to Shopping for Personalized Packaging</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-navigate-office-tasks-with-voice-recognition-in-microsoft-word/"><u>[New] 2024 Approved  Navigate Office Tasks with Voice Recognition in Microsoft Word</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-playing-srt-files-in-windowsmac/"><u>[New] 2024 Approved  Playing SRT Files in Windows/MAC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-allinone-vmix-companion-for-2024/"><u>[New] AllInOne VMix Companion for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-media-makers-software-linux-edition/"><u>[New] Essential Media Makers' Software  Linux Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-expert-tips-for-srt-enhanced-mp4-files/"><u>[New] Expert Tips for SRT-Enhanced MP4 Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-kinetic-control-on-android-the-kinemaster-dive/"><u>[New] In 2024, Kinetic Control on Android  The KineMaster Dive</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-time-travel-through-free-visual-storerooms/"><u>[New] In 2024, Time Travel Through Free Visual Storerooms</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-unmissable-worlds-that-define-gaming/"><u>[New] In 2024, Unmissable Worlds That Define Gaming</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-prime-video-technology-hunt-our-top-10-choices-2024/"><u>[New] Prime Video Technology Hunt – Our Top 10 Choices, 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-step-by-step-guide-uploading-imovie-videos-to-vimeo-platform-for-2024/"><u>[New] Step-by-Step Guide  Uploading iMovie Videos to Vimeo Platform for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-subdued-soundscape-stitches-for-garageband-workflows-for-2024/"><u>[New] Subdued Soundscape Stitches for Garageband Workflows for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-testing-titans-in-depth-comparison-of-gopros-hero5b-and-session/"><u>[New] Testing Titans  In-Depth Comparison of GoPro's Hero5B & Session</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-understanding-the-basics-of-motion-design/"><u>[New] Understanding the Basics of Motion Design</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-updated-list-of-conversation-catalysts-for-listener-retention-for-2024/"><u>[New] Updated List of Conversation Catalysts for Listener Retention for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-beginners-to-pros-choosing-webcams-for-youtube-live/"><u>[Updated] 2024 Approved  From Beginners to Pros  Choosing Webcams for YouTube Live</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-prime-windows-rapid-photo-displayer/"><u>[Updated] 2024 Approved  Prime Window's Rapid Photo Displayer</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-step-by-step-guide-to-wirecast-facebook-livestreams/"><u>[Updated] 2024 Approved  Step-by-Step Guide to Wirecast Facebook Livestreams</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-top-10-hidden-functions-to-enhance-your-canva-artistry/"><u>[Updated] 2024 Approved  Top 10 Hidden Functions to Enhance Your Canva Artistry</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-deciphering-concealed-views-on-video-content-for-2024/"><u>[Updated] Deciphering Concealed Views on Video Content for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-from-phone-to-professional-recording-diy-tips-and-tricks-for-2024/"><u>[Updated] From Phone to Professional Recording  DIY Tips and Tricks for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-exclusive-insta-stories-for-private-eyes/"><u>[Updated] In 2024, Exclusive Insta Stories for Private Eyes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-innovations-in-balancing-exposures-for-perfect-pictures/"><u>[Updated] Innovations in Balancing Exposures for Perfect Pictures</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-market-leading-6-platforms-enhancing-biz-interaction-for-2024/"><u>[Updated] Market-Leading 6 Platforms Enhancing Biz Interaction for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-step-by-step-guide-to-3d-text-effects-in-psx/"><u>[Updated] Step-by-Step Guide to 3D Text Effects in PSX</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-5-must-try-samsung-gear-vr-games-for-2024/"><u>[Updated] The 5 Must-Try Samsung Gear VR Games for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/capture-crop-and-color-correct-with-this-lists-top-5-android-apps/"><u>Capture, Crop, and Color-Correct with This List's Top 5 Android Apps</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/complete-guide-for-apple-iphone-12-lock-screen-by-drfone-ios/"><u>Complete Guide For Apple iPhone 12 Lock Screen</u></a></li>
+<li><a href="https://fox-links.techidaily.com/easy-entry-to-excellence-understanding-high-definition-video/"><u>Easy Entry to Excellence  Understanding High-Definition Video</u></a></li>
+<li><a href="https://fox-links.techidaily.com/echo-of-the-land-downloading-and-personalizing-tamil-ringtones/"><u>Echo of the Land  Downloading & Personalizing Tamil Ringtones</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-itel-p55-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Itel P55 5G FRP Bypass</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-boosting-visual-impact-the-11-best-practices-for-color-workflow/"><u>In 2024, Boosting Visual Impact  The 11 Best Practices for Color Workflow</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-vivo-t2-pro-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Vivo T2 Pro 5G</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-from-individual-tracks-to-albums-building-a-personalized-soundtrack-on-web-and-mobile/"><u>In 2024, From Individual Tracks to Albums  Building a Personalized Soundtrack on Web & Mobile</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-lava-yuva-3-pro-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Lava Yuva 3 Pro to Outlook | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-apple-iphone-15-for-parents-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Telegram Spy Tools On Apple iPhone 15 for Parents | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/perfecting-proximity-views-an-essential-for-roblox-enthusiasts-for-2024/"><u>Perfecting Proximity Views  An Essential for Roblox Enthusiasts for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-8-data-from-ios-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 8 Data From iOS iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-comprehensive-guide-to-ultimate-video-editing-vivacut-24-edition-for-2024/"><u>The Comprehensive Guide to Ultimate Video Editing  VivaCut '24 Edition for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-racers-question-physical-input-vs-digital-dashboard-dominance/"><u>The Racer's Question: Physical Input Vs. Digital Dashboard Dominance</u></a></li>
+<li><a href="https://fox-links.techidaily.com/tomtoms-newest-bold-camera-the-bandit-2023-for-2024/"><u>TomTom's Newest Bold Camera, The Bandit 2023 for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/top-10-free-whiteboard-video-makers-for-windows-and-mac/"><u>Top 10 Free Whiteboard Video Makers for Windows and Mac</u></a></li>
+<li><a href="https://fox-links.techidaily.com/top-picks-hilarity-driven-ringtones-for-laughter-lovers-for-2024/"><u>Top Picks  Hilarity-Driven Ringtones for Laughter Lovers for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-restoring-functionality-in-internet-explorer-failures/"><u>Troubleshooting Guide: Restoring Functionality in Internet Explorer Failures</u></a></li>
+</ul></div>
