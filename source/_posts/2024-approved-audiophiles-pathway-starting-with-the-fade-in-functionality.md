@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Audiophile's Pathway  Starting with the Fade-In Functionality\""
-date: 2024-07-12T07:25:14.044Z
-updated: 2024-07-13T07:25:14.044Z
+date: 2024-08-28T09:56:11.795Z
+updated: 2024-08-29T09:56:11.795Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,9 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Steps to use Filmora
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -72,12 +75,23 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
@@ -100,6 +114,9 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **Steps to use Filmora
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -113,6 +130,9 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
@@ -121,6 +141,9 @@ If you want to fade in and fade out two clips at the same time, then controlling
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
@@ -158,3 +181,58 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-sierras-icloud-drive-essentials-for-seamless-workflows/"><u>[New] 2024 Approved  Sierra’s iCloud Drive Essentials for Seamless Workflows</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-8-cutting-edge-skins-perfect-for-your-laptop/"><u>[New] 8 Cutting-Edge Skins Perfect for Your Laptop</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-best-rated-vr-joysticks-unveiled-for-2024/"><u>[New] Best-Rated VR Joysticks Unveiled for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-bring-back-contrast-iphone-hdr-video-tips-for-premiere-pro-users/"><u>[New] Bring Back Contrast  IPhone HDR Video Tips for Premiere Pro Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-crafting-audio-narratives-best-backdrop-tunes/"><u>[New] Crafting Audio Narratives  Best Backdrop Tunes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-crucial-top-5-compact-action-recorder-recommendations/"><u>[New] Crucial Top 5 Compact Action Recorder Recommendations</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-dive-into-virtual-realities-with-up-to-date-android-tips/"><u>[New] Dive Into Virtual Realities with Up-to-Date Android Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-editing-to-sharing-using-premiere-with-youtube/"><u>[New] From Editing to Sharing  Using Premiere with YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-how-to-avoid-and-eliminate-fog-on-gopro-lenshousing-for-2024/"><u>[New] How to Avoid and Eliminate Fog on GoPro Lens/Housing for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-20-most-memorable-anime-series-intros/"><u>[New] In 2024, 20 Most Memorable Anime Series Intros</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-discovering-budget-friendly-framed-imagery/"><u>[New] In 2024, Discovering Budget-Friendly Framed Imagery</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-ice-capped-inspiration-chinas-sports-spectacle/"><u>[New] In 2024, Ice-Capped Inspiration  China's Sports Spectacle</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-jest-engineer-online-for-2024/"><u>[New] Jest Engineer Online for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-maximizing-views-on-tiktok-unboxing-content/"><u>[New] Maximizing Views on TikTok Unboxing Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-complete-checklist-for-internet-broadcast-preservation-for-2024/"><u>[New] The Complete Checklist for Internet Broadcast Preservation for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-alarm-choices-best-download-junctions-for-2024/"><u>[New] Top Alarm Choices  Best Download Junctions for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-best-overlay-solutions-for-your-videos/"><u>[Updated] 2024 Approved  Best Overlay Solutions for Your Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-echoes-expanse-a-compreshift-of-best-speech-to-text-applications/"><u>[Updated] 2024 Approved  Echoes Expanse  A Compreshift of Best Speech-to-Text Applications</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-elite-uavs-get-yours-today/"><u>[Updated] 2024 Approved  Elite UAVs  Get Yours Today</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-fb-video-to-mp3-digital-audio-extraction-guide/"><u>[Updated] 2024 Approved  FB Video to MP3  Digital Audio Extraction Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-powerpoint-tips-adding-and-capturing-speech-sounds/"><u>[Updated] 2024 Approved  PowerPoint Tips  Adding and Capturing Speech Sounds</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-snap-and-crop-utilizing-iphones-image-editing-capabilities/"><u>[Updated] 2024 Approved  Snap & Crop  Utilizing iPhone’s Image Editing Capabilities</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-essential-4-techniques-for-sharpening-iphone-hdr-videos-on-premiere-for-2024/"><u>[Updated] Essential 4 Techniques for Sharpening iPhone HDR Videos on Premiere for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-generating-funny-images-through-adobe-for-2024/"><u>[Updated] Generating Funny Images Through Adobe for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-exclusive-catalog-budget-friendly-image-treasuries-online/"><u>[Updated] In 2024, Exclusive Catalog  Budget-Friendly Image Treasuries Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-speedy-glimpse-through-windows-files/"><u>[Updated] In 2024, Speedy Glimpse Through Windows Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unlocking-asmrs-health-perks-a-guide/"><u>[Updated] In 2024, Unlocking ASMR's Health Perks  A Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-maximize-content-by-merging-apple-music-to-videos/"><u>[Updated] Maximize Content by Merging Apple Music to Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-networked-video-streams-with-precision-using-vlc/"><u>[Updated] Navigating Networked Video Streams with Precision Using VLC</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/discovering-cost-free-fcp-access/"><u>Discovering Cost-Free FCP Access</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhance-your-virtual-stage-the-ultimate-list-of-top-6-microphones-for-2024/"><u>Enhance Your Virtual Stage  The Ultimate List of Top 6 Microphones for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/full-examination-of-djis-drone-inspire-1/"><u>Full Examination of DJI's Drone, Inspire 1</u></a></li>
+<li><a href="https://fox-links.techidaily.com/harmonymix-pro-mac-and-windows-version-for-2024/"><u>HarmonyMix Pro Mac & Windows Version for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/how-much-space-does-a-days-video-take-up/"><u>How Much Space Does a Day's Video Take Up?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-accessing-audio-at-no-cost-the-ultimate-list-of-8-mp3-seekers-android/"><u>In 2024, Accessing Audio at No Cost  The Ultimate List of 8 MP3 Seekers (Android)</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-motorola-moto-g23-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Motorola Moto G23 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-in-depth-look-at-facetune-a-photographers-best-friend/"><u>In 2024, In-Depth Look at Facetune  A Photographer’s Best Friend</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-standout-book-trailer-highlights/"><u>In 2024, Standout Book Trailer Highlights</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-steady-snaps-premier-tripods-for-mobile-cameras/"><u>In 2024, Steady Snaps  Premier Tripods for Mobile Cameras</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-top-8-iphone-sketchers-exceptional-drawing-apps-reviewed/"><u>In 2024, Top 8 iPhone Sketchers  Exceptional Drawing Apps Reviewed</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-ultimate-software-showdown-winning-windows-10-video-grabbers/"><u>In 2024, Ultimate Software Showdown  Winning Windows 10 Video Grabbers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-unlock-professional-graphics-custom-templates-on-the-house/"><u>In 2024, Unlock Professional Graphics - Custom Templates on the House</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-multitask-media-consumption-harnessing-pip-feature-in-netflix/"><u>Mastering Multitask Media Consumption  Harnessing PIP Feature in Netflix</u></a></li>
+<li><a href="https://fox-links.techidaily.com/navigating-windows-10-like-a-tech-wizard-for-2024/"><u>Navigating Windows 10 Like a Tech Wizard for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/precision-editing-at-your-fingertips-canvas-boundary-eradication/"><u>Precision Editing at Your Fingertips  Canva's Boundary Eradication</u></a></li>
+<li><a href="https://win-able.techidaily.com/red-dead-online-for-pc-troubleshooting-persistent-crash-problems/"><u>Red Dead Online for PC - Troubleshooting Persistent Crash Problems</u></a></li>
+<li><a href="https://fox-links.techidaily.com/superior-selections-high-capacity-cloud-options-for-2024/"><u>Superior Selections  High-Capacity Cloud Options for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-free-psp-video-conversion-software-how-to-easily-transform-your-movies-into-psp-format/"><u>Top Free PSP Video Conversion Software: How to Easily Transform Your Movies Into PSP Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/trapped-in-online-purgatory-discover-why/"><u>Trapped in Online Purgatory? Discover Why</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ultimate-collection-top-notch-free-meme-designs-for-2024/"><u>Ultimate Collection  Top-Notch FREE Meme Designs for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlock-the-secrets-crafting-captivating-instagram-unboxing-videos/"><u>Unlock the Secrets  Crafting Captivating Instagram Unboxing Videos</u></a></li>
+</ul></div>
