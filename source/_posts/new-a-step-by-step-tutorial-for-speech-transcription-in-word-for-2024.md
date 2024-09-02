@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Step-by-Step Tutorial for Speech Transcription in Word for 2024\""
-date: 2024-07-12T07:20:32.566Z
-updated: 2024-07-13T07:20:32.566Z
+date: 2024-09-01T12:53:59.910Z
+updated: 2024-09-02T12:53:59.910Z
 tags: 
   - screen-recording
   - ai video
@@ -106,12 +106,18 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Evernote Speech-To-Text
 
 Evernote is a widely used note-taking application that also offers a speech-to-text feature. To use this feature on Windows PC, create a new note and "Windows + H" to activate the microphone of your PC. You'll see the microphone icon at the top of the screen. Evernote will then start recording your voice and transcribing it into text in real-time. Once you're done, click the Stop button, and your transcription will be automatically saved. Evernote also offers a variety of other features that make it a great alternative to Microsoft Word, such as the ability to add images, attachments, and more.
 
 ![evernote speech to text](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 To use voice dictation in Evernote on Mac:
 
 * Select text field
@@ -127,20 +133,35 @@ Once you're done, click the Stop button, and your transcription will be automati
 
 ![google doc speech to text](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![create a new document](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![click the tools menu](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![select the voice typing option](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-10.jpg)
 
 Microsoft Word's speech-to-text feature is an excellent tool for quickly transcribing your voice into text. However, there are some drawbacks. First, it only works with Microsoft Word documents. Second, you need a Microsoft 365 subscription to use it. Third, it can be challenging to use and is often inaccurate. If you're looking for a better alternative to Microsoft Word's speech-to-text feature, we recommend Evernote speech-to-text or Google Docs speech-to-text. Both of these options are free to use and offer more features than Microsoft Word's speech-to-text feature.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## FAQs
 
 ### Can MS Word write what I speak?
 
 Yes, MS Word can write what you speak. With speech recognition software, MS Word can interpret your words and turn them into text. This is a great feature for those who have difficulty typing or want to dictate their thoughts without typing them out. However, there are a few things to keep in mind when using this feature, such as speaking clearly and at a moderate pace.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why does my speech-to-text not work?
 
 There are several reasons why your speech-to-text is not working. One issue is that your microphone is not turned on. Another possibility could be that there is too much background noise interfering with the recognition process. Finally, it's also possible that you have not enabled speech-to-text in your settings. Try going to your settings and turning on the speech-to-text feature. If that doesn't work, try restarting your device.
@@ -149,6 +170,9 @@ There are several reasons why your speech-to-text is not working. One issue is t
 
 Microsoft 365 is not free, but it does offer a free trial. You can find more information on the Microsoft website.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Does Windows 10 have voice typing?
 
 Yes, Windows 10 includes a voice typing feature that allows you to type by speaking. To use it, open the Start menu and select "Windows Accessories." Then, choose "Voice Typing." A microphone icon will appear on the screen. Click it, and then start speaking. Your words will appear on the screen as you speak them.
@@ -175,12 +199,18 @@ Create a new, empty document in Microsoft Word on your device. Name your documen
 
 ![open microsoft word](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step2Click on the Dictate button
 
 When you first open a new document, go to the top right corner of the Home menu includes a Dictate button and a drop-down menu. It has a microphone symbol above it. Double-check that the language is set to English using the drop-down menu. Choose English or any of the supported languages.
 
 ![click on the dictate button](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Microsoft Word Speech to Text tool supports many languages as well languages that have multiple variants, such as English and French. In addition, you can type on Microsoft Word in Chinese (Simplified), Chinese (Taiwanese), English, French (France, Canada), German, Hindi, Italian, Korean, Polish, Portuguese (Brazil, Portugal), Russian, Spanish (Mexico, Spain), Thai, and more.
 
 ##### Step3Allow Microsoft Word Access to the Microphone
@@ -189,6 +219,10 @@ If you've never used Microsoft Word's speech-to-text engine on Windows PC before
 
 ![allow microsoft word access to the microphone](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![use speech to text](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-4.jpg)
 
 Follow these steps to activate the microphone in Mac.
@@ -237,6 +271,12 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Evernote Speech-To-Text
 
 Evernote is a widely used note-taking application that also offers a speech-to-text feature. To use this feature on Windows PC, create a new note and "Windows + H" to activate the microphone of your PC. You'll see the microphone icon at the top of the screen. Evernote will then start recording your voice and transcribing it into text in real-time. Once you're done, click the Stop button, and your transcription will be automatically saved. Evernote also offers a variety of other features that make it a great alternative to Microsoft Word, such as the ability to add images, attachments, and more.
@@ -250,6 +290,9 @@ To use voice dictation in Evernote on Mac:
 * Speak the text you want to transcribe clearly into the computer or device microphone. Your words will appear in the text field.
 * Select Done or hit the 'fn' key again to end.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### 3\. Google Doc Speech To Text
 
 Google Docs is another popular word processing application with a speech-to-text feature. To use this feature, create a new document and click the Tools menu at the top of the screen. Next, select the Voice Typing option and start speaking into your microphone. Google Docs will then transcribe your voice into text in real-time.
@@ -258,10 +301,16 @@ Once you're done, click the Stop button, and your transcription will be automati
 
 ![google doc speech to text](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![create a new document](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-8.jpg)
 
 ![click the tools menu](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![select the voice typing option](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-10.jpg)
 
 Microsoft Word's speech-to-text feature is an excellent tool for quickly transcribing your voice into text. However, there are some drawbacks. First, it only works with Microsoft Word documents. Second, you need a Microsoft 365 subscription to use it. Third, it can be challenging to use and is often inaccurate. If you're looking for a better alternative to Microsoft Word's speech-to-text feature, we recommend Evernote speech-to-text or Google Docs speech-to-text. Both of these options are free to use and offer more features than Microsoft Word's speech-to-text feature.
@@ -284,6 +333,9 @@ Microsoft 365 is not free, but it does offer a free trial. You can find more inf
 
 Yes, Windows 10 includes a voice typing feature that allows you to type by speaking. To use it, open the Start menu and select "Windows Accessories." Then, choose "Voice Typing." A microphone icon will appear on the screen. Click it, and then start speaking. Your words will appear on the screen as you speak them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## Final Words
 
 Microsoft Word's speech-to-text feature is not perfect, but it can be a huge time saver for those who use the program regularly. If you're looking for an alternative to expensive voice recognition software or want to take a break from typing, give Microsoft Word's speech-to-text feature a try. You might be surprised at how accurate it is.
@@ -317,3 +369,40 @@ Microsoft Word's speech-to-text feature is not perfect, but it can be a huge tim
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-hearing-beginnings-mastering-volume-control-in-adobe-audition/"><u>[New] 2024 Approved  Hearing Beginnings  Mastering Volume Control in Adobe Audition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-what-are-luts-and-how-they-change-your-photo/"><u>[New] 2024 Approved  What Are LUTs and How They Change Your Photo</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-harness-your-creativity-with-high-quality-free-images-from-these-12-sites/"><u>[New] In 2024, Harness Your Creativity with High-Quality, Free Images From These 12 Sites</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-how-does-a-whole-sphere-video-work/"><u>[New] In 2024, How Does a Whole-Sphere Video Work?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-perfecting-the-art-of-silence-increase-in-audacity/"><u>[New] In 2024, Perfecting the Art of Silence Increase in Audacity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-sonic-spellbook-can-you-alter-your-speech-discover-different-magical-solutions/"><u>[New] Sonic Spellbook  Can You Alter Your Speech? Discover Different Magical Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-standard-rgb-versus-srgb-standards/"><u>[New] Standard Rgb Versus Srgb Standards</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-earning-mastery-youtube-short-video-tips/"><u>[Updated] 2024 Approved  Earning Mastery  Youtube Short Video Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-smooth-video-transfer-facebook-integration-with-whatsapp/"><u>[Updated] 2024 Approved  Smooth Video Transfer  Facebook Integration with WhatsApp</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-chucklecircuit-meme-studio-free-download-for-2024/"><u>[Updated] ChuckleCircuit Meme Studio (Free Download!) For 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-full-utilization-of-final-cut-pro-an-in-depth-guide/"><u>[Updated] Full Utilization of Final Cut Pro  An In-Depth Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-clearing-imagery-the-canva-method-for-clean-bounds/"><u>[Updated] In 2024, Clearing Imagery  The Canva Method for Clean Bounds</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unlock-iphone-photo-potential-the-art-of-reflection/"><u>[Updated] In 2024, Unlock iPhone Photo Potential  The Art of Reflection</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-wirecast-versus-obs-which-broadcasting-tool-reigns-supreme/"><u>[Updated] In 2024, Wirecast Versus OBS  Which Broadcasting Tool Reigns Supreme?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-prestige-pcs-and-laptops-technologys-elite/"><u>[Updated] Prestige PCs & Laptops - Technology's Elite</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-revolutionize-your-memories-old-photos-new-video-life-for-2024/"><u>[Updated] Revolutionize Your Memories  Old Photos, New Video Life for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-tips-for-gaining-attention-via-snapchat-star-for-2024/"><u>[Updated] Tips for Gaining Attention via Snapchat Star for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-10-gimbals-enhancing-dsrl-quality-for-2024/"><u>[Updated] Top 10 Gimbals Enhancing DSRL Quality for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-5-gaming-monitors-tailored-for-playstation-and-xbox/"><u>[Updated] Top 5 Gaming Monitors Tailored for PlayStation & Xbox</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-top-eight-sources-of-graffiti-fonts-online/"><u>2024 Approved  Top Eight Sources of Graffiti Fonts Online</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-vivo-s17t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-realme-12-pro-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Realme 12 Pro 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-diminuendo-techniques-for-digital-ears/"><u>In 2024, Diminuendo Techniques for Digital Ears</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-leading-6-low-cost-superior-4k-tv-projectors/"><u>In 2024, Leading 6 Low-Cost, Superior 4K TV Projectors</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-revolutionary-marketing-tactics-keyword-essentials/"><u>In 2024, Revolutionary Marketing Tactics  Keyword Essentials</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/number-1-in-the-elite-8-virtual-composite-maker-for-2024/"><u>Number 1 in the Elite 8 Virtual Composite Maker for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-professionals-way-of-removing-backgrounds/"><u>The Professional's Way of Removing Backgrounds</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transforming-your-vision-into-stunning-hdr-portraits/"><u>Transforming Your Vision Into Stunning HDR Portraits</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-and-enhance-your-keyboards-reaction-time-quickly/"><u>Troubleshoot and Enhance Your Keyboard's Reaction Time Quickly</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-silent-discord-chats-how-to-get-back-that-sound/"><u>Troubleshooting Silent Discord Chats: How to Get Back That Sound</u></a></li>
+<li><a href="https://win-forum.techidaily.com/understanding-major-digital-communities-connect-with-facebook-twitter-instagram-or-youtube/"><u>Understanding Major Digital Communities: Connect with Facebook, Twitter, Instagram, or YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unveiling-the-ultimate-photo-frame-tools-for-2024/"><u>Unveiling the Ultimate Photo Frame Tools for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-xiaomi-redmi-k70-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Xiaomi Redmi K70 Device</u></a></li>
+</ul></div>

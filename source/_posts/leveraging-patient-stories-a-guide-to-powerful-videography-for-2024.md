@@ -1,7 +1,7 @@
 ---
 title: "\"Leveraging Patient Stories  A Guide to Powerful Videography for 2024\""
-date: 2024-07-12T07:19:34.207Z
-updated: 2024-07-13T07:19:34.207Z
+date: 2024-09-01T12:54:58.470Z
+updated: 2024-09-02T12:54:58.470Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,9 @@ It may seem like a daunting task, but there are several ways you can go about de
 * The more specific you can be with these questions, the better. For example, if you're selling pet products online, ask about their pets' names, breed, and color (if applicable).
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Include Strong Opinions
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
 
@@ -56,6 +59,9 @@ When asking someone for their thoughts on a topic or issue, there's always going
 
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ## Lighting, Sound, and Video Quality Matter
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
@@ -63,9 +69,15 @@ Lighting, sound, and video quality matter.
 
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Really Listen to Your Prospects
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
@@ -77,10 +89,16 @@ You might have skeptics and negative nellies in your audience. They're the ones 
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 If you're looking to boost your sales with testimonial videos, then you need to be sure that they reflect the quality of your product or service. Customers will be more likely to trust a testimonial if it's given by someone who seems authentic and honest in their praise. Try these tactics out for yourself and see what results in you get ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
@@ -110,3 +128,45 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-beat-coffee-stain-effects-with-ioss-complimentary-red-eye-fix-app/"><u>[New] 2024 Approved  Beat Coffee Stain Effects with iOS's Complimentary Red-Eye Fix App</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-hearing-beginnings-mastering-volume-control-in-adobe-audition/"><u>[New] 2024 Approved  Hearing Beginnings  Mastering Volume Control in Adobe Audition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-what-are-luts-and-how-they-change-your-photo/"><u>[New] 2024 Approved  What Are LUTs and How They Change Your Photo</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-harness-your-creativity-with-high-quality-free-images-from-these-12-sites/"><u>[New] In 2024, Harness Your Creativity with High-Quality, Free Images From These 12 Sites</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-how-does-a-whole-sphere-video-work/"><u>[New] In 2024, How Does a Whole-Sphere Video Work?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-perfecting-the-art-of-silence-increase-in-audacity/"><u>[New] In 2024, Perfecting the Art of Silence Increase in Audacity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-new-era-of-racing-vr-bike-selection-guide-for-2024/"><u>[New] New Era of Racing  VR Bike Selection Guide for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-sonic-spellbook-can-you-alter-your-speech-discover-different-magical-solutions/"><u>[New] Sonic Spellbook  Can You Alter Your Speech? Discover Different Magical Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-standard-rgb-versus-srgb-standards/"><u>[New] Standard Rgb Versus Srgb Standards</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-illustrator-guide-to-dynamic-text-art-for-2024/"><u>[New] The Illustrator Guide to Dynamic Text Art for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-discovering-the-edge-of-action-cam-excellence-with-intova-x/"><u>[Updated] 2024 Approved  Discovering the Edge of Action Cam Excellence with Intova X</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-clicks-to-cash-the-systematic-triple-pathway-for-youtube-revenue-tracking/"><u>[Updated] 2024 Approved  From Clicks to Cash  The Systematic Triple Pathway for YouTube Revenue Tracking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-love-and-light-nine-essential-filmora-elements/"><u>[Updated] 2024 Approved  Love and Light  Nine Essential Filmora Elements</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-multilingual-maven-writes-on-cutting-edge-video-translators-ranked-23/"><u>[Updated] 2024 Approved  The Multilingual Maven’ Writes On  Cutting-Edge Video Translators Ranked 23</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-chucklecircuit-meme-studio-free-download-for-2024/"><u>[Updated] ChuckleCircuit Meme Studio (Free Download!) For 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-full-utilization-of-final-cut-pro-an-in-depth-guide/"><u>[Updated] Full Utilization of Final Cut Pro  An In-Depth Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-clearing-imagery-the-canva-method-for-clean-bounds/"><u>[Updated] In 2024, Clearing Imagery  The Canva Method for Clean Bounds</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-gaining-ground-on-competitors-with-your-instagram-videos/"><u>[Updated] In 2024, Gaining Ground on Competitors with Your Instagram Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unlock-iphone-photo-potential-the-art-of-reflection/"><u>[Updated] In 2024, Unlock iPhone Photo Potential  The Art of Reflection</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-wirecast-versus-obs-which-broadcasting-tool-reigns-supreme/"><u>[Updated] In 2024, Wirecast Versus OBS  Which Broadcasting Tool Reigns Supreme?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-prestige-pcs-and-laptops-technologys-elite/"><u>[Updated] Prestige PCs & Laptops - Technology's Elite</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-revolutionize-your-memories-old-photos-new-video-life-for-2024/"><u>[Updated] Revolutionize Your Memories  Old Photos, New Video Life for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-art-of-iphone-framing-finding-the-best-camera-positions-for-2024/"><u>[Updated] The Art of iPhone Framing  Finding the Best Camera Positions for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-10-gimbals-enhancing-dsrl-quality-for-2024/"><u>[Updated] Top 10 Gimbals Enhancing DSRL Quality for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-5-gaming-monitors-tailored-for-playstation-and-xbox/"><u>[Updated] Top 5 Gaming Monitors Tailored for PlayStation & Xbox</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bard-by-google-the-next-breakthrough-in-ai-to-rival-microsofts-chatgpt/"><u>Bard by Google - The Next Breakthrough in AI to Rival Microsoft's ChatGPT</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/bypassing-user-permissions-instructions-for-accessing-the-trustedinstaller-service-in-windows-10/"><u>Bypassing User Permissions: Instructions for Accessing the TrustedInstaller Service in Windows 10</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-camera-driver-software-for-all-windows-versions-including-11-10-8-and-7/"><u>Get the Latest Camera Driver Software for All Windows Versions Including 11, 10, 8, and 7</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-diminuendo-techniques-for-digital-ears/"><u>In 2024, Diminuendo Techniques for Digital Ears</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-harmony-hunt-uncover-the-most-popular-free-downloader-apps-on-youtube-and-android/"><u>In 2024, Harmony Hunt - Uncover the Most Popular Free Downloader Apps on YouTube and Android</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-revolutionary-marketing-tactics-keyword-essentials/"><u>In 2024, Revolutionary Marketing Tactics  Keyword Essentials</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-hardware-with-tom-the-ultimate-guide-to-pc-building/"><u>Mastering Hardware with Tom: The Ultimate Guide to PC Building</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlock-the-secrets-of-high-quality-gopro-vlogging/"><u>Unlock the Secrets of High-Quality GoPro Vlogging</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unveil-the-subject-background-removal-techniques-in-photopea/"><u>Unveil the Subject  Background Removal Techniques in Photopea</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-secrets-of-the-turing-test-will-ai-ever-triumph-over-it/"><u>Unveiling the Secrets of the Turing Test – Will AI Ever Triumph Over It?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unveiling-the-ultimate-photo-frame-tools-for-2024/"><u>Unveiling the Ultimate Photo Frame Tools for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-the-wonders-of-toms-computer-reviews/"><u>Unveiling the Wonders of Tom's Computer Reviews</u></a></li>
+</ul></div>

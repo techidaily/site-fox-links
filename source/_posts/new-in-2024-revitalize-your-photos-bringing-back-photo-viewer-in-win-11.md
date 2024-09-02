@@ -1,0 +1,187 @@
+---
+title: "\"[New] In 2024, Revitalize Your Photos  Bringing Back Photo Viewer in Win 11\""
+date: 2024-09-01T13:15:53.969Z
+updated: 2024-09-02T13:15:53.969Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] In 2024, Revitalize Your Photos: Bringing Back Photo Viewer in Win 11\""
+excerpt: "\"This Article Describes [New] In 2024, Revitalize Your Photos: Bringing Back Photo Viewer in Win 11\""
+keywords: "Win 11 Photo Viewer Revive,Revive Win 11 Photos,Win 11 Restore Images,Bring Back Win 11 Viewers,Photo Viewer Win Fix,Windows 11 Image Restoration,Reinvigorate Win 11 Pics"
+thumbnail: https://thmb.techidaily.com/44cba3f77a25fb10a15058a95ecd605b31dd154fe2d91aae028e5e688022e444.jpg
+---
+
+## Revitalize Your Photos: Bringing Back Photo Viewer in Win 11
+
+# How to Restore Windows Photo Viewer in Windows 10
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Well, with advancement in technology, everyone is upgrading to a better version of everything out there. Likewise, when [Windows Photo Viewer](https://support.microsoft.com/en-us/help/4027135/windows-10-photo-viewer) got upgraded to Windows 10 Photos and a plethora of new features got added to it.
+
+But, what if you are not keen to depart with your Windows Photo Viewer and rather do away with the Windows 10 Photos App? In order to restore Windows Photo Viewer, we have multiple solutions for you in this article.
+
+Stay tuned to learn more!
+
+* [**Part1: Why you prefer Windows Photo Viewer**](#part1)
+* [**Part2: Method 1 to restore Windows Photo Viewer**](#part2)
+* [**Part3: Method 2 to get Windows Photo Viewer back**](#part3)
+
+## Part 1: Why you prefer Windows Photo Viewer
+
+We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
+
+Here is why they want to restore Windows Photo Viewer –
+
+* Windows Photo Viewer offers a better UI, allowing you to get everything at the bottom of the screen. It speeds up access, whereas Windows 10 Photos UI at times hidden. Unless you move the mouse around the entire screen for switching between photos.
+* The scroll wheel enables you to precisely zoom faster.
+* There is no slide effect between images nor does it show the splash/delay screen while initiating the app. It ensures faster action sans unnecessary enhancements.
+* You can use forward or back on mouse to move to the next or previous photo.
+* You can see the photo’s name in Windows Photos Viewer.
+* Right-click allows you to access copy, open with, properties etc. option for your photos on the Windows computer.
+* You can pause to view a single picture using full-screen mode.
+* You can view the image in actual size using the UI button without any scaling.
+* There is a solid UI across the image which doesn’t cover it, but works as a nice border.
+* You can delete an image without any confirmation here.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+## Method 1 to restore Windows Photo Viewer
+
+The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
+
+**Step 1**: Go to ‘Settings’ and open ‘Apps’. Click on ‘Default Apps’ and check ‘Photo Viewer’. The default photo viewer will be visible here.
+
+![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
+
+**Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
+
+**Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Method 2 to get Windows Photo Viewer back
+
+Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
+
+Here is the detailed guide –
+
+**Step 1** – Go to the image or picture folder on your Windows 10 computer and right click on any image. Now, choose ‘Open With’ and click on ‘Choose another app’.
+
+**Step 2** – Tap the ‘More apps’ option here in case, you can’t find out the Windows Photo Viewer within the list.
+
+**Step 3** – Keep scrolling towards the bottom of the screen to find out ‘Windows Photo Viewer’. If ‘Windows Photo Viewer’ is visible, then it has been installed there and you can use it without any problem.
+
+![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
+
+![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
+### Conclusion
+
+From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-aviary-creator-searching-for-affordable-filters/"><u>[New] 2024 Approved  Aviary Creator  Searching for Affordable Filters</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-essential-steps-to-prep-your-oculus-rift-zone/"><u>[New] 2024 Approved  Essential Steps to Prep Your Oculus Rift Zone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-step-by-step-guide-to-full-periscope-capabilities/"><u>[New] 2024 Approved  Step-by-Step Guide to Full Periscope Capabilities</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-superior-choices-elite-webcam-holders/"><u>[New] 2024 Approved  Superior Choices  Elite Webcam Holders</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-best-voice-altering-software-for-your-virtual-persona/"><u>[New] 2024 Approved  The Best Voice-Altering Software for Your Virtual Persona</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-drone-category-definitions/"><u>[New] Drone Category Definitions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-for-aspiring-filmmakers-the-best-cameras-from-35mm-to-pands/"><u>[New] For Aspiring Filmmakers, The Best Cameras From 35Mm to P&S</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-uncovering-key-pace-requirements-for-exceptional-slow-motion-videos/"><u>[New] In 2024, Uncovering Key Pace Requirements for Exceptional Slow-Motion Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instastorysaver-free-storage-beyond-counts-for-2024/"><u>[New] InstaStorySaver  Free Storage Beyond Counts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-join-anytime-easy-zoom-integration-with-android-devices/"><u>[New] Join Anytime  Easy Zoom Integration with Android Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-no-budget-no-problem-the-finest-free-voice-alterer-for-valorant-players-for-2024/"><u>[New] No Budget? No Problem! The Finest Free Voice Alterer for Valorant Players for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-quantity-of-videos-on-128gb-storage-media/"><u>[New] Quantity of Videos on 128GB Storage Media</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-simplified-image-editing-getting-rid-of-background-in-one-click/"><u>[New] Simplified Image Editing  Getting Rid of Background in One Click</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-next-gen-samsung-gear-360-finding-your-perfect-replacement-for-2024/"><u>[New] The Next Gen Samsung Gear 360 - Finding Your Perfect Replacement for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-best-audio-changing-software-for-virtual-artists-success/"><u>[Updated] 2024 Approved  Best Audio-Changing Software for Virtual Artists' Success</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-prime-apps-for-refining-dji-aerial-footage/"><u>[Updated] 2024 Approved  Prime Apps for Refining DJi Aerial Footage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-pro-photo-and-video-with-gopro-hero5-black-mastery-essentials/"><u>[Updated] 2024 Approved  Pro Photo & Video with GoPro  Hero5 Black Mastery Essentials</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-revolutionizing-gaming-analyzing-kinemasters-android-version/"><u>[Updated] 2024 Approved  Revolutionizing Gaming  Analyzing KineMaster's Android Version</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-capture-the-oceans-majesty-best-action-cameras-reviewed/"><u>[Updated] Capture the Ocean's Majesty  Best Action Cameras Reviewed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-streamlining-your-digital-liftoffs-using-vlc-for-mp4-and-more/"><u>[Updated] In 2024, Streamlining Your Digital Liftoffs  Using VLC for MP4 and More</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-nights-canvas-rendered-in-hd-the-ultimate-sky-sites-list-for-2024/"><u>[Updated] Night's Canvas Rendered in HD  The Ultimate Sky Sites List for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-spherical-shot-setup-systems/"><u>[Updated] Spherical Shot Setup Systems</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-streamlining-facebook-content-for-tv-platforms-for-2024/"><u>[Updated] Streamlining Facebook Content for TV Platforms for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-live-pro-tips-outfitting-with-excellent-webcams/"><u>2024 Approved  YouTube Live Pro Tips  Outfitting with Excellent Webcams</u></a></li>
+<li><a href="https://fox-links.techidaily.com/brilliant-studiofx-kit-hard-and-haloed-brightness/"><u>Brilliant StudioFX Kit: Hard & Haloed Brightness</u></a></li>
+<li><a href="https://facebook.techidaily.com/challenging-dying-myths-with-real-insights-into-facebooks-future/"><u>Challenging Dying Myths with Real Insights Into Facebook’s Future</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-canon-sx530-ideal-camera-for-novice-snappers/"><u>Compact Canon SX530: Ideal Camera for Novice Snappers</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/cybersecurity-threats-how-ai-contributes-to-crime-in-5-ways/"><u>Cybersecurity Threats: How AI Contributes to Crime in 5 Ways</u></a></li>
+<li><a href="https://win-answers.techidaily.com/destiny-2-update-ultimate-guide-broccoli-glitch-patched-in-april-2024/"><u>Destiny 2 Update: Ultimate Guide - Broccoli Glitch Patched in April 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhancing-video-file-compatibility/"><u>Enhancing Video File Compatibility</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-realme-c51-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Realme C51 Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-itel-p55plus-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>How to Turn Off Google Location to Stop Tracking You on Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-affordable-action-camera-deals-top-6-for-less-than-100-only/"><u>In 2024, Affordable Action Camera Deals  Top 6 for Less Than $100 Only</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-apple-iphone-xs-video-to-computer-drfone-by-drfone-ios/"><u>In 2024, How to Stream Apple iPhone XS Video to Computer? | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-methods-to-transfer-twitter-videos-to-instagram-feed/"><u>In 2024, Methods to Transfer Twitter Videos to Instagram Feed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-srgb-adoption-over-traditional-rgb-techniques/"><u>In 2024, Srgb Adoption Over Traditional Rgb Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-art-of-kinemaster-made-memes/"><u>In 2024, The Art of KineMaster-Made Memes</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-tweettracker-monitor-and-grab-visuals-from-social-feeds/"><u>In 2024, TweetTracker  Monitor & Grab Visuals From Social Feeds</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/instagram-stories-mastering-the-art-of-time-manipulation-for-2024/"><u>Instagram Stories – Mastering the Art of Time Manipulation for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-temporal-and-spatial-shifts-in-filmmaking-for-2024/"><u>Mastering Temporal & Spatial Shifts in Filmmaking for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/stellar-sphere-station-space-data-repository/"><u>Stellar Sphere Station - Space Data Repository</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stellaris-gameplay-breakdown-conquest-diplomacy-and-empire-building-in-deep-space/"><u>Stellaris Gameplay Breakdown: Conquest, Diplomacy & Empire Building in Deep Space</u></a></li>
+</ul></div>
