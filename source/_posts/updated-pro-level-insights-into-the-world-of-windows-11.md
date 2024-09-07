@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Pro-Level Insights Into the World of Windows 11\""
-date: 2024-07-12T07:13:52.331Z
-updated: 2024-07-13T07:13:52.331Z
+date: 2024-09-06T03:01:49.304Z
+updated: 2024-09-07T03:01:49.304Z
 tags: 
   - screen-recording
   - ai video
@@ -30,11 +30,29 @@ Windows is nowhere to rock the world! If you are so excited about updating your 
 #### 1. Personalize the Start Menu
 ![a8](https://images.wondershare.com/windows10/a8.png)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The start menu of Windows 10 is now resizable. It can be quote odd for many but it is really surprising to know that with Windows 10, you can now customize the start menu and change its size to the extent you want. You now have the option to make it taller or wider as you like. If you wish to have the start menu taking up the whole left portion of the screen of your laptop or you want a thin strip transversely the taskbar, well that is now possible with Windows 10\. The taskbar is also resizable and that means you have the ability to some weird and pretty cool stuff with your device. You will surely find that having a resizable Start Menu is cool.
 
 #### 2. Using Cortana in Windows 10
 ![update win10 13](https://images.wondershare.com/windows10/update-win10-13.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Cortana is finally here in Windows 10, taking control of the search functions as well as dishing out as much sass of the operating system in the same way with Windows Phone edition. On the other hand, by default, it will never listen and follow your commands.
 
 If you would like to have the ability to simply bark commands at your personal computer, you launch Cortana through hitting the search field within the taskbar and then choose the Notebook icon in the left side choices pane. You choose “settings” from the list and have the “Let Cortana respond when you say ‘Hey Cortana’” choice. You will have an active and working microphone for it to work.
@@ -44,6 +62,12 @@ While you are poking around the Cortana’s options, you may dive in the Noteboo
 #### 3. Additional Apps you should try
 ![xbox games windows10](https://images.wondershare.com/windows10/xboy-games-windows10-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The current Windows 10’s preview comes with some interesting apps like the new Xbox app, Insider Hub, Project Spartan web browser, Windows Feedback and a lot more. Though they are good apps to use when you want to get started in using Windows 10, Microsoft is likewise making available the preview of touch-friendly editions of Microsoft Word, Excel as well as the PowerPoint. All of these are known to be universal apps and that means similar code is running on the phones, PCs and tablets.
 
 On the other hand, Microsoft did not release similar apps that are optimized for tablets and phones as of now. These apps don’t come with Windows 10 yet you may download the new apps through the Store. Microsoft will also release the Music Preview and also the Video Preview applications. These apps are designed to replace the present Video and Music apps in Windows 8.1\. These two will be introducing a brand new look which complements the design that Microsoft tries to implement across different apps all over the OS.
@@ -51,6 +75,12 @@ On the other hand, Microsoft did not release similar apps that are optimized for
 #### 4. New Keyboard Shortcuts
 ![Windows 10 keyboard shortcuts](https://images.wondershare.com/filmora/article-images/Windows-10-keyboard-shortcuts.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Most of them include the Windows key. The New window-snapping choices allow you not just to fill partially the screen on one side but also the screen quadrant. Also, you may tap the Windows key downward and hit “Right Arrow” and the “Up Arrow”. With that, the program window would move to the top quadrant at the right side of the screen.
 
 Windows Key-Tab open and leaves open the new task view to show all the running and working programs as well as the virtual desktops. To make the latest virtual desktop, you can use the Windows Key-Ctrl-D. Windows Key-C will get Cortana listening and following your voice input then the Windows Key-S will open its daily glance to showcase the weather, news and sports. Command the line users to obtain a bunch of new selection shortcuts by using the keys Shift and the Arrow keys.
@@ -58,6 +88,12 @@ Windows Key-Tab open and leaves open the new task view to show all the running a
 #### 5. Using Virtual Desktop Feature
 ![taskview](https://images.wondershare.com/filmora/article-images/taskview.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Virtual desktops are among the most favorites of most Windows users and it is one of the coolest features of the new Windows 10\. You could move programs between a virtual desktop & another. To make it happen, when you are running different desktops, you proceed to Task View through pressing the Windows Key-Tab combo. You right click the app you want to transfer from a virtual desktop to the other, choose “Move To” and then you move the app to the desktop where it should go.
 
 With Windows 10, it is now easy to create several desktops as well as run applications from each, so every desktop is showing only those apps that are running in a particular virtual desktop. In case that you do not want to make use of this feature, you may simply remove the “Task View” button.
@@ -65,6 +101,12 @@ With Windows 10, it is now easy to create several desktops as well as run applic
 #### 6. New Mail App
 ![a7](https://images.wondershare.com/windows10/a7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This is quite simple yet most people make use of the very capable contemporary email client that has been included in the latest editions of Windows. The email client that has been included in Windows 10 now comes with collapsible conversation view and email preview panel. Plus, it integrates the buttons for new contact and calendar apps. You could simply add different mail accounts from various providers.
 
 #### 7. New Edge Browser
@@ -100,3 +142,37 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-key-principles-of-metaverse-commercial-strategy/"><u>[New] 2024 Approved Key Principles of Metaverse Commercial Strategy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-premium-3d-video-app-for-android-devices/"><u>[New] 2024 Approved Premium 3D Video App for Android Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-ultimate-compendium-for-professionals-in-vivacut-video-editing/"><u>[New] 2024 Approved The Ultimate Compendium for Professionals in VivaCut Video Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-behind-the-headset-todays-vr-tomorrows-trials-for-2024/"><u>[New] Behind the Headset Today's VR, Tomorrow's Trials for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-demystifying-asuss-mg28uq-a-comprehensive-4k-review-for-2024/"><u>[New] Demystifying ASUS's MG28UQ - A Comprehensive 4K Review for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-engaging-visuals-for-maximum-impact-with-these-ideas-for-2024/"><u>[New] Engaging Visuals for Maximum Impact with These Ideas for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-full-review-of-picsart-app-a-step-by-step-guide/"><u>[New] In 2024, Full Review of PicsArt App - A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-pioneering-applications-in-3d-animation-design/"><u>[New] In 2024, Pioneering Applications in 3D Animation Design</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-leading-2023-emulators-top-ps3-games-for-pc/"><u>[New] Leading 2023 Emulators Top PS3 Games for PC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-leap-into-editing-speedy-windows-photoshop-hacks/"><u>[New] Leap Into Editing Speedy Windows Photoshop Hacks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-navigating-spotifys-advertising-landscape/"><u>[Updated] 2024 Approved Navigating Spotify's Advertising Landscape</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-short-sensation-keywords-for-enhancing-video-shows-virality/"><u>[Updated] 2024 Approved Short Sensation Keywords for Enhancing Video Shows' Virality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-forget-not-fundamental-cinematography-for-aspiring-directors/"><u>[Updated] In 2024, Forget Not Fundamental Cinematography for Aspiring Directors</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-from-setting-up-to-broadcasting-a-discoguide/"><u>[Updated] In 2024, From Setting Up to Broadcasting A DiscoGuide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-immortalize-memories-prime-online-tools-for-photo-framing/"><u>[Updated] In 2024, Immortalize Memories Prime Online Tools for Photo Framing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-visual-perfection-select-the-best-monitors-for-creative-work/"><u>[Updated] In 2024, Visual Perfection Select the Best Monitors for Creative Work</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-visual-polishing-incorporating-filters-in-digital-media/"><u>[Updated] In 2024, Visual Polishing Incorporating Filters in Digital Media</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-tailored-dimensions-for-captivating-videos/"><u>[Updated] Tailored Dimensions for Captivating Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-time-tamed-on-film-easy-steps-for-slow-mo-video-using-photo-apps/"><u>[Updated] Time Tamed on Film Easy Steps for Slow-Mo Video Using Photo Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-10-strategies-for-captivating-close-up-cinematography/"><u>[Updated] Top 10 Strategies for Captivating Close-Up Cinematography</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/2-eastwood-also-directed/"><u>2) Eastwood Also Directed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/creating-an-ai-ecosystem-linking-chatgpt-to-whatsapp-helpdesk/"><u>Creating an AI Ecosystem: Linking ChatGPT to WhatsApp Helpdesk</u></a></li>
+<li><a href="https://fox-links.techidaily.com/detailed-look-at-the-latest-lg-360-camera-tech/"><u>Detailed Look at the Latest LG 360 Camera Tech</u></a></li>
+<li><a href="https://fox-links.techidaily.com/from-raw-footage-to-final-cut-adopting-luts-in-premiere-for-2024/"><u>From Raw Footage to Final Cut Adopting LUTs in Premiere for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-abbyy-became-the-pioneering-leader-in-intelligent-docutech-for-2n21-according-to-the-isg-provider-lens-study/"><u>How ABBYY Became the Pioneering Leader in Intelligent DocuTech for 2N21, According to the ISG Provider Lens™ Study</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-comprehensive-review-navigating-adobe-cloud-plus-comparing-rivals/"><u>In 2024, Comprehensive Review Navigating Adobe Cloud + Comparing Rivals</u></a></li>
+<li><a href="https://fox-that.techidaily.com/tablet-touch-issues-here-are-8-fixes-that-could-save-your-day/"><u>Tablet Touch Issues? Here Are 8 Fixes That Could Save Your Day</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-art-of-professional-gopro-filming/"><u>The Art of Professional GoPro Filming</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Samsung Galaxy A24 | Dr.fone</u></a></li>
+</ul></div>

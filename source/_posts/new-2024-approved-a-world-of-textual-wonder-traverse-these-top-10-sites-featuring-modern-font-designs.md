@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A World of Textual Wonder  Traverse These Top 10 Sites Featuring Modern Font Designs\""
-date: 2024-09-01T13:11:32.611Z
-updated: 2024-09-02T13:11:32.611Z
+date: 2024-09-06T03:05:24.356Z
+updated: 2024-09-07T03:05:24.356Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,12 @@ So, let's get started with our review without any further delay!
 
 * [How To Edit Graffiti Text Effects in Video](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Recommendation - 8 Websites To Find 3D Graffiti Text
 
 Many resources are available online for font styles, so it can be challenging to know which is the best. To help you find the correct repository, we've extensively researched and compiled a list of the 8 best online websites for 3D graffiti fonts.
@@ -49,6 +55,12 @@ To get the font, visit the Freepik website using a browser and use the search fi
 
 ![freepik for 3d graffiti text](https://images.wondershare.com/filmora/article-images/freepik-3d-gold-text.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Features**
 
 * Fully scalable and editable assets
@@ -62,7 +74,10 @@ To get the font, visit the Freepik website using a browser and use the search fi
 * You can only download 10 pictures for free
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. [Shutterstock](https://www.shutterstock.com/zh/search/3d-graffiti-font?image%5Ftype=vector)
 
@@ -96,6 +111,12 @@ To download the 3D graffiti fonts from Vecteezy:
 
 ![vecteezy for 3d graffiti text](https://images.wondershare.com/filmora/article-images/3d-gold-text-behance-vecteezy.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Features**
 
 * The website's database is constantly updated
@@ -108,7 +129,10 @@ To download the 3D graffiti fonts from Vecteezy:
 * You cannot download the assets in the format you want
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 4\. [Befonts](https://befonts.com/display-font/graffiti)
 
@@ -133,6 +157,12 @@ On Befonts, you can also find text templates from different font designers. To g
 
 * You can download text styles in only zip format.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. [Adobe Stock](https://stock.adobe.com/search?k=graffiti%20fonts)
 
 With over a million fonts, Adobe Stock has a wide selection of templates perfect for any project. In addition, the website's interface is easy-to-use and comes with advanced search functionality.
@@ -141,6 +171,18 @@ You can access all the fonts you need to create stunning visuals for $49.99 mont
 
 ![adobe stock for 3d graffiti text](https://images.wondershare.com/filmora/article-images/adobe-stock-for-3d-text-png.png)
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Features**
 
 * 297 million royalty-free
@@ -154,8 +196,10 @@ You can access all the fonts you need to create stunning visuals for $49.99 mont
 * You cannot get extended licenses in bulk
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 6\. [Dafont](https://www.dafont.com/theme.php?cat=606)
 
@@ -177,9 +221,6 @@ To begin with, visit the **Dafont** website using a browser and use the search f
 
 * Only zip file format is available to download
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ### 7\. [MyFonts](https://www.myfonts.com/collections/tags/3d+Graffiti-fonts)
 
 Founded in 2002, MyFonts is the largest repository for free and paid font styles. You can find any 3D graffiti font style on this online resource, whether looking for classic serifs or funky display ones.
@@ -194,7 +235,10 @@ To download:
 ![myfonts for 3d graffiti text](https://images.wondershare.com/filmora/article-images/myfonts-for-3d-graffiti-text.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Features**
 
@@ -208,9 +252,6 @@ To download:
 
 * Complicated licensing process
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8\. [FontSpace](https://www.fontspace.com/category/graffiti)
 
 FontSpace is a website that offers a vast selection of free 3D graffiti fonts. In addition, you can browse through the text styles by category, type, and color.
@@ -219,9 +260,6 @@ With over 90,000 resources, you're sure to find the perfect customizable font fo
 
 ![fontspace for 3d graffiti fonts](https://images.wondershare.com/filmora/article-images/fontspace-for-3d-graffiti-fonts.png)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 **Features**
 
 * Licensed free fonts.
@@ -234,9 +272,6 @@ With over 90,000 resources, you're sure to find the perfect customizable font fo
 
 * You cannot use various fonts for commercial use.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How To Edit Graffiti Text Effects in Video
 
 Although the above-mentioned online resources are rich with gold text styles, they do not offer editing tools to edit text effects in a video. Therefore, we recommend using Filmora – a powerful video editing software that can help you add any 3D graffiti fonts to your footage.
@@ -254,16 +289,10 @@ Next, open the **Downloads** folder on your system, install the software, and la
 ![creating new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Step2 Drag & drop the file directly to the ;**Project Media** ;folder, click the ;**"File" ;**option and choose ;**"Import Media Files"** ;to upload your video clip to Filmora. ;
 
@@ -280,9 +309,6 @@ Step5 Once done, click the Play icons in the video player to preview the video. 
 
 You can also watch this video to follow the steps to create 3D text animation in Filmora:
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this detailed guide, we've recommended the 8 best websites to find 3D graffiti fonts. In addition, we've discussed their features and limitations to help you make sure that you get high-quality text styles.
@@ -297,9 +323,6 @@ Many resources are available online for font styles, so it can be challenging to
 
 No matter what style you're going for, you're sure to find the perfect 3D graffiti text resource in one of these online libraries.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. [Freepik](https://www.freepik.com/free-photos-vectors/graffiti-font)
 
 With a large selection of high-quality assets, Freepik is an excellent website to start your search for the perfect 3d graffiti font for your project. On this online resource, you can find over 8,000 editable vector text effects for free.
@@ -309,7 +332,10 @@ To get the font, visit the Freepik website using a browser and use the search fi
 ![freepik for 3d graffiti text](https://images.wondershare.com/filmora/article-images/freepik-3d-gold-text.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Features**
 
@@ -323,6 +349,18 @@ To get the font, visit the Freepik website using a browser and use the search fi
 
 * You can only download 10 pictures for free
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. [Shutterstock](https://www.shutterstock.com/zh/search/3d-graffiti-font?image%5Ftype=vector)
 
 Shutterstock is a global online marketplace for high-definition stunning visuals, including royalty-free photos, 3D graffiti fonts, videos, and vectors. Here, you can get over 405 million assets at a price starting from $0.22–$14.50/image and $67.96–$99.50/image for an extended license.
@@ -343,6 +381,12 @@ Furthermore, this online resource allows you to download 10 images for free duri
 
 * Some users are experiencing issues while canceling their subscription
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. [Vecteezy](https://www.vecteezy.com/free-vector/graffiti-font)
 
 Vecteezy is another excellent online resource with a vast selection of high-quality 3D graffiti fonts that will make your designs look different. In addition, the website offers royalty-free photos, videos, and vectors for free and premium.
@@ -355,9 +399,6 @@ To download the 3D graffiti fonts from Vecteezy:
 
 ![vecteezy for 3d graffiti text](https://images.wondershare.com/filmora/article-images/3d-gold-text-behance-vecteezy.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 **Features**
 
 * The website's database is constantly updated
@@ -400,6 +441,12 @@ You can access all the fonts you need to create stunning visuals for $49.99 mont
 
 ![adobe stock for 3d graffiti text](https://images.wondershare.com/filmora/article-images/adobe-stock-for-3d-text-png.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Features**
 
 * 297 million royalty-free
@@ -412,6 +459,18 @@ You can access all the fonts you need to create stunning visuals for $49.99 mont
 
 * You cannot get extended licenses in bulk
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. [Dafont](https://www.dafont.com/theme.php?cat=606)
 
 Dafonts is an excellent online platform for downloading free 3D graffiti fonts to add depth and dimension to the text and make your project stand out. You can even search for fonts by theme.
@@ -420,9 +479,6 @@ To begin with, visit the **Dafont** website using a browser and use the search f
 
 ![dafont for 3d graffiti fonts](https://images.wondershare.com/filmora/article-images/dafont-for-3d-graffiti-fonts.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Features**
 
 * Easy-to-understand interface
@@ -435,6 +491,12 @@ To begin with, visit the **Dafont** website using a browser and use the search f
 
 * Only zip file format is available to download
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7\. [MyFonts](https://www.myfonts.com/collections/tags/3d+Graffiti-fonts)
 
 Founded in 2002, MyFonts is the largest repository for free and paid font styles. You can find any 3D graffiti font style on this online resource, whether looking for classic serifs or funky display ones.
@@ -461,7 +523,10 @@ To download:
 * Complicated licensing process
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 8\. [FontSpace](https://www.fontspace.com/category/graffiti)
 
@@ -484,7 +549,10 @@ With over 90,000 resources, you're sure to find the perfect customizable font fo
 * You cannot use various fonts for commercial use.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How To Edit Graffiti Text Effects in Video
 
@@ -502,6 +570,12 @@ Next, open the **Downloads** folder on your system, install the software, and la
 
 ![creating new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step2 Drag & drop the file directly to the ;**Project Media** ;folder, click the ;**"File" ;**option and choose ;**"Import Media Files"** ;to upload your video clip to Filmora. ;
 
 Step3 Now, drag & drop the video clip to the timeline to begin editing 3D graffiti text in a video. Next, go to the **Titles** tab located in the top panel.
@@ -510,9 +584,6 @@ In the search field, type 3D graffiti text and hit Enter. Next, select the templ
 
 ![creating 3d graffiti text animation in filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step4 Place the text effect in the timeline where you want it to be displayed in the video. Now, double-click the template and type your text.  
 Configure the text style, duration, and color on the video. You can also apply animation by clicking the **"Advanced"** option.
 
@@ -520,9 +591,6 @@ Step5 Once done, click the Play icons in the video player to preview the video. 
 
 You can also watch this video to follow the steps to create 3D text animation in Filmora:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this detailed guide, we've recommended the 8 best websites to find 3D graffiti fonts. In addition, we've discussed their features and limitations to help you make sure that you get high-quality text styles.
