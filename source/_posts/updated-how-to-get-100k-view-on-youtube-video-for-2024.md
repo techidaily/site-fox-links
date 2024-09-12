@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Get 100K View on YouTube Video for 2024"
-date: 2024-09-06T03:11:37.761Z
-updated: 2024-09-07T03:11:37.761Z
+date: 2024-09-11T02:54:36.503Z
+updated: 2024-09-12T02:54:36.503Z
 tags: 
   - screen-recording
   - ai video
@@ -22,21 +22,43 @@ If you're looking to get more views on YouTube, it's important that your channel
 
 ![increase views on youtube](https://images.wondershare.com/filmora/article-images/2022/09/increase-views-on-youtube.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+
+
+
 ## #1\. Pick a specific subject matter or topic
 
 ![pick topic 100k views video](https://images.wondershare.com/filmora/article-images/2022/09/pick-topic-100k-views-video.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 You need to pick a specific subject matter or topic that you can talk about for a long time.
 
@@ -44,34 +66,36 @@ You need to pick a specific subject matter or topic that you can talk about for 
 * If you can talk about it in detail, people will be able to relate to the details and feel like they know what you're talking about (even if they don't).
 * If it's not too broad, but also not too narrow, then people won't be scratching their heads trying to figure out what you mean by "inbound marketing" or "email marketing." They won't have a clue as to what those terms mean unless there's some context around them—and if there is no context around them at all, then chances are these things aren't exactly interesting enough yet for anyone else either!
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## #2\. Don't worry about producing the highest quality video
 
 ![shoot high quality video](https://images.wondershare.com/filmora/article-images/2022/09/shoot-high-quality-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Don't worry about producing the highest quality video. As long as you have a relevant and interesting topic, you can always improve the quality of your videos over time with more resources and equipment. Focus on creating content that is highly valuable to your audience and provides them with something they haven't seen before—not how pretty it looks.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## #3\. Post in related video communities to find an audience
 
 ![post video to community](https://images.wondershare.com/filmora/article-images/2022/09/post-video-to-community.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Once you've finished your video and uploaded it to YouTube, the next step is to post in related video communities. You can find these by searching for keywords related to your video or its topic, searching for the title of your own video (assuming that it's not too long), or doing a simple search on Google.
 
 Once you find a relevant community, make sure that you're posting in the right place! Some communities may be specific about what kind of content they allow—for example, if someone makes a "How To" video about how to make an omelette, she probably shouldn't post it in "Gaming." Be sure that you're posting in the right category.
@@ -80,31 +104,41 @@ Once you find a relevant community, make sure that you're posting in the right p
 
 ![use seo skill in youtube video](https://images.wondershare.com/filmora/article-images/2022/09/use-seo-skill-in-youtube-video.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 The first step to getting more views is writing keyword-rich titles and descriptions. Keywords are important for search engines, which means they're also important for your video's ranking on YouTube. You want your videos to appear in the "top" (highest-ranked) results when someone searches for a certain topic or phrase.
 
 A good way to get ranked high is by using keywords. Keywords will help you rank higher in YouTube searches, which means more people will see your video!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## #5\. Use annotations to link videos together
 
 ![use animation to link videos](https://images.wondershare.com/filmora/article-images/2022/09/use-animation-to-link-videos.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Annotations are a great way to link videos together, or to link videos on your channel with other videos and resources. Here are some examples of things you can do with annotations:
 
@@ -117,17 +151,25 @@ Annotations are a great way to link videos together, or to link videos on your c
 
 ![comment other videos in your niche](https://images.wondershare.com/filmora/article-images/2022/09/comment-other-videos-in-your-niche.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Another way to get more views is by commenting on other people's videos. You should do this only if the video is in your niche and the channel has a lot of subscribers (over 1,000). When you comment, make sure that you engage with the creator and add value to the conversation. If they ask a question, answer it! If they want feedback, give them some! If they ask for help with something, offer advice or information. And if someone comments on one of your videos asking for help with something related to what you're talking about in your video—don't ignore them! Reply back right away so that people see that interaction on their newsfeeds and find out more about what you have to say about it.
 
 This might seem like an obvious way to get more views but I've seen many creators who don't interact much with other channels because they think their audience won't care about what other people are doing or saying online. But getting involved in conversations with other creators in your niche will attract new viewers because:
 
 * It shows that there's a level of trust between creators working together within communities; this makes viewers feel like there's an opportunity for collaboration as well (and hopefully future collaborations!).
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## #7\. Upload at least one video per week and never skip a week
 
@@ -143,17 +185,39 @@ The best way to ensure regularity is by setting up an automated scheduler with a
 
 ![add call to action youtube video](https://images.wondershare.com/filmora/article-images/2022/09/add-call-to-action-youtube-video.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 * Tell viewers they can subscribe to your channel.
 * Ask them to like or comment on the video.
 * Ask them to share the video with their friends. This is a great way to increase traffic, especially if you have a small audience right now.
 * Encourage viewers to visit your website, or any other product or service that you offer as part of your channel's brand (if applicable).
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## #9\. Fill your channel with useful information, not just marketing messages
 
 ![fill youtube channel with useful info](https://images.wondershare.com/filmora/article-images/2022/09/fill-youtube-channel-with-useful-info.jpg)
@@ -162,28 +226,44 @@ One of the most common mistakes that people make when creating YouTube videos is
 
 If you want to grow an audience on YouTube and get more views, then one thing you need to do is provide value. This could mean sharing tips and tricks, answering questions from viewers or promoting other channels that produce great content related to your niche (which will encourage them share it with their friends).
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## #10\. Use playlists effectively to get more views
 
 ![create playlist for youtube videos](https://images.wondershare.com/filmora/article-images/2022/09/create-playlist-for-youtube-videos.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Playlists are a great way to get more views for your YouTube videos. They allow you to group together related videos, making it easier for viewers to find what they're looking for and watch more of your content. They also help in the search engine optimization (SEO) of those videos!
 
 If you're looking to create a series of videos, playlists are an ideal way to do so. You could create one playlist with all the episodes of your new show, or have separate playlists for each episode so people can binge-watch them all at once if they want to.
 
 Playlists can also be used as a place where viewers can watch related content that isn't necessarily part of another video—for example if someone just really likes one thing from one video but would like other similar things too (like say music from several artists).
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Bottom Line
 
 We hope this post has helped you get more views for your YouTube videos! If you follow these steps, we promise that your channel will be full of high-quality content in no time. Remember to take it slow and don't try to do everything at once. The most important thing is to stick with it - if you keep uploading videos every week and posting comments back on other people's channels (and interacting with commenters), then an audience will come along eventually.

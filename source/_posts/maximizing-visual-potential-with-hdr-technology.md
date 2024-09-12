@@ -1,7 +1,7 @@
 ---
 title: "Maximizing Visual Potential with HDR Technology"
-date: 2024-07-12T07:09:37.687Z
-updated: 2024-07-13T07:09:37.687Z
+date: 2024-09-11T02:43:45.627Z
+updated: 2024-09-12T02:43:45.627Z
 tags: 
   - screen-recording
   - ai video
@@ -23,6 +23,20 @@ In the early days of photo and video display, there weren't many choices beyond 
 Continue reading to learn more about the **difference between SDR and HDR,** if you are seriously considering upgrading to it.
 
 ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-1.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## What are the High-Dynamic Range (HDR) and Standard-Dynamic Range (SDR)?
 
@@ -47,6 +61,20 @@ In comparing HDR vs. SDR, it is simple to put that the former is a heightened ve
 
 ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-2.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 While these are notable points of difference, let us discuss the **difference between HDR and SDR** in terms of color resolution and quality for further detailing.
 
 ### Color and Contrast
@@ -98,9 +126,37 @@ For most people, it can get confusing to differentiate between TV-centric HDR an
 
 ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-5.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Therefore, the purpose of TV HDRs is to display realistic scenes with optimizing color, brightness, and contrast than most television monitors. When you click a picture with an HDR camera like iPhones, you can activate the HDR Mode to get better color balance, deghost unnecessary elements, and reduce blurry sections.
 
 So, with the Photo HDR setting, you can change the image quality, but TV HDR only focuses on improving the display quality.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How to Edit and Deliver your HDR videos to YouTube with Wondershare Filmora?
 
@@ -116,6 +172,20 @@ Step2Click on New Project.
 
 ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-6.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Step3When the editing screen opens, click on the “Click here to import media” option. Add the HDR-quality video stored from your iPhone or other mobile phones in the PC library.
 
 ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-7.jpg)
@@ -123,6 +193,20 @@ Step3When the editing screen opens, click on the “Click here to import media�
 Step4Drag and drop it into the editing timeline at the bottom of the screen. Add more video clips if you are merging them.
 
 ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-8.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Step5Make further edits like Color Correction, Motion Tracking, Audio Effects, Animations, and Keyframing as you want.
 
@@ -142,6 +226,20 @@ SDR quality is available in most televisions, monitors, and photography platform
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-2.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 While these are notable points of difference, let us discuss the **difference between HDR and SDR** in terms of color resolution and quality for further detailing.
 
 ### Color and Contrast
@@ -166,6 +264,34 @@ Naturally, if you want an impactful image/video quality, HDR is a superior choic
 
 ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-2.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Compatibility
 
 It is important to consider which types of devices or setups work with these dynamic range variations, especially for HDR and **SDR gaming.**
@@ -174,6 +300,20 @@ Check if the graphics card you are using supports HDR. Typically, HDR works with
 
 Display compatibility is also important to consider for understanding which monitors can display HDR content. While there are **1080p SDR displays,** this resolution is a relatively lower support choice for HDR-compatible displays. For better results, choose 4K-supported monitors, especially those that can display HDR10 content.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Encoded formats
 
 In terms of photography-based differences for SDR vs. HDR, you must also understand the differences in encoded format support. The SDR formats must relate to Rec.709/sRGBgamut mainly. On the other hand, HDR works with Rec.2020 version for WCG (wide color gamut).
@@ -181,6 +321,20 @@ In terms of photography-based differences for SDR vs. HDR, you must also underst
 ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-4.jpg)
 
 Additionally, consider the stops that the SDR or HDR camera shoots in for calculating dynamic range variation. This affects the gamma/bit depth of images. HDR assures higher levels of dynamic range, handling 17.6 stops, while most SDR displays do 6 stops in terms of dynamic range.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Is photo and camera phone HDR as same as TV HDR?
 
@@ -196,6 +350,26 @@ For most people, it can get confusing to differentiate between TV-centric HDR an
 Therefore, the purpose of TV HDRs is to display realistic scenes with optimizing color, brightness, and contrast than most television monitors. When you click a picture with an HDR camera like iPhones, you can activate the HDR Mode to get better color balance, deghost unnecessary elements, and reduce blurry sections.
 
 So, with the Photo HDR setting, you can change the image quality, but TV HDR only focuses on improving the display quality.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How to Edit and Deliver your HDR videos to YouTube with Wondershare Filmora?
 
@@ -219,6 +393,20 @@ Step4Drag and drop it into the editing timeline at the bottom of the screen. Add
 
 ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-8.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Step5Make further edits like Color Correction, Motion Tracking, Audio Effects, Animations, and Keyframing as you want.
 
 Step6Click the Export button after all editing work completes.
@@ -228,6 +416,20 @@ Step7Press YouTube tab to log in.
 Step8Change file settings, add the video title, choose a category, and click on the Export button to post HDR video to YouTube.
 
 ![sdr-vs-hdr](https://images.wondershare.com/filmora/article-images/2022/08/sdr-vs-hdr-9.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Final Words
 
@@ -258,6 +460,64 @@ SDR quality is available in most televisions, monitors, and photography platform
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-aimp-pro-541-wmsps-advanced-desktop-companion/"><u>[New] 2024 Approved AIMP Pro 5.41 WMSP's Advanced Desktop Companion</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-comprehensive-kinetic-insight-study-for-2024/"><u>[New] Comprehensive Kinetic Insight Study for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-decoding-shake-reduction-in-photoshop-does-it-matter-for-2024/"><u>[New] Decoding Shake Reduction in Photoshop Does It Matter for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-explore-leading-platforms-offering-premium-vectr-art-resources/"><u>[New] Explore Leading Platforms Offering Premium Vectr Art Resources</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-efficiently-applying-luts-in-video-editing-premiere/"><u>[New] In 2024, Efficiently Applying LUTs in Video Editing Premiere</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-from-raw-to-stunning-the-role-of-luts-in-premiere-editing/"><u>[New] In 2024, From Raw to Stunning The Role of LUTs in Premiere Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-your-path-to-metaverse-dominance-with-7-key-devices/"><u>[New] In 2024, Your Path to Metaverse Dominance with 7 Key Devices</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-leveraging-snapchat-for-income/"><u>[New] Leveraging Snapchat for Income</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-innovate-in-note-taking-with-mematic-platform/"><u>[Updated] 2024 Approved Innovate in Note-Taking with Mematic Platform</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-diving-into-the-essence-of-verified-instagramselfies/"><u>[Updated] Diving Into the Essence of Verified Instagramselfies</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-strategies-for-effective-gopro-time-lapse-footage/"><u>[Updated] Expert Strategies for Effective GoPro Time-Lapse Footage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-exploring-automatic-aspect-ratios-in-imovie-for-2024/"><u>[Updated] Exploring Automatic Aspect Ratios in iMovie for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-gear-vr-latest-phone-compatibility-guide-for-2024/"><u>[Updated] Gear VR Latest Phone Compatibility Guide for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-astronomy-enthusiasts-top-website-picklist/"><u>[Updated] In 2024, Astronomy Enthusiasts' Top Website Picklist</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-free-windows-10-recorder-tools-a-comprehensive-updated-guide/"><u>[Updated] In 2024, Free Windows 10 Recorder Tools A Comprehensive, Updated Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-navigating-the-dynamic-world-of-drone-racing-and-top-5-high-speed-drones/"><u>[Updated] In 2024, Navigating the Dynamic World of Drone Racing & Top 5 High-Speed Drones</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-is-youtube-premium-worth-it-a-user-guide/"><u>[Updated] Is YouTube Premium Worth It A User Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-zoom-for-seamless-fb-live-broadcasts/"><u>[Updated] Navigating Zoom for Seamless FB Live Broadcasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-photocollage-mastery-building-visual-narratives-for-2024/"><u>[Updated] PhotoCollage Mastery Building Visual Narratives for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-pioneering-online-techniques-for-vhs-image-refinement-for-2024/"><u>[Updated] Pioneering Online Techniques for VHS Image Refinement for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-precision-play-mastering-steams-switch-controllers/"><u>[Updated] Precision Play Mastering Steam's Switch Controllers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-quick-steps-to-proficient-gif-design-for-2024/"><u>[Updated] Quick Steps to Proficient GIF Design for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-uncovering-the-appeal-filmora-editors-most-attractive-features-for-2024/"><u>[Updated] Uncovering the Appeal Filmora Editor's Most Attractive Features for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/beyond-binary-boundaries-unveiling-metaverse-vs-multiverse/"><u>Beyond Binary Boundaries Unveiling Metaverse V/S Multiverse</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/downloadhp-envy-5055-driverseasily-and-quickly/"><u>Download|HP ENVY 5055 Drivers|Easily & Quickly</u></a></li>
+<li><a href="https://fox-links.techidaily.com/drones-and-editing-synergy-top-9-software-compared-for-2024/"><u>Drones and Editing Synergy - Top 9 Software Compared for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/explore-exceptional-economically-priced-asmr-gear/"><u>Explore Exceptional, Economically-Priced ASMR Gear</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/filter-not-working-error-in-excel-2021-fix-2024-stellar-by-stellar-guide/"><u>Filter Not Working Error in Excel 2021 Fix 2024 | Stellar</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-samsung-galaxy-xcover-6-pro-tactical-edition-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Samsung Galaxy XCover 6 Pro Tactical Edition? Try These Fixes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/from-static-to-spectaculous-the-yi-hero-video-journey-for-2024/"><u>From Static to Spectaculous The Yi Hero Video Journey for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-htc-u23-pro-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on HTC U23 Pro Quickly? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-it-honor-x50iplus-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Honor X50i+ Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-calm-time-chronicles-film-analysis/"><u>In 2024, Calm-Time Chronicles Film Analysis</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-deciding-on-a-top-gopro-camera-max-or-hero-11/"><u>In 2024, Deciding on a Top GoPro Camera Max or Hero 11?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-vivo-v29e-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Vivo V29e Devices</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcome-launch-errors-master-guide-for-running-robocop-rogue-city-on-personal-computers/"><u>Overcome Launch Errors: Master Guide for Running RoboCop: Rogue City on Personal Computers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/premier-comedy-photo-stylist-tool-for-2024/"><u>Premier Comedy Photo Stylist Tool for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resident-evil-village-troubleshooting-get-the-game-running-smoothly-again/"><u>Resident Evil Village Troubleshooting: Get the Game Running Smoothly Again</u></a></li>
+<li><a href="https://fox-links.techidaily.com/spectacular-scrutiny-and-different-directions/"><u>Spectacular Scrutiny & Different Directions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-hidden-costs-of-youtube-earning-for-2024/"><u>The Hidden Costs of YouTube Earning for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ultimate-psd-shadow-gradient-for-2024/"><u>Ultimate PSD Shadow Gradient for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unlocking-performance-activating-gpu-scheduling-with-hardware-acceleration-on-windows-11/"><u>Unlocking Performance: Activating GPU Scheduling with Hardware Acceleration on Windows 11</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-the-secrets-locating-your-macbook-serial-and-model-numbers/"><u>Unveiling the Secrets: Locating Your MacBook Serial & Model Numbers</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-honor-x9b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/will-mov-files-play-on-galaxy-s23-ultra-by-aiseesoft-video-converter-play-mov-on-android/"><u>Will MOV files play on Galaxy S23 Ultra ?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/yuneec-breeze-4k-the-ultimate-uav-showcase/"><u>Yuneec Breeze 4K - The Ultimate UAV Showcase</u></a></li>
+</ul></div>
 
 
 
