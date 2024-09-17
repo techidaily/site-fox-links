@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Complete Guide to Integrating Azure's Speech Recognition Service\""
-date: 2024-09-11T03:07:14.641Z
-updated: 2024-09-12T03:07:14.641Z
+date: 2024-09-14T02:00:36.666Z
+updated: 2024-09-16T19:47:36.278Z
 tags: 
   - screen-recording
   - ai video
@@ -26,13 +26,10 @@ Are you tired of manually typing texts into document editors like Word and Notep
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Part 1: What is Microsoft Azure and Speech Studio?
 
@@ -58,20 +55,6 @@ Step3The program will take a while to deploy an instance. Now tap Keys and endpo
 
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
 
 Step5Now enter the Azure regional identifier and subscription key on Windows Terminal or PowerShell. To configure the region and key, run these commands; “**spx config @key --set SUBSCRIPTION-KEY** and **spx config @region --set REGION.**”
@@ -82,39 +65,11 @@ Step6Now it's time to convert speech to text using Azure STT Service. To do that
 
 **Note:** Click [this video](https://docs.microsoft.com/en-us/shows/one-dev-minute/how-to-use-the-azure-cognitive-services-net-speech-sdk-for-recognition) for a detailed guide on how to use Azure Speech Services with Visual Basic (SDK).
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 3: What Are the Free Alternatives to the Microsoft Speech to Text Service?
 
 We should all agree that using Microsoft Azures Speech Service is not a walk in the park. You need some knowledge of programming and Windows Command Prompt. Even worse, you'll have to pay each time you want to convert speech to text after depleting the free credits.
 
 Fortunately, there's no shortage of free speech to text converters for beginners. So, in this part, we'll discuss some free Microsoft Azure STT alternatives for beginners.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 1\. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -134,25 +89,18 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make STT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Use Filmora To Make STT videos
 
@@ -162,53 +110,18 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 2\. Google Docs - Free
 
@@ -226,19 +139,12 @@ Step2Next, click the language drop-down arrow on the microphone to choose the tr
 
 Step3Click the Microphone icon to start dictating texts on Google Docs. After dictating enough texts, tap the red Microphone icon and edit your text. It's that simple!
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 3.[Audtext](https://audext.com/) \- $60 one-time fee
 
@@ -271,6 +177,14 @@ In that case, use a more straightforward option like Google Docs to dictate text
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -287,59 +201,19 @@ In that case, use a more straightforward option like Google Docs to dictate text
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-does-youtube-count-views-its-not-as-simple-as-you-think/"><u>[Updated] In 2024, How Does YouTube Count Views? It's Not as Simple as You Think</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-navigating-google-trends-for-inspiration-in-video-making/"><u>[Updated] Navigating Google Trends for Inspiration in Video Making</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-push-boundaries-with-unique-split-screen-videos-for-youtube/"><u>[Updated] Push Boundaries with Unique Split-Screen Videos for YouTube</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-detecting-silent-communication-on-snapstreak/"><u>2024 Approved Detecting Silent Communication on Snapstreak</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-proven-6-best-video-grabbers-for-your-mac/"><u>2024 Approved Proven 6 Best Video Grabbers for Your Mac</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-textual-transformations-discovering-the-best-video-effects/"><u>2024 Approved Textual Transformations - Discovering the Best Video Effects</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-essential-manual-for-srt-conversion-techniques/"><u>2024 Approved The Essential Manual for SRT Conversion Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-prime-cloud-storage-contenders-of-the-new-year/"><u>2024 Approved The Prime Cloud Storage Contenders of the New Year</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-workings-of-drones-an-introduction-for-beginners/"><u>2024 Approved The Workings of Drones An Introduction for Beginners</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-top-10-cinemagraphic-cameras-a-guide-from-novices-to-experts/"><u>2024 Approved Top 10 Cinemagraphic Cameras A Guide From Novices to Experts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-transform-your-imagery-with-ar-and-accessible-luts/"><u>2024 Approved Transform Your Imagery with AR & Accessible LUTs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-transforming-traditional-markets-with-virtual-engineering/"><u>2024 Approved Transforming Traditional Markets with Virtual Engineering</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-unleash-your-creative-edge-with-adjustable-story-videos/"><u>2024 Approved Unleash Your Creative Edge with Adjustable Story Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-unlocking-new-potentials-with-macos-11-big-sur/"><u>2024 Approved Unlocking New Potentials with macOS 11 Big Sur</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-what-are-luts-and-how-they-change-your-photo/"><u>2024 Approved What Are LUTs and How They Change Your Photo</u></a></li>
-<li><a href="https://fox-links.techidaily.com/9-metaverse-blueprints-illuminating-virtual-realities-for-2024/"><u>9 Metaverse Blueprints Illuminating Virtual Realities for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/a-comprehensible-guide-to-adding-images-on-instagram-for-2024/"><u>A Comprehensible Guide to Adding Images on Instagram for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/a-new-era-of-high-def-in-depth-on-hps-z32-x-review-for-2024/"><u>A New Era of High-Def In Depth on HP’s Z32 X Review for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/accessing-trendsetting-background-images-for-tiktok-for-2024/"><u>Accessing Trendsetting Background Images for TikTok for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/adding-accurate-dates-to-photographic-records-for-2024/"><u>Adding Accurate Dates to Photographic Records for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/advanced-3d-text-techniques-in-ai-for-2024/"><u>Advanced 3D Text Techniques in AI for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/adventure-in-sync-reviewing-the-panasonic-hx-a1-cam-for-2024/"><u>Adventure in Sync Reviewing the Panasonic HX-A1 Cam for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/alluring-headline-manufacturer-for-2024/"><u>Alluring Headline Manufacturer for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/analyzing-the-spectrum-of-hdr-with-asus-professional-screen-for-2024/"><u>Analyzing the Spectrum of HDR with ASUS Professional Screen for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/androids-best-cloud-space-solutions-for-2024/"><u>Android's Best Cloud Space Solutions for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/animatedapp-full-guide-24-edition/"><u>AnimatedApp Full Guide '24 Edition</u></a></li>
-<li><a href="https://fox-links.techidaily.com/average-podcast-income-whats-the-payoff-in-2024/"><u>Average Podcast Income What's the Payoff, In 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/beat-infused-imagery-mobile-video-making-on-iphone/"><u>Beat-Infused Imagery Mobile Video Making on iPhone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/beginners-guide-to-best-entry-level-cams-2024/"><u>Beginner's Guide to Best Entry-Level Cams 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/best-6-video-translators-to-translate-video-for-2024/"><u>Best 6 Video Translators to Translate Video for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/best-no-entry-price-voice-transformation-for-valorant-gamers/"><u>Best No-Entry Price Voice Transformation for Valorant Gamers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/best-practices-top-photo-frame-tech-of-2024/"><u>Best Practices Top Photo Frame Tech of 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/best-text-animation-presets-for-2024/"><u>Best Text Animation Presets for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/boost-visual-impact-learning-to-edit-videos-using-storyremix-and-windows-photos-for-2024/"><u>Boost Visual Impact Learning to Edit Videos Using StoryRemix and Windows Photos for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/boosting-videos-the-best-5-tech-aids/"><u>Boosting Videos The Best 5 Tech Aids</u></a></li>
-<li><a href="https://fox-links.techidaily.com/bypass-youtubes-short-video-playback-on-all-devices/"><u>Bypass YouTube's Short Video Playback on All Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/capture-words-from-your-speech-in-microsoft-word-easily-for-2024/"><u>Capture Words From Your Speech in Microsoft Word Easily for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/capturing-velocity-hero-4-versus-ghost-s-racing-for-2024/"><u>Capturing Velocity Hero 4 Versus Ghost-S Racing for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/clear-views-combating-fog-in-gopro-photos/"><u>Clear Views Combating Fog in GoPro Photos</u></a></li>
-<li><a href="https://extra-information.techidaily.com/enhancing-visual-quests-hunt-for-pristine-pexels-images/"><u>Enhancing Visual Quests Hunt for Pristine Pexels Images</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/expert-secrets-for-effective-ipad-sound-capture-for-2024/"><u>Expert Secrets for Effective iPad Sound Capture for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-motorola-g54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone SE (2022) | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-precision-gameplay-with-proximity-focus-in-roblox/"><u>In 2024, Precision Gameplay with Proximity Focus in Roblox</u></a></li>
-<li><a href="https://win11.techidaily.com/steps-to-rectify-unresponsive-windows-media-files/"><u>Steps to Rectify Unresponsive Windows Media Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-echoing-evolution-voices-in-free-fire/"><u>[New] Echoing Evolution Voices in Free Fire</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-guide-to-podcast-cover-design-10-core-insights/"><u>[New] In 2024, Guide to Podcast Cover Design 10 Core Insights</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-scalable-earnings-via-youtube-beauty-channels/"><u>[New] Scalable Earnings via YouTube Beauty Channels</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-grasping-the-basics-of-av1-compression/"><u>[Updated] 2024 Approved Grasping the Basics of AV1 Compression</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-expert-tips-on-choosing-top-9-webcam-enhancement-tools-for-2024/"><u>[Updated] Expert Tips on Choosing Top 9 Webcam Enhancement Tools for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-understanding-vr-headsets-an-overview/"><u>[Updated] Understanding VR Headsets An Overview</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-ultimate-shot-recorder-hunters-top-picks/"><u>2024 Approved Ultimate Shot Recorder Hunters' Top Picks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/cutting-edge-camera-selection-for-upcoming-live-show-videos-hd/"><u>Cutting-Edge Camera Selection for Upcoming Live Show Videos (HD)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-clear-audio-crystal-clear-view-premium-webcams-for-podcasts/"><u>In 2024, Clear Audio, Crystal-Clear View Premium Webcams for Podcasts</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-htc-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass HTC FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/metaverse-passage-premier-vr-equipment-showcase-for-2024/"><u>Metaverse Passage Premier VR Equipment Showcase for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/unlocking-metaverse-potential-top-7-innovations-to-master/"><u>Unlocking Metaverse Potential - Top 7 Innovations to Master</u></a></li>
 </ul></div>
-
-
-
 

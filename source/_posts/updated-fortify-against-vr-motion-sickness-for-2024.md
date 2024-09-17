@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Fortify Against VR Motion Sickness for 2024"
-date: 2024-09-11T03:01:33.584Z
-updated: 2024-09-12T03:01:33.584Z
+date: 2024-09-11T16:23:53.420Z
+updated: 2024-09-17T00:20:28.264Z
 tags: 
   - screen-recording
   - ai video
@@ -26,27 +26,10 @@ thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1f
 
  Mar 27, 2024• Proven solutions
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 10 ways to prevent Oculus Rift motion sickness
 
@@ -72,26 +55,6 @@ thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1f
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -99,20 +62,6 @@ thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1f
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Benjamin Arango
 
@@ -137,75 +86,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-behind-the-screen-discovering-samsung-galaxy-s8s-4k-edge/"><u>[New] 2024 Approved Behind the Screen Discovering Samsung Galaxy S8's 4K Edge</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-notable-industry-players-driving-vr-growth/"><u>[New] 2024 Approved Notable Industry Players Driving VR Growth</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-unlock-fast-video-trimming-in-windows-11-apps/"><u>[New] 2024 Approved Unlock Fast Video Trimming in Windows 11 Apps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-9-powerful-applications-for-saving-youtube-content-on-android/"><u>[New] 9 Powerful Applications for Saving YouTube Content on Android</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-best-flip-screen-cam-picks-your-guide-to-excellent-vlogging-for-2024/"><u>[New] Best Flip-Screen Cam Picks Your Guide to Excellent Vlogging for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-best-free-count-down-timers/"><u>[New] Best Free Count Down Timers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-elite-4k-gaming-laptops-ranked-1/"><u>[New] Elite 4K Gaming Laptops Ranked #1</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-enthralling-audienrances-the-most-captivating-6-videos-for-2024/"><u>[New] Enthralling Audienrances The Most Captivating 6 Videos for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-capture-creativity-with-smartphones-best-apps/"><u>[New] In 2024, Capture Creativity with Smartphones' Best Apps</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-in-depth-study-androids-lightroom-app-functionality/"><u>[New] In 2024, In-Depth Study Android's Lightroom App Functionality</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-pioneering-strategies-for-success-in-the-spotify-ad-arena/"><u>[New] In 2024, Pioneering Strategies for Success in the Spotify Ad Arena</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-checklist-for-efficiently-uploading-tracks-on-youtube/"><u>[New] In 2024, The Ultimate Checklist for Efficiently Uploading Tracks on YouTube</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-top-7-hydro-resistant-camcorders-explored/"><u>[New] In 2024, Top 7 Hydro-Resistant Camcorders Explored</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-windows-wonders-top-9-tools-to-capture-and-save-animated-gif-art/"><u>[New] In 2024, Windows Wonders Top 9 Tools to Capture and Save Animated GIF Art</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mastering-cross-platform-video-playback-free-solutions-guide/"><u>[New] Mastering Cross-Platform Video Playback Free Solutions Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-polar-performances-ultimate-beijing-olympics-scoop/"><u>[New] Polar Performances Ultimate Beijing Olympics Scoop</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-pro-level-stabilization-systems-for-streaming-content/"><u>[New] Pro-Level Stabilization Systems for Streaming Content</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-reviewing-the-powerhouse-of-magixs-photo-toolkit/"><u>[New] Reviewing the Powerhouse of MAGIX's Photo Toolkit</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-art-of-adding-soundtracks-to-instagram-visuals-for-2024/"><u>[New] The Art of Adding Soundtracks to Instagram Visuals for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-unveiling-best-android-photos-tactics/"><u>[New] Unveiling Best Android Photos Tactics</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-acclaimed-music-archives-for-visual-media/"><u>[Updated] 2024 Approved Acclaimed Music Archives for Visual Media</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-competing-visions-of-virtual-space-google-against-samsung/"><u>[Updated] 2024 Approved Competing Visions of Virtual Space Google Against Samsung</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-complete-survey-lightroom-app-unpacked-android/"><u>[Updated] 2024 Approved Complete Survey Lightroom App Unpacked (Android)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-getting-started-with-digital-image-detailing/"><u>[Updated] 2024 Approved Getting Started with Digital Image Detailing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-immersive-chronicles-virtual-realitys-history/"><u>[Updated] 2024 Approved Immersive Chronicles Virtual Reality's History</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-standard-youtube-licenses-versus-cc/"><u>[Updated] 2024 Approved Standard Youtube Licenses Versus CC</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-audiovisual-synergy-infusing-music-into-vimeo-creations/"><u>[Updated] Audiovisual Synergy Infusing Music Into Vimeo Creations</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-boost-your-snapchat-speed-a-basic-beginners-guide/"><u>[Updated] Boost Your Snapchat Speed A Basic Beginner's Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-essential-principles-of-animated-visual-content/"><u>[Updated] In 2024, Essential Principles of Animated Visual Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-ideal-tools-to-craft-professional-igtv-videos/"><u>[Updated] In 2024, Ideal Tools to Craft Professional IGTV Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-inside-the-magic-box-how-does-vr-function/"><u>[Updated] In 2024, Inside the Magic Box How Does VR Function?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-step-by-step-guide-removing-photo-backdrops/"><u>[Updated] In 2024, Step-by-Step Guide Removing Photo Backdrops</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-mass-movement-mastery-the-drone-top-list-for-2024/"><u>[Updated] Mass Movement Mastery The Drone Top List for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-pixellation-perfection-windows-and-macs-photo-to-animation-powerhouse/"><u>[Updated] Pixellation Perfection Windows & Mac's Photo to Animation Powerhouse</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-full-breakdown-of-toolwizs-image-processing-for-2024/"><u>[Updated] The Full Breakdown of Toolwiz's Image Processing for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-the-ultimate-benq-sw320-review-a-journey-to-4k/"><u>[Updated] The Ultimate BenQ SW320 Review A Journey to 4K</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-transforming-images-with-the-best-color-adjustment-guides/"><u>[Updated] Transforming Images with the Best Color Adjustment Guides</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unlock-potential-with-best-free-text-psdfree/"><u>[Updated] Unlock Potential with Best Free Text PSDFree</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unveiling-canvas-power-10-pro-editor-techniques-for-2024/"><u>[Updated] Unveiling Canva's Power 10 Pro Editor Techniques for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-achieve-viral-fame-crafting-engaging-instagram-unboxing-videos/"><u>2024 Approved Achieve Viral Fame Crafting Engaging Instagram Unboxing Videos</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/easy-methods-for-changing-the-color-of-your-folders-in-macos/"><u>Easy Methods for Changing the Color of Your Folders in macOS</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-itel-p55-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Itel P55 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-samsung-galaxy-xcover-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/guide-to-repairing-last-malfunctioned-usb-device-not-seen-by-windows-os/"><u>Guide to Repairing Last Malfunctioned USB Device Not Seen by Windows OS</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-vivo-v27-get-deleted-phone-number-back-with-ease-and-safety-by-fonelab-android-recover-contacts/"><u>How to Vivo V27 Get Deleted Phone Number Back with Ease and Safety</u></a></li>
-<li><a href="https://howto.techidaily.com/huawei-nova-y91-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Huawei Nova Y91 Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-expert-gopro-editor-software-for-smartphone-users/"><u>In 2024, Expert GoPro Editor Software for Smartphone Users</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-producing-teaser-videos-with-a-twist/"><u>In 2024, Producing Teaser Videos with a Twist</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-visualeditormaster-reviews-complete-analysis/"><u>In 2024, VisualEditorMaster Reviews – Complete Analysis</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-windows-movie-makers-iterative-development-history/"><u>In 2024, Windows Movie Maker's Iterative Development History</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/live-streaming-mastery-enhancing-your-broadcasts-with-manycam/"><u>Live Streaming Mastery: Enhancing Your Broadcasts with ManyCam</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-value-with-the-budget-friendly-caixun-75/"><u>Maximizing Value with the Budget-Friendly Caixun 75</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-how-to-install-and-use-autotune-in-audacity/"><u>New How to Install and Use Autotune in Audacity</u></a></li>
-<li><a href="https://fox-links.techidaily.com/next-gen-virtual-reality-top-8-metaverse-tech-for-2024/"><u>Next-Gen Virtual Reality Top 8 Metaverse Tech for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/permanent-shutdown-guide-to-youtube-shorts-feature-for-2024/"><u>Permanent Shutdown Guide to YouTube Shorts Feature for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/quick-clip-art-creator-seamless-image-to-cartoon-conversion-for-2024/"><u>Quick Clip-Art Creator Seamless Image-to-Cartoon Conversion for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-samsung-galaxy-a05s-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Samsung Galaxy A05s Device</u></a></li>
-<li><a href="https://fox-links.techidaily.com/top-10-gps-drones-with-steady-trail-following-features/"><u>Top 10 GPS Drones with Steady Trail-Following Features</u></a></li>
-<li><a href="https://fox-links.techidaily.com/top-80s-cinematic-elements-for-modern-editing/"><u>Top 80S Cinematic Elements for Modern Editing</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/tp-link-adapter-driver-downloads-freshest-version-available-for-windows-users-win-1nk-8-and-7/"><u>TP-Link Adapter Driver Downloads - Freshest Version Available for Windows Users (Win 1Nk, 8, & 7)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-ultimate-guide-to-whatsapp-audio-chat-for-2024/"><u>[New] The Ultimate Guide to WhatsApp Audio Chat for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-5-must-have-equipment-and-basic-software-to-start-vlogging-for-2024/"><u>[Updated] 5 Must-Have Equipment and Basic Software to Start Vlogging for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-elevate-your-voice-content-with-garageband-mastery/"><u>[Updated] Elevate Your Voice Content with GarageBand Mastery</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-many-viewers-to-target-for-a-youtube-earning-journey/"><u>[Updated] In 2024, How Many Viewers to Target for a YouTube Earning Journey?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-pathway-to-enlisting-world-class-cinematographers/"><u>[Updated] In 2024, Pathway to Enlisting World-Class Cinematographers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unraveling-the-potential-of-aurora-hdr-tech/"><u>[Updated] Unraveling the Potential of Aurora HDR Tech</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-excellent-apps-for-streamlined-igtv-vertical-cuts/"><u>2024 Approved Excellent Apps for Streamlined IGTV Vertical Cuts</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151766914-breaking-down-barriers-to-private-conversations-facebooks-revolutionary-end-to-end-encrypted-services-rollout-for-messenger-and-instagram/"><u>Breaking Down Barriers to Private Conversations: Facebook's Revolutionary End-to-End Encrypted Services Rollout for Messenger and Instagram.</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-realme-11-5g-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Realme 11 5G If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-a-visual-journey-in-filmmaking-insights-from-filmora-expertise/"><u>In 2024, A Visual Journey in Filmmaking Insights From Filmora Expertise</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/streamlined-techniques-for-efficient-apple-screenshots/"><u>Streamlined Techniques for Efficient Apple Screenshots</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
