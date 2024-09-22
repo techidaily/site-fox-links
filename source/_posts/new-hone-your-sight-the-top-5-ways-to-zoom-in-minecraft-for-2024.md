@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Hone Your Sight  The Top 5 Ways to Zoom in Minecraft for 2024\""
-date: 2024-09-15T00:24:42.389Z
-updated: 2024-09-16T19:16:03.555Z
+date: 2024-09-18T22:48:20.612Z
+updated: 2024-09-21T22:44:38.439Z
 tags: 
   - screen-recording
   - ai video
@@ -126,10 +126,10 @@ Step1 Gather the materials needed to make a map in the first step. These include
 ![use zoom out maps](https://images.wondershare.com/filmora/article-images/2022/07/use-zoom-out-maps.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Nine sheets of paper will be made from the sugar cane. Open the crafting table, and then put three pieces of sugar cane on each of the bottom squares to make them. To add paper to your inventory, click and drag it to the right-hand box's paper icon.
@@ -137,10 +137,10 @@ Step2 Nine sheets of paper will be made from the sugar cane. Open the crafting t
 ![add paper to inventory](https://images.wondershare.com/filmora/article-images/2022/07/add-paper-to-inventory.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 At this point, we may start drawing a map. Put the compass in the center square of the handicraft grid, then fill up all the other squares with paper. Now that the crafts grid is open, fill each square with paper and set a compass in the center. To add the yellow piece of paper to the inventory, click and drag it over to the right.
@@ -148,6 +148,13 @@ Step3 At this point, we may start drawing a map. Put the compass in the center s
 Step4 In order to utilize the map, choose it from the Equip bar at the bottom of the game screen, then right-click (or press and hold on a mobile device). After the first time, repeat the instructions to build 2048 x 2048 blocks, which will give you the greatest magnification. You may stroll about your planet while wearing the map to record all of its features and landmarks as shown below:
 
 ![utilize the map](https://images.wondershare.com/filmora/article-images/2022/07/utilize-the-map.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -161,26 +168,27 @@ Step2 Double-click the downloaded OptiFine file to open it and finish the instal
 
 ![install optifine file](https://images.wondershare.com/filmora/article-images/2022/07/install-optifine-file.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Start the launcher in Minecraft in the next step. If OptiFine does not appear in the drop-down menu, click Installations at the top of the launcher. Then click New in the top-left corner of the screen. Write OptiFine to install. From the Version menu, choose the version that has OptiFine in the title.
 
 ![start launcher in minecraft](https://images.wondershare.com/filmora/article-images/2022/07/start-launcher-in-minecraft.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Verify that OptiFine Mod is loaded into the program by checking this box. You may now see OptiFine on the bottom left of the Play option. If you can't see that, pick OptiFine by tapping the box next to the play choice; it is often the most recent release.
 
 ![optifine controls zoom](https://images.wondershare.com/filmora/article-images/2022/07/optifine-controls-zoom.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 In the Minecraft launch, choose the Play option and click to load a game. While playing the game, hit the keyboard's "c" key to close in on the target in the center. This key may be used to zoom in at any time. Now that you have used the OptiFine Mod in Minecraft to zoom in, you may do so.
 
@@ -202,19 +210,6 @@ Step3 However, you will always zoom in to 10% of your current Field of View whil
 
 ![spyglass settings](https://images.wondershare.com/filmora/article-images/2022/07/spyglass-settings.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 On the crafting table, arrange 2 copper ingots and 1 amethyst shard in the exact same configuration as in the illustration below to create a spyglass.
 
 ![crafting table spyglass](https://images.wondershare.com/filmora/article-images/2022/07/crafting-table-spyglass.jpg)
@@ -230,13 +225,6 @@ Step1 Gather the materials needed to make a map in the first step. These include
 Step2 Nine sheets of paper will be made from the sugar cane. Open the crafting table, and then put three pieces of sugar cane on each of the bottom squares to make them. To add paper to your inventory, click and drag it to the right-hand box's paper icon.
 
 ![add paper to inventory](https://images.wondershare.com/filmora/article-images/2022/07/add-paper-to-inventory.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 At this point, we may start drawing a map. Put the compass in the center square of the handicraft grid, then fill up all the other squares with paper. Now that the crafts grid is open, fill each square with paper and set a compass in the center. To add the yellow piece of paper to the inventory, click and drag it over to the right.
 
@@ -276,21 +264,20 @@ With the above 5 ways, the finest video game, Minecraft, has now the accessibili
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-premier-audio-broadcast-networks/"><u>[New] 2024 Approved Premier Audio Broadcast Networks</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-essential-text-to-speech-mac-tools-dont-miss-these/"><u>[New] Essential Text-to-Speech Mac Tools Don't Miss These</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-step-by-step-guide-to-deepening-digital-conversations-for-2024/"><u>[New] Step-by-Step Guide to Deepening Digital Conversations for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-ideal-high-res-displays-the-best-5-for-ps5/"><u>[Updated] In 2024, Ideal High-Res Displays The Best 5 For PS5</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-outro-aesthetics-selecting-templates-any-budget/"><u>[Updated] In 2024, Outro Aesthetics Selecting Templates, Any Budget</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-travel-video-setup-must-have-items-checklist/"><u>[Updated] In 2024, Travel Video Setup Must-Have Items Checklist</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-cinematic-crafts-win8/"><u>2024 Approved Cinematic Crafts Win8</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/drive-efficiency-to-new-heights-with-collective-windows-11-folder-creation/"><u>Drive Efficiency to New Heights with Collective Windows 11 Folder Creation</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-15-pro-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 15 Pro Without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-accelerating-or-slowing-down-your-storys-timeline-on-insta/"><u>In 2024, Accelerating or Slowing Down Your Story's Timeline on Insta</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-best-music-live-streaming-services/"><u>In 2024, Best Music Live Streaming Services</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-funimate-essentials-for-the-avid-gamer/"><u>In 2024, Funimate Essentials for the Avid Gamer</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-x6-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Poco X6 Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Samsung Galaxy M34 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/rapid-italian-crackdown-on-chatgpt-usage-explored/"><u>Rapid Italian Crackdown on ChatGPT Usage Explored</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-oppo-a59-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Oppo A59 5G Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-mastering-object-extraction-in-iphone-photography-with-top-6-apps/"><u>[New] 2024 Approved Mastering Object Extraction in iPhone Photography with Top 6 Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-lifestyle-logging-101-keeping-viewers-hooked-everyday/"><u>[New] Lifestyle Logging 101 Keeping Viewers Hooked Everyday</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-identifying-affordable-cloud-providers-for-businesses/"><u>[Updated] 2024 Approved Identifying Affordable Cloud Providers for Businesses</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-giggles-in-a-box-iphone-fun/"><u>[Updated] In 2024, Giggles in a Box (iPhone Fun)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-recognizing-disconnected-social-network/"><u>[Updated] Recognizing Disconnected Social Network</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-confirming-correct-youtube-ad-revenue-allocation/"><u>2024 Approved Confirming Correct YouTube Ad Revenue Allocation</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-live-tv-streaming-guide-the-best-ten-and-their-comparison/"><u>2024 Approved Live TV Streaming Guide The Best Ten and Their Comparison</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-samsung-galaxy-a14-4g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Samsung Galaxy A14 4G</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-essential-strategies-for-selecting-amazing-pexels-images/"><u>In 2024, Essential Strategies for Selecting Amazing Pexels Images</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-full-analysis-of-t5-eyes-exceptional-action-recording/"><u>In 2024, Full Analysis of T5 Eye's Exceptional Action Recording</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-lava-blaze-2-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Lava Blaze 2 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-honor-magic-5-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Honor Magic 5 Phone Network-Ready</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/master-the-art-of-canvas-with-these-top-10-secrets/"><u>Master the Art of Canvas with These Top 10 Secrets</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-tecno-spark-20c-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Tecno Spark 20C Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unraveling-drone-use-in-the-now-and-next-frontier/"><u>Unraveling Drone Use in the Now & Next Frontier</u></a></li>
 </ul></div>
 

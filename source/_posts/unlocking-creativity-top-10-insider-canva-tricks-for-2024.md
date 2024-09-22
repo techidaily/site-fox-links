@@ -1,7 +1,7 @@
 ---
 title: "\"Unlocking Creativity  Top 10 Insider Canva Tricks for 2024\""
-date: 2024-09-09T16:44:33.799Z
-updated: 2024-09-17T01:15:50.879Z
+date: 2024-09-19T16:19:20.203Z
+updated: 2024-09-21T21:28:03.776Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ You can also manage the size of your text to make it look appropriate and suitab
 
 ![add texts to photos](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Add Frames to the Image
 
 Do you know that adding a single frame to your photo can change the whole dynamic? Canva photo editor has an immense range of frames like polaroid black, polaroid white, film 1, film 2, and many more. You can add an artistic touch to your photos through polaroid frames without capturing them on polaroid cameras.
@@ -62,20 +69,6 @@ Do you know that adding a single frame to your photo can change the whole dynami
 On the other hand, frames like film 1 and film 2 are extremely trendy, and many social media influencers apply them to their photos. You can also utilize other classic frames according to your choice to give a new look to your favorite photos. Isn’t this good?
 
 ![use different canva photo frames](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Create YouTube Thumbnails
 
@@ -86,16 +79,10 @@ To create an eye-catchy YouTube thumbnail, use the “Highlight Effect” from t
 ![attractive youtube thumbnails](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-5.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Add Different Elements
@@ -107,16 +94,10 @@ Hence, explore various stickers and graphics from this platform and instantly ap
 ![ add different canva elements](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-6.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. Make Photo Collage
@@ -124,13 +105,6 @@ Hence, explore various stickers and graphics from this platform and instantly ap
 Photo collage combines all of our favorite and preferred photos in a single frame, and viewers can see all the combined photos in a single place. Canva photo editor online allows the users to make photo collages by merging their photos with a single click. You can add different frames to the images and can apply filters, effects, stickers, and typography. So, combine all of your cherishing memories in a single frame and share it with your friends and family members.
 
 ![make photo collage in canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. Design Mockups
 
@@ -145,6 +119,26 @@ Professional photographers use the features like auto-focus and blur to give dep
 By combining both of these features, you can easily craft a professional illustration through your images with a few retouches. This is great!
 
 ![auto blur effect applied](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-9.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. Mix the Colors
 
@@ -182,12 +176,18 @@ Anyone can learn photo editing skills if they are provided with accurate guideli
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-imageintensifymax7-boosting-pixels-magnificently/"><u>[New] 2024 Approved ImageIntensifyMax7 Boosting Pixels Magnificently</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ransform-with-the-10-most-exceptional-yoga-video-platforms/"><u>[New] Transform with the 10 Most Exceptional Yoga Video Platforms</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-discover-the-leading-8-web-resources-for-free-3d-text-psdfiles-for-2024/"><u>[Updated] Discover the Leading 8 Web Resources for Free 3D Text PSDFiles for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-pinnacle-of-photonic-innovation-sonys-xperia-xz-premium-for-2024/"><u>[Updated] The Pinnacle of Photonic Innovation Sony's Xperia XZ Premium for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-decoding-the-mystery-of-post-color-correction/"><u>2024 Approved Decoding the Mystery of Post-Color Correction</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722961297206-hp-photosmart-7520-software-download-install-your-high-quality-printer-drivers-today/"><u>HP Photosmart 7520 Software Download: Install Your High-Quality Printer Drivers Today</u></a></li>
-<li><a href="https://extra-support.techidaily.com/iphones-role-in-creating-immersive-vr-content-for-2024/"><u>IPhone's Role in Creating Immersive VR Content for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-top-3-techniques-for-capturing-sports-spectacles/"><u>[New] 2024 Approved Top 3 Techniques for Capturing Sports Spectacles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-gamers-guide-to-twisting-videos-on-youtube-2e-for-2024/"><u>[New] A Gamer's Guide to Twisting Videos on YouTube (2E) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-10-online-hubs-for-public-domain-music-in-games/"><u>[New] Top 10 Online Hubs for Public Domain Music in Games</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-daily-movie-storage-gb-explained/"><u>[Updated] 2024 Approved Daily Movie Storage GB Explained</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-identifying-affordable-cloud-providers-for-businesses/"><u>[Updated] 2024 Approved Identifying Affordable Cloud Providers for Businesses</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-a-gamers-guide-to-twisting-videos-on-youtube-2e/"><u>[Updated] A Gamer's Guide to Twisting Videos on YouTube (2E)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-film-visionarys-hub-the-definitive-15-luts-for-gopro-cinematic-use/"><u>2024 Approved Film Visionary's Hub The Definitive 15 LUTs for GOPRO Cinematic Use</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diagnosing-and-fixing-mouse-right-click-issues-under-windows-10-operating-system/"><u>Diagnosing and Fixing Mouse Right-Click Issues Under Windows 10 Operating System</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-itel-s23plus-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Itel S23+ to iPod | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-concurrent-choreo-broadcasts-on-qyoutube/"><u>In 2024, Concurrent Choreo Broadcasts on QYoutube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-full-analysis-of-t5-eyes-exceptional-action-recording/"><u>In 2024, Full Analysis of T5 Eye's Exceptional Action Recording</u></a></li>
+<li><a href="https://fox-links.techidaily.com/master-iphone-timelapses-efficient-recording-tips/"><u>Master iPhone Timelapses Efficient Recording Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unraveling-drone-use-in-the-now-and-next-frontier/"><u>Unraveling Drone Use in the Now & Next Frontier</u></a></li>
 </ul></div>
 

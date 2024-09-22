@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Perfecting Motion Capture  A Guide to GoPro Time Lapse Photos\""
-date: 2024-09-15T16:20:49.129Z
-updated: 2024-09-17T00:45:40.760Z
+date: 2024-09-15T02:27:49.783Z
+updated: 2024-09-22T01:52:25.515Z
 tags: 
   - screen-recording
   - ai video
@@ -105,6 +105,13 @@ After installing Filmora click on create on “New Project”. Select multiple p
 
 ![import photos to filmora](https://images.wondershare.com/filmora/article-images/2022/11/import-photos-to-filmora.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2 Placed videos on your timeline
 
 After selecting photos or videos, put the photos in your timeline. Preview your photos for any adjustment or editing.
@@ -124,10 +131,10 @@ You can also add some transitions and effects to your video. After editing the v
 ![export your video](https://images.wondershare.com/filmora/guide/overview-export-win-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -145,10 +152,10 @@ After installing Filmora click on create on “New Project”. Select multiple p
 ![import photos to filmora](https://images.wondershare.com/filmora/article-images/2022/11/import-photos-to-filmora.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step2 Placed videos on your timeline
@@ -158,10 +165,10 @@ After selecting photos or videos, put the photos in your timeline. Preview your 
 ![place videos to timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/place-videos-to-timeline-filmora.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step3 Adjust the duration of the time-lapse video
@@ -169,19 +176,6 @@ After selecting photos or videos, put the photos in your timeline. Preview your 
 Select any photo then click on the timer symbol to set the duration of the photo.
 
 ![change video duration filmora](https://images.wondershare.com/filmora/article-images/2022/11/change-video-duration-filmora.JPG)
-
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step4 Export your video
 
@@ -219,14 +213,15 @@ GoPro cameras are ideal for time-lapse photography thanks to their small size, w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-battle-of-titans-thieye-t5-or-sjcam-s6-legend/"><u>[New] Battle of Titans Thieye T5 or SJCAM S6 Legend?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-leveraging-keywords-and-metadata-in-podcast-seo-for-2024/"><u>[Updated] Leveraging Keywords and Metadata in Podcast SEO for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-speed-up-your-file-format-shift-from-srt-to-text-txt/"><u>[Updated] Speed-Up Your File Format Shift From SRT to Text (TXT)</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-yearly-showcase-superior-business-simulations-for-mobilepc/"><u>[Updated] Yearly Showcase Superior Business Simulations for Mobile/PC</u></a></li>
-<li><a href="https://fox-links.techidaily.com/conquer-iphone-audiophiles-playlist-tips-for-2024/"><u>Conquer iPhone Audiophile's Playlist Tips for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/discover-audio-delights-with-your-device-downloading-via-apples-app/"><u>Discover Audio Delights with Your Device Downloading via Apple's App</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-engage-audiences-with-these-inspiring-free-templates-for-slideshows/"><u>In 2024, Engage Audiences with These Inspiring, Free Templates for Slideshows</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-vivo-v27-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Vivo V27? Fixed | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/no-money-no-problem-heres-your-list-of-vfx-pages-for-2024/"><u>No Money, No Problem! Here's Your List of VFX Pages for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-elite-speedy-window-image-reader-tool/"><u>[New] 2024 Approved Elite Speedy Window Image Reader Tool</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-income-accumulation-with-cosmetic-videos/"><u>[New] Income Accumulation with Cosmetic Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-streamline-your-windows-pc-to-record-live-tv-with-ease/"><u>[Updated] 2024 Approved Streamline Your Windows PC to Record Live TV with Ease</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-a-deep-dive-into-previewed-fb-interactions-necessity-or-risk-in-2024/"><u>[Updated] A Deep Dive Into Previewed FB Interactions Necessity or Risk, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-complete-survey-gear-360s-visual-journey-insight/"><u>[Updated] Complete Survey Gear 360'S Visual Journey Insight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-race-radio-controlled-rock-crawler-unleashed-mastering-rugged-terrain-in-review/"><u>Best Race Radio Controlled Rock Crawler Unleashed: Mastering Rugged Terrain in Review</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-best-free-preschool-game-sites-a-guide-to-learning-and-fun/"><u>Discover the Best Free Preschool Game Sites - A Guide to Learning and Fun</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/1723262378086-exclusive-deal-buy-an-alienware-gaming-powerhouse-for-only-1499-equiped-with-rtx-4070-and-intel-i7/"><u>Exclusive Deal: Buy an Alienware Gaming Powerhouse for Only $1,499! Equiped with RTX #4070 and Intel I7.</u></a></li>
+<li><a href="https://win-blog.techidaily.com/seamless-integration-tips-for-astro-a5n-and-controller-center-detection/"><u>Seamless Integration Tips for Astro A5n and Controller Center Detection</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-gopro-quik-review-is-it-the-best-video-editor-for-your-needs-for-2024/"><u>Updated GoPro Quik Review Is It the Best Video Editor for Your Needs for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Frosty Feats  Celebrating the Beijing Olympics, 2022\""
-date: 2024-09-12T20:12:03.291Z
-updated: 2024-09-16T22:37:00.867Z
+date: 2024-09-16T21:29:38.771Z
+updated: 2024-09-21T19:16:08.303Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,13 @@ Injuries are part of sports events but some injuries are gruesome and are result
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
 Born in America, Eileen Gu represented China at Winter Olympics and managed to win the gold medal in the inaugural freeski big air event. Therefore, she will go down in the history as the first woman to win the gold medal for freeski big air event. She stunned everyone by completing two off-axis rotations in the air.
@@ -61,31 +68,11 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Van der Poel Breaks the World Record
 
 Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year-old Swede started strongly and crossed the finish line in 12 minutes 30.74 seconds to set the world record. His victory also made Sweden taste an Olympic medal after 1988\. The victory also made him the tenth man to win both the 10,000 races and 5,000 races in the same event. It is also the largest Olympic victory as he triumphed the record set by Johan Olav Kloss in 1994 by 18.70 seconds.
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
@@ -103,26 +90,13 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
@@ -130,6 +104,13 @@ With the triumph, she joins Shaun White to be the only snowboarders to successfu
 We are all aware of the tensions between Ukraine and Russia are at their peak and there are many experts who believe the countries are on the verge of declaring war. Even though The Winter Olympics should have ideally been an apolitical event, Ukrainian skeleton athlete Vladyslav Heraskevych flashed a sign that read “No War in Ukraine” to spark a political controversy.
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
@@ -140,10 +121,10 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
@@ -153,6 +134,13 @@ Zhou is considering the silver win as a consolation prize but he could not showc
 Doping scandals have become a part of the Olympics and this year is no different. According to International Testing Agency, Russian skater Kamila Valieva failed the doping test. On further examination, she tested positive for a performance-enhancing banned substance. She was told that she could not train, compete and participate during the Olympic Winter Games.
 
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
 
@@ -175,17 +163,21 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-elevate-ig-stories-with-seamless-audio-integration/"><u>[New] 2024 Approved Elevate IG Stories With Seamless Audio Integration</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-enhance-your-projects-with-free-green-screens-from-these-online-hubs/"><u>[New] 2024 Approved Enhance Your Projects with Free Green Screens From These Online Hubs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-from-disjointed-to-harmonious-the-logic-pro-x-transition-tale-for-2024/"><u>[New] From Disjointed to Harmonious The Logic Pro X Transition Tale for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-streaming-stardom-and-salary-the-pewdiepie-profit-piece/"><u>[New] Streaming Stardom and Salary – The PewDiePie Profit Piece</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-gopro-hero5-black-evolution-from-hero4-silver/"><u>[Updated] In 2024, GoPro Hero5 Black Evolution From Hero4 Silver</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/plete-guide-to-crafting-best-in-class-yt-thumbnails-for-2024/"><u>A Complete Guide to Crafting Best-in-Class YT Thumbnails for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/d-link-device-security-guide-default-password-catalog-july-2024-update/"><u>D-Link Device Security Guide: Default Password Catalog – July 2024 Update</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-v29e-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo V29e? | Dr.fone</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-view-gpx-files-online-and-offline-solutions-of-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to View GPX Files Online and Offline Solutions Of Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/swift-solutions-for-quick-fixing-youtube-chroma-key-flaws/"><u>Swift Solutions for Quick-Fixing YouTube Chroma Key Flaws</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/uncover-vibrant-visuals-on-twitch-channels/"><u>Uncover Vibrant Visuals on Twitch Channels</u></a></li>
-<li><a href="https://fox-links.techidaily.com/unique-images-unique-voice-podcast-graphic-principles-for-2024/"><u>Unique Images, Unique Voice Podcast Graphic Principles for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-detailed-instructions-for-embedding-and-displaying-youtube-playlists-online/"><u>[New] 2024 Approved Detailed Instructions for Embedding and Displaying YouTube Playlists Online</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-a-comprehensive-list-of-8-authentic-propagation-tools-for-2024/"><u>[New] A Comprehensive List of 8 Authentic Propagation Tools for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-a-journey-through-the-landscape-of-human-computer-interaction/"><u>[Updated] A Journey Through the Landscape of Human-Computer Interaction</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-essential-tech-aid-pinnacle-apps-for-changing-virtual-voices/"><u>[Updated] In 2024, Essential Tech Aid Pinnacle Apps for Changing Virtual Voices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-keep-your-spotify-experience-recommendation-free/"><u>[Updated] Keep Your Spotify Experience Recommendation-Free</u></a></li>
+<li><a href="https://fox-links.techidaily.com/efficiently-convert-iphone-photos-jpg-png-into-pdf-format-for-2024/"><u>Efficiently Convert iPhone Photos (JPG, PNG) Into PDF Format for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhancing-zoom-sessions-with-video-filters-a-guide-for-2024/"><u>Enhancing Zoom Sessions with Video Filters A Guide for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/expedited-removal-strategies-for-ssgnature-bg-for-2024/"><u>Expedited Removal Strategies for Ssgnature BG for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/gopro-hero4-black-vs-drift-ghost-s-which-one-is-better/"><u>GoPro Hero4 Black VS Drift Ghost-S Which One Is Better?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/no-fluff-just-facts-the-verdict-on-recordcast/"><u>No Fluff, Just Facts The Verdict on RecordCast</u></a></li>
+<li><a href="https://fox-links.techidaily.com/pushing-the-boundaries-of-titles-in-adobe-ae-for-2024/"><u>Pushing the Boundaries of Titles in Adobe AE for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/realizing-unnoticeable-connections-in-snapcircle-for-2024/"><u>Realizing Unnoticeable Connections in SnapCircle for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-15-pro-max-data-from-ios-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 15 Pro Max Data From iOS iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mic-rarities-assembling-the-best-dj-video-samples/"><u>Rhythmic Rarities Assembling the Best DJ Video Samples</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transformez-votre-mp3-en-ringtones-avec-une-conversion-gratuite-de-fichiers-m4a-a-m4r-en-ligne-chez-movavi/"><u>Transformez Votre MP3 en Ringtones Avec Une Conversion Gratuite De Fichiers M4A À M4R en Ligne Chez Movavi</u></a></li>
+<li><a href="https://win-answers.techidaily.com/windows-11-users-rejoice-microsoft-edges-previous-crashing-problem-solved/"><u>Windows 11 Users Rejoice! Microsoft Edge's Previous Crashing Problem Solved</u></a></li>
 </ul></div>
 

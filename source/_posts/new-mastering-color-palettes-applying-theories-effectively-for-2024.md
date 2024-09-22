@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Color Palettes  Applying Theories Effectively for 2024\""
-date: 2024-09-12T23:58:13.509Z
-updated: 2024-09-17T05:00:01.853Z
+date: 2024-09-19T05:21:57.067Z
+updated: 2024-09-21T21:50:29.777Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,10 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## But How Do I Use This
@@ -68,13 +68,6 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
@@ -82,6 +75,19 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -117,15 +123,16 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-techniques-to-boost-video-quality-on-web-browser-chrome/"><u>[New] 2024 Approved Techniques to Boost Video Quality on Web Browser Chrome</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-mastering-pip-feature-in-youtube-app-for-iphones/"><u>[New] In 2024, Mastering PIP Feature in YouTube App for iPhones</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-intova-edge-x-a-deep-dive-into-video-capture-for-2024/"><u>[New] Intova Edge X A Deep Dive Into Video Capture for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-essential-free-jpeg-to-gif-conversion-websites-ranked-for-2024/"><u>[Updated] Essential Free JPEG to GIF Conversion Websites Ranked for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-evaluating-the-tech-behind-your-memories-the-mycam-cam-reviewed/"><u>[Updated] In 2024, Evaluating the Tech Behind Your Memories The MyCam Cam Reviewed</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-mastery-in-video-creation-using-captivate-software/"><u>[Updated] In 2024, Mastery in Video Creation Using Captivate Software</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Vivo X Flip? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-xiaomi-redmi-13c-5g-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Xiaomi Redmi 13C 5G</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/quick-and-easy-methods-for-changing-mkv-videos-into-high-quality-divx-format/"><u>Quick and Easy Methods for Changing MKV Videos Into High-Quality DivX Format</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-mastering-pip-navigating-netflixs-floating-screen-functionality/"><u>[New] 2024 Approved Mastering PIP Navigating Netflix's Floating Screen Functionality</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-capture-the-rhythm-rapid-tap-into-tiktok-videos/"><u>[New] In 2024, Capture the Rhythm Rapid Tap Into TikTok Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-revenue-pathways-and-payments/"><u>[New] In 2024, YouTube Revenue Pathways and Payments</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-prospects-picks-the-highest-livestream-sites-for-2024/"><u>[New] Prospects' Picks The Highest Livestream Sites for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-organizing-your-skype-conversations-windowsmac-edition/"><u>[Updated] Organizing Your Skype Conversations Windows/Mac Edition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-musics-big-screen-facebooks-top-ten-vids/"><u>2024 Approved Music's Big Screen Facebook's Top Ten Vids</u></a></li>
+<li><a href="https://fox-links.techidaily.com/movie-magic-solutions-questions-answered-for-2024/"><u>Movie Magic Solutions Questions Answered for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/pro-video-excellence-with-iphone-learn-8-crucial-techniques-today/"><u>Pro Video Excellence with iPhone Learn 8 Crucial Techniques Today</u></a></li>
+<li><a href="https://extra-information.techidaily.com/securing-privacy-encryption-and-security-tips-in-zoom-for-windows-11/"><u>Securing Privacy Encryption and Security Tips in Zoom for Windows 11</u></a></li>
+<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-t2-5g-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from T2 5G</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-latest-in-computer-components-at-toms-digital-workshop/"><u>Unveiling the Latest in Computer Components at Tom's Digital Workshop</u></a></li>
 </ul></div>
 

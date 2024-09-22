@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Getting Started with Seamless Sound Transitions"
-date: 2024-07-12T07:00:04.012Z
-updated: 2024-07-13T07:00:04.012Z
+date: 2024-09-17T04:58:24.356Z
+updated: 2024-09-22T03:22:46.969Z
 tags: 
   - screen-recording
   - ai video
@@ -76,6 +76,13 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Related FAQs
 
 ### 1\. How do you fade in multitrack in Audition?
@@ -85,6 +92,13 @@ If you want to fade in and fade out two clips at the same time, then controlling
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Adobe Audition fade-out greyed out?
 
@@ -107,6 +121,13 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
@@ -124,6 +145,13 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -155,6 +183,23 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-impressive-display-innovations-top-10-mac-displays-of-the-year/"><u>[New] 2024 Approved Impressive Display Innovations - Top 10 Mac Displays of the Year</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unlocking-the-art-of-iphone-podcast-downloads-with-ease/"><u>[New] 2024 Approved Unlocking the Art of iPhone Podcast Downloads with Ease</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-stepwise-instructions-enabling-or-disabling-youtubes-pip-mode/"><u>[New] In 2024, Stepwise Instructions Enabling or Disabling YouTube's PIP Mode</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-ultimate-resource-audio-recommendations-for-unboxing-content-creators/"><u>[New] In 2024, Ultimate Resource Audio Recommendations for Unboxing Content Creators</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-tech-titans-in-vr-top-10-mobile-headsets-reviewed/"><u>[New] Tech Titans in VR Top 10 Mobile Headsets Reviewed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-stand-out-with-style-ios-and-androids-best-apps-for-adding-stickers/"><u>[Updated] 2024 Approved Stand Out with Style IOS and Android's Best Apps for Adding Stickers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tiktoks-toptwitter-tweets-amassing-views-for-2024/"><u>[Updated] TikTok's #TopTwitter Tweets Amassing Views for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unbeatable-candidates-the-very-best-phones-at-video-recording/"><u>[Updated] Unbeatable Candidates The Very Best Phones at Video Recording</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-oneplus-ace-3-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove OnePlus Ace 3 Fingerprint Lock</u></a></li>
+<li><a href="https://fox-links.techidaily.com/expert-tips-to-enhance-your-vlc-playback-in-macos-for-2024/"><u>Expert Tips to Enhance Your VLC Playback in macOS for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-unlock-icloud-account-without-password-from-iphone-14-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Unlock iCloud Account Without Password From iPhone 14</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-googles-portal-for-efficient-podcast-submission/"><u>In 2024, Google's Portal for Efficient Podcast Submission</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-nokia-c32withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Nokia C32with/without a PC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-xiaomi-14-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Xiaomi 14 to iPad | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-future-of-cyber-defense-insights-into-7-phenomena/"><u>The Future of Cyber Defense: Insights Into 7 Phenomena</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-strategies-in-drone-filmmaking-for-2024/"><u>Top Strategies in Drone Filmmaking for 2024</u></a></li>
+</ul></div>
 

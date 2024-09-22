@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Chronological Clarity in Your Photographic Work"
-date: 2024-09-13T00:27:44.026Z
-updated: 2024-09-17T03:45:02.919Z
+date: 2024-09-17T22:02:28.923Z
+updated: 2024-09-22T01:26:53.984Z
 tags: 
   - screen-recording
   - ai video
@@ -148,13 +148,6 @@ VSCO is another editing app you can use for your photo editing. VSCO has an easy
 
 ![vsco](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Key Features**
 
 * Color Correction
@@ -218,6 +211,13 @@ Step5When ready, drag and slide the date to the area of the image where you wish
 
 Step6Finally, select File>Save to add your date to the picture.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use an inbuilt app to edit photos on Windows
 
 Step1Enter "Photos " in the taskbar's search field. Click on it. Decide the image you want to edit.
@@ -247,6 +247,13 @@ Step4To create a text box, click and drag.
 Step5Enter the date you want.
 
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step6Select Menu in the upper-left corner.
 
@@ -369,6 +376,13 @@ The stock Android Camera app has full editing features that allow you to crop, r
 
 The stock iPhone Camera app also has full editing tools that allow you to crop, rotate and adjust the contrast of your photos. You can also add stickers and frames to your photo within this app.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use other photo editors to edit photos
 
 Why knowing **how to add date to a photo** with your in-built app is important; here is a complete guide on how you can use other third-party apps to **edit photos on your phone**.
@@ -380,6 +394,13 @@ You can make use of other photo editing apps to edit your pictures. Here are thr
 Instasize is an app that you will find quite useful. The app was developed for influencers and social media users who wish to produce captivating, imaginative images and films..
 
 ![instasize](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Key features**
 
@@ -418,10 +439,10 @@ VSCO is another editing app you can use for your photo editing. VSCO has an easy
 ![vsco](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Key Features**
@@ -463,13 +484,6 @@ When retouching your image in the Photos app, select the Adjust tab, then drag t
 
 ![adjust lighting and exposure](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Use inbuilt photo app on mac to add date stamps
 
 **Adding a date in a photo** can also be done on a Mac pc. Below are the steps to take to **add the date to a photo** with a Mac
@@ -483,19 +497,6 @@ Step2Then select Show Markup Tool.
 Step3Click on the text button.
 
 ![click on the text button](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-9.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4Proceed to add date and time into the text area manually.
 
@@ -514,19 +515,6 @@ Step1Enter "Photos " in the taskbar's search field. Click on it. Decide the imag
 Step2At the top of your screen, click on Edit & Create to get.
 
 ![click on edit create to get](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-12.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3After clicking Edit, choose any option (Crop & rotate, Filters, or Adjustments)
 
@@ -631,18 +619,15 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-free-video-wizardry-top-8-editing-programs-for-youtube-enthusiasts-for-2024/"><u>[New] Free Video Wizardry Top 8 Editing Programs for YouTube Enthusiasts for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-professionals-playbook-refined-gopro-video-production-techniques-for-2024/"><u>[New] The Professional's Playbook Refined GoPro Video Production Techniques for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-venture-into-virtual-laughs-top-20plus-funny-metaverse-creations/"><u>[Updated] 2024 Approved Venture Into Virtual Laughs Top 20+ Funny Metaverse Creations</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-timing-and-frequency/"><u>2024 Approved Timing and Frequency</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/complete-timeline-of-macos-revisions-understanding-what-version-you-are-running-now/"><u>Complete Timeline of macOS Revisions – Understanding What Version You Are Running Now</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-driver-updates-for-hp-elitebook-x360-gen9-series-download-now/"><u>Free Driver Updates for HP EliteBook X360 Gen9 Series - Download Now!</u></a></li>
-<li><a href="https://fox-links.techidaily.com/from-skyboxes-to-studio-walls-top-9-drone-software-showdowns-for-2024/"><u>From Skyboxes to Studio Walls Top 9 Drone Software Showdowns for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/gopro-time-lapse-tips-create-epic-time-lapse-video-for-2024/"><u>GoPro Time Lapse Tips Create Epic Time Lapse Video for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-unveiling-the-art-of-flipping-photo-shades/"><u>In 2024, Unveiling the Art of Flipping Photo Shades</u></a></li>
-<li><a href="https://fox-links.techidaily.com/stream-your-podcast-with-one-move-only/"><u>Stream Your Podcast with One Move Only</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-playbook-for-cutting-edge-youtube-studio-video-editing-for-2024/"><u>The Ultimate Playbook for Cutting-Edge YouTube Studio Video Editing for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-the-ultimate-list-of-free-animation-software-for-windows-and-macos/"><u>Updated In 2024, The Ultimate List of Free Animation Software for Windows and macOS</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-unleash-your-creativity-top-video-animation-apps-for-mobile-devices-2024/"><u>Updated Unleash Your Creativity Top Video Animation Apps for Mobile Devices 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-mastering-the-art-of-filter-selection-on-instagram/"><u>[New] In 2024, Mastering the Art of Filter Selection on Instagram</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-key-practices-for-screen-recording-on-phones/"><u>[New] Key Practices for Screen Recording on Phones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-best-5-pinterest-video-clips-download-for-no-cost/"><u>[Updated] 2024 Approved Best 5 Pinterest Video Clips, Download for No Cost</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-premiere-pro-rapid-transitions/"><u>[Updated] 2024 Approved Premiere Pro Rapid Transitions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-visualize-vibrancy-generate-memes-with-kapwing/"><u>[Updated] 2024 Approved Visualize Vibrancy Generate Memes with Kapwing</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mastering-video-backgrounds-teammeeting-blurring-guide-for-2024/"><u>[Updated] Mastering Video Backgrounds TeamMeeting Blurring Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-dive-into-the-future-of-branding-with-these-10-igtv-ideas/"><u>2024 Approved Dive Into the Future of Branding with These 10 IGTV Ideas</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unlock-the-power-of-persuasion-perfecting-your-shorts-visual-hook/"><u>2024 Approved Unlock the Power of Persuasion Perfecting Your Shorts' Visual Hook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/deciding-on-showcasing-your-off-facebook-journey-for-2024/"><u>Deciding on Showcasing Your Off-Facebook Journey for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-realme-10t-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Realme 10T 5G to BlackBerry | Dr.fone</u></a></li>
 </ul></div>
 

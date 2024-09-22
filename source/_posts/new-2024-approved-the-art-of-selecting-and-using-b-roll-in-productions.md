@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Art of Selecting and Using B-Roll in Productions\""
-date: 2024-09-12T16:35:23.206Z
-updated: 2024-09-17T01:12:34.106Z
+date: 2024-09-18T03:59:48.186Z
+updated: 2024-09-22T02:53:46.002Z
 tags: 
   - screen-recording
   - ai video
@@ -49,9 +49,23 @@ On the other hand, cutaways can show how different people react to what is being
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
 
@@ -66,10 +80,10 @@ B roll footage can be used to tell a story that supports the narrative of your v
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
@@ -84,23 +98,9 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,13 +136,15 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-a-step-by-step-to-upgraded-windows-photos-visuals-and-tunes/"><u>[New] 2024 Approved A Step-by-Step to Upgraded Windows Photos Visuals & Tunes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-revolutionary-q500-the-ultimate-4k-bird/"><u>[Updated] In 2024, Revolutionary Q500 The Ultimate 4K Bird</u></a></li>
-<li><a href="https://fox-links.techidaily.com/effortless-storytelling-using-pixiz-for-photo-videos/"><u>Effortless Storytelling Using Pixiz for Photo Videos</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-resolve-problems-with-the-realtek-rtl8723be-network-adapter-drivers/"><u>How to Resolve Problems with the Realtek RTL8723BE Network Adapter Drivers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-mastering-youtube-images-your-complete-thumbnail-handbook/"><u>In 2024, Mastering YouTube Images Your Complete Thumbnail Handbook</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-premier-zones-for-cutting-edge-vr-viewing/"><u>In 2024, Premier Zones for Cutting-Edge VR Viewing</u></a></li>
-<li><a href="https://windows11.techidaily.com/solving-the-mystery-of-error-0x0000004e-on-windows/"><u>Solving the Mystery of Error 0X0000004E on Windows</u></a></li>
-<li><a href="https://fox-links.techidaily.com/streamlining-your-figma-project-with-clean-backgrounds/"><u>Streamlining Your Figma Project with Clean Backgrounds</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-guide-to-securing-superior-quality-pics-without-charges/"><u>[New] In 2024, Guide to Securing Superior Quality Pics without Charges</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-mastering-the-art-creating-high-quality-gopro-vlogs/"><u>[Updated] In 2024, Mastering The Art Creating High-Quality Gopro Vlogs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-20-ae-templates-for-aspiring-designers-for-2024/"><u>[Updated] Top 20 AE Templates for Aspiring Designers for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-metaverse-laughs-crafting-funny-virtual-memes/"><u>2024 Approved Metaverse Laughs Crafting Funny Virtual Memes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-your-guide-to-conquering-video-meetings-with-zoom-and-win10/"><u>2024 Approved Your Guide to Conquering Video Meetings with Zoom & WIN10</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/avoid-these-dangers-why-generating-windows-11-licenses-with-ai-chatbots-isnt-ideal/"><u>Avoid These Dangers: Why Generating Windows 11 Licenses with AI Chatbots Isn't Ideal</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-samsung-galaxy-a54-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Samsung Galaxy A54 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/examining-the-best-technology-for-crystal-clear-4k-visuals-for-2024/"><u>Examining the Best Technology for Crystal-Clear 4K Visuals for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-realme-v30-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Realme V30 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/sennheiser-momentum-true-wireless-headphones-review-exceptional-sound-quality-and-comfort/"><u>Sennheiser Momentum True Wireless Headphones Review - Exceptional Sound Quality and Comfort</u></a></li>
 </ul></div>
 

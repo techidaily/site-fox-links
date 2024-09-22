@@ -1,7 +1,7 @@
 ---
 title: "Date Labeling Tips for Image Archivists"
-date: 2024-07-12T06:59:26.924Z
-updated: 2024-07-13T06:59:26.924Z
+date: 2024-09-19T21:53:06.891Z
+updated: 2024-09-21T23:52:55.385Z
 tags: 
   - screen-recording
   - ai video
@@ -222,9 +222,23 @@ Step2Select Edit & Create > Edit with Paint 3D in the upper right corner of the 
 
 ![select edit create](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Go to the screen's top and click Text.
 
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4To create a text box, click and drag.
 
@@ -276,6 +290,13 @@ Canva is a standout online photo editor where you can edit your and **add date t
 PIXLR is another great online platform that can be used to **edit pictures online**. PIXLR offers amazing features with its services. To use the platform, you must **sign up and upload a photo**.
 
 ![pixlp](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-21.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Key features**
 
@@ -464,6 +485,13 @@ Step5When ready, drag and slide the date to the area of the image where you wish
 
 Step6Finally, select File>Save to add your date to the picture.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use an inbuilt app to edit photos on Windows
 
 Step1Enter "Photos " in the taskbar's search field. Click on it. Decide the image you want to edit.
@@ -481,6 +509,13 @@ Step1Launching the Photos app will **add a date to a photo** when using a window
 Step2Select Edit & Create > Edit with Paint 3D in the upper right corner of the screen.
 
 ![select edit create](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3Go to the screen's top and click Text.
 
@@ -573,6 +608,21 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-zoom-meets-tiktok-streamlining-video-sharing/"><u>[New] 2024 Approved Zoom Meets TikTok Streamlining Video Sharing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-guide-to-securing-superior-quality-pics-without-charges/"><u>[New] In 2024, Guide to Securing Superior Quality Pics without Charges</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-storage-analysis-videography-on-64128gb-hardware/"><u>[New] Storage Analysis Videography on 64/128GB Hardware</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-leading-edge-in-social-media-video-capture-5-apps-reviewed/"><u>[Updated] 2024 Approved The Leading Edge in Social Media Video Capture (5 Apps Reviewed)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-mastering-the-art-creating-high-quality-gopro-vlogs/"><u>[Updated] In 2024, Mastering The Art Creating High-Quality Gopro Vlogs</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-master-money-making-on-reddit-in-just-a-few-simple-steps/"><u>[Updated] Master Money-Making on Reddit in Just a Few Simple Steps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-20-ae-templates-for-aspiring-designers-for-2024/"><u>[Updated] Top 20 AE Templates for Aspiring Designers for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-uncover-the-secrets-of-your-off-facebook-life-with-us-for-2024/"><u>[Updated] Uncover the Secrets of Your Off-Facebook Life with Us for 2024</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-honor-x8b-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/examining-the-best-technology-for-crystal-clear-4k-visuals-for-2024/"><u>Examining the Best Technology for Crystal-Clear 4K Visuals for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-realme-v30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-from-apple-iphone-se-2022-by-drfone-ios/"><u>How to Bypass iCloud Lock from Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-ranked-9-iphone-applications-to-add-watermarks-on-photos/"><u>In 2024, Ranked 9 iPhone Applications to Add Watermarks on Photos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-high-definition-showdown-comparing-8k-tvs-for-2024/"><u>The Ultimate High-Definition Showdown Comparing 8K TVs for 2024</u></a></li>
+</ul></div>
 

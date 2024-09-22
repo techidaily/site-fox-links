@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Advanced Typography Animation Suites"
-date: 2024-09-09T16:23:10.728Z
-updated: 2024-09-16T18:14:06.910Z
+date: 2024-09-15T21:41:01.068Z
+updated: 2024-09-22T05:01:51.139Z
 tags: 
   - screen-recording
   - ai video
@@ -46,16 +46,10 @@ There is always a high demand for dynamic text animations in After Effects. This
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Squash & Stretch Preset
@@ -63,6 +57,13 @@ There is always a high demand for dynamic text animations in After Effects. This
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
 
@@ -76,6 +77,13 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. Kinetic Text Animation
 
 Kinetic text effect is a part of dynamic text effects and there is a high demand for kinetic text animation. In this pack, you get 56 text animations and all the effects have full HD resolution. The effect will literally transform your video content and help you to get a proper branding on the video. There are different types of animations available and you videos will not look boring by any chance.
@@ -83,10 +91,16 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
@@ -94,26 +108,6 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -149,17 +143,20 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-inverted-screen-changing-video-ordering/"><u>[New] 2024 Approved Inverted Screen Changing Video Ordering</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-beginners-blueprint-for-dynamic-illustration/"><u>[New] 2024 Approved The Beginner's Blueprint for Dynamic Illustration</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-get-the-perfect-slideshow-design-10-places-to-download-for-inspiration-for-2024/"><u>[New] Get the Perfect Slideshow Design 10 Places to Download for Inspiration for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-enhancing-engagement-onestream-streaming-best-practices/"><u>[Updated] 2024 Approved Enhancing Engagement OneStream Streaming Best Practices</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-craft-your-narrative-on-reddit-mastering-content-delivery/"><u>[Updated] Craft Your Narrative on Reddit Mastering Content Delivery</u></a></li>
-<li><a href="https://win-blog.techidaily.com/call-of-duty-black-ops-cold-war-pc-crashes-resolved/"><u>Call of Duty: Black Ops Cold War PC Crashes Resolved</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-mastering-video-capture-bandicams-edge-over-camtasia/"><u>In 2024, Mastering Video Capture Bandicam’s Edge Over Camtasia</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-delayed-strategy-understanding-the-push-to-2023-for-encryption/"><u>Meta's Delayed Strategy: Understanding the Push to 2023 for Encryption</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-plan-for-binge-watching-all-x-men-movies-correctly/"><u>Step-by-Step Plan for Binge-Watching All X-Men Movies Correctly</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-best-imessage-game-selection-a-look-at-the-hottest-picks-for-202er/"><u>The Best iMessage Game Selection: A Look at the Hottest Picks for 202Er</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-greatest-hits-of-iphone-movie-streaming/"><u>The Greatest Hits of iPhone Movie Streaming</u></a></li>
-<li><a href="https://fox-links.techidaily.com/ultimate-sites-for-stylish-metallic-3d-text-artistry-for-2024/"><u>Ultimate Sites for Stylish, Metallic 3D Text Artistry for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-hear-now-or-never-the-solution-for-twitter-vids-for-2024/"><u>[Updated] Hear Now or Never The Solution for Twitter Vids for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-top-time-lapse-tools-the-finest-screen-recorders/"><u>2024 Approved TOP Time-Lapse Tools - The Finest Screen Recorders</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-30-second-guide-to-fast-thumbnails/"><u>Blitz 30-Second Guide to Fast Thumbnails</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-jaco-smartpro-digital-tire-inflator-an-experts-guide-to-a-portable-and-high-performance-device/"><u>Evaluating the Jaco SmartPro Digital Tire Inflator: An Expert's Guide to a Portable and High-Performance Device</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/expert-techniques-optimizing-obs-streams-for-your-fb-audience-for-2024/"><u>Expert Techniques Optimizing OBS Streams for Your FB Audience for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/gratuit-verbeteren-van-m4a-naar-vob-professioneel-online-converter-via-movavi/"><u>Gratuit Verbeteren Van M4A Naar VOB - Professioneel Online Converter via Movavi</u></a></li>
+<li><a href="https://fox-links.techidaily.com/gratuito-conversor-de-milhas-por-galao-para-avios-em-formato-avi-online-pela-movavi/"><u>Gratuito Conversor De Milhas Por Galão Para Avios Em Formato AVI - Online Pela Movavi</u></a></li>
+<li><a href="https://fox-links.techidaily.com/gratuito-e-online-conversor-de-formatos-flv-para-vob-do-movavi/"><u>Gratuito E Online: Conversor De Formatos FLV Para VOB Do Movavi</u></a></li>
+<li><a href="https://fox-links.techidaily.com/gratuito-e-seguro-online-conversao-de-arquivos-mkv-com-o-software-movavi/"><u>Gratuito E Seguro: Online Conversão De Arquivos MKV Com O Software Movavi</u></a></li>
+<li><a href="https://fox-links.techidaily.com/guia-completa-generando-videos-en-mac-con-el-editor-de-movavi-tecnicas-faciles-para-iniciantes/"><u>Guía Completa: Generando Videos en Mac Con El Editor De Movavi - Técnicas Fáciles Para Iniciantes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/guia-facil-de-reproducir-archivos-mp4-en-sistemas-operativos-windows-10-8-y-7/"><u>Guía Fácil De Reproducir Archivos MP4 en Sistemas Operativos Windows 10, 8 Y 7</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-soft-reset-your-iphone/"><u>How to Soft Reset Your iPhone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/techniques-faciles-pour-conversion-et-transfert-video-vhs-vers-dvd-via-pc-un-guide-complet/"><u>Techniques Faciles Pour Conversion Et Transfert Vidéo VHS Vers DVD via PC: Un Guide Complet</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-cutting-edge-professional-cameras-a-360-overview-2023/"><u>The Cutting-Edge Professional Cameras - A 360° Overview, 2023</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-your-itel-s23plus-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Itel S23+ Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
 </ul></div>
 
