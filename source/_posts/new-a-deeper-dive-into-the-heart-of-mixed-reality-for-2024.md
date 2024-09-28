@@ -1,7 +1,7 @@
 ---
 title: "[New] A Deeper Dive Into the Heart of Mixed Reality for 2024"
-date: 2024-09-18T04:04:43.917Z
-updated: 2024-09-21T18:04:17.252Z
+date: 2024-09-22T23:05:52.149Z
+updated: 2024-09-28T20:32:47.603Z
 tags: 
   - screen-recording
   - ai video
@@ -37,9 +37,29 @@ thumbnail: https://thmb.techidaily.com/acc4624304fa10f6661dcbd0f5aeeaf72266dc481
 
  In mixed reality, the user is given the ability to explore the virtual environment and the real world seamlessly at the same time. Through the use space and coordinates, the virtual objects will be positioned on the real world and whenever you move towards the virtual objects, they become larger while moving away from them makes them smaller. Moving around the virtual objects will also give you different angles and perspectives. Additionally, mixed reality will allow users to manipulate the virtual objects and interact with them as if they were with them in the same place.
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How does Mixed Reality work
 
  With the development of the technology is shrouded in secrecy by the major players, all that is known on the operations of the technology is that it uses virtual reality and augmented reality as well as space and coordinates. Magic Leap is the company at the forefront in the development of mixed reality and they have remained tight lipped about the finer details of what they are doing or developing. The scanty details we know however, suggests that just like Hololens, mixed reality will use a projector for displaying images on semi transparent materials which will then be reflected to the eye with the help of beam-splitting technology.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Applications of Mixed Reality
 
@@ -52,10 +72,10 @@ thumbnail: https://thmb.techidaily.com/acc4624304fa10f6661dcbd0f5aeeaf72266dc481
  Sharing real world virtual spaces through mixed reality can be especially beneficial for sales team when making a pitch for a new offer. For instance, a pharmaceutical sales rep can carry along two mixed reality devices to an appointment with the doctor. The doctor and the sales rep can then both wear the devices and see a model of the new drug as explained by the sales rep. Through this, they can then visualize the chemical composition of the drug and also simulate how the drug will move in the body to fight diseases. Through such a shared experience, the sales rep will not only build deeper connections with the doctor, but also offer a more detailed explanation on the product being offered.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Mixed reality for remote experts – over the shoulder coaching
@@ -73,16 +93,10 @@ thumbnail: https://thmb.techidaily.com/acc4624304fa10f6661dcbd0f5aeeaf72266dc481
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -108,5 +122,23 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-best-10-no-cost-video-conferencing-solutions-unveiled/"><u>[New] Best 10 No-Cost Video Conferencing Solutions Unveiled</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-10-best-instagram-meme-accounts-to-make-you-laugh-with-tears/"><u>[New] In 2024, 10 Best Instagram Meme Accounts to Make You Laugh (with Tears)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-scene-reduction-unveiling-imovies-cropping-logic/"><u>[Updated] 2024 Approved Scene Reduction Unveiling iMovie's Cropping Logic</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-comparative-study-samsung-vs-traditional-photo-tools/"><u>[Updated] Comparative Study Samsung vs Traditional Photo Tools</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-easy-guide-to-blur-background-in-google-meet-laptop-and-mobile/"><u>[Updated] Easy Guide to Blur Background in Google Meet [Laptop and Mobile]</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-auditory-aesthetics-choosing-the-right-soundtracks-for-boxings/"><u>[Updated] In 2024, Auditory Aesthetics Choosing the Right Soundtracks for Boxings</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-elevate-podcast-quality-with-advanced-garageband-editing-methods/"><u>[Updated] In 2024, Elevate Podcast Quality with Advanced GarageBand Editing Methods</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-elite-list-tiktoks-most-accurate-earning-analyzers/"><u>[Updated] In 2024, Elite List TikTok's Most Accurate Earning Analyzers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-navigating-screen-customization-a-google-meet-essentials-guide/"><u>[Updated] In 2024, Navigating Screen Customization A Google Meet Essentials Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-comprehensive-guide-to-acquiring-instagram-ringtones-and-creating-noteworthy-chimes/"><u>[Updated] The Comprehensive Guide to Acquiring Instagram Ringtones & Creating Noteworthy Chimes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-20-tales-on-yt-where-to-find-the-best-storytelling/"><u>[Updated] Top 20 Tales on YT Where to Find the Best Storytelling</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-video-to-mp3-converting-hacks/"><u>2024 Approved Instagram Video-to-MP3 Converting Hacks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-mastering-video-boost-the-essential-handbook-for-vce-22/"><u>2024 Approved Mastering Video Boost The Essential Handbook for VCE 2.2</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/5-things-to-consider-before-buying-a-refurbished-laptop/"><u>5 Things to Consider Before Buying a Refurbished Laptop</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-ultimate-list-of-top-quality-cost-free-luts/"><u>In 2024, Ultimate List of Top-Quality, Cost-Free LUTs</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-best-way-to-update-and-manage-device-drivers-in-windows-11-using-revo-uninstaller/"><u>The Best Way to Update and Manage Device Drivers in Windows 11 Using Revo Uninstaller</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Smartphone Lens  Creating Sweeping Panos for 2024\""
-date: 2024-09-19T01:56:38.492Z
-updated: 2024-09-22T00:53:55.277Z
+date: 2024-09-23T16:13:22.865Z
+updated: 2024-09-28T21:06:02.410Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone users
 
  The iPhone users can follow the steps given below to execute vertorama.
@@ -58,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For Android users
 
  To capture vertical panorama on Android, the steps are given just below.
@@ -67,6 +81,13 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
@@ -74,10 +95,10 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
@@ -88,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c
 * Leaving some space is another beautiful tip especially if you are a graphic designer and want to add some text into the picture. The panorama shot will look perfectly enhanced this way.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -119,5 +133,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-dynamic-audio-excellence-best-cameras-microphones-for-2024/"><u>[Updated] Dynamic Audio Excellence Best Cameras' Microphones for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-elevating-zoom-image-resolution-practical-ideas/"><u>[Updated] In 2024, Elevating Zoom Image Resolution Practical Ideas</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-mastering-the-art-of-text-insertion-in-digital-pictures/"><u>2024 Approved Mastering the Art of Text Insertion in Digital Pictures</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-perfect-bgms-and-images-elevating-remote-conferencing/"><u>2024 Approved Perfect BGMs & Images Elevating Remote Conferencing</u></a></li>
+<li><a href="https://change-location.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/experiencing-netflix-issues-heres-how-to-confirm-if-its-a-global-problem/"><u>Experiencing Netflix Issues? Here's How to Confirm if It’s a Global Problem</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-oppo-a2-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Oppo A2</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-speedy-streams-start-here-snapchat-for-starters/"><u>In 2024, Speedy Streams Start Here Snapchat for Starters</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-the-game-crashing-centipede-error-in-destiny/"><u>Overcoming the Game-Crashing Centipede Error in Destiny</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-science-of-perfectly-timed-episodes/"><u>The Science of Perfectly Timed Episodes</u></a></li>
+</ul></div>
 

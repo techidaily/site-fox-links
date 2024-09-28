@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Shoot Vertical Panorama Photos with Your Mobile Phone\""
-date: 2024-09-19T04:28:53.934Z
-updated: 2024-09-21T23:01:11.899Z
+date: 2024-09-23T18:05:35.895Z
+updated: 2024-09-28T17:45:10.548Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone users
 
  The iPhone users can follow the steps given below to execute vertorama.
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### For Android users
 
@@ -74,10 +88,16 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
@@ -90,10 +110,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -119,5 +139,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-fiscal-summary-producing-a-music-video/"><u>[New] 2024 Approved Fiscal Summary Producing a Music Video</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-how-to-record-internet-radio-a-simple-guide/"><u>[New] 2024 Approved How To Record Internet Radio - A Simple Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-elite-mac-compatible-4k-screens-ranked-1-for-2024/"><u>[New] Elite Mac-Compatible 4K Screens Ranked #1 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-photo-and-film-capture-apps-iphone-and-android-edition/"><u>[New] In 2024, Essential Photo & Film Capture Apps IPhone & Android Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-photographic-albums-with-soundscape-features/"><u>[New] In 2024, Photographic Albums with Soundscape Features</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-direct-to-device-converting-youtube-tracks-for-idevices/"><u>[Updated] Direct to Device Converting YouTube Tracks for iDevices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-generate-10-official-travel-ready-passport-images-no-money-down/"><u>[Updated] Generate 10 Official Travel-Ready Passport Images, No Money Down</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-science-of-youtube-success-perfect-thumbnails-for-2024/"><u>[Updated] The Science of YouTube Success Perfect Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-creating-low-volume-effects-a-guide-for-fading-out-audio-in-logic-pro/"><u>2024 Approved Creating Low Volume Effects A Guide for Fading Out Audio in Logic Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-step-by-step-guide-adding-tracks-to-premiere-pro-projects/"><u>2024 Approved Step-by-Step Guide Adding Tracks to Premiere Pro Projects</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-update-thunderbolt-3-drivers-for-latest-windows-11-easy-guide/"><u>Download & Update Thunderbolt 3 Drivers for Latest Windows 11: Easy Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/guide-to-overcome-constant-windows-11-system-reboots-instantly/"><u>Guide to Overcome Constant Windows 11 System Reboots Instantly</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-y100t-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y100t Bootloader Easily</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-perfect-online-shopping-picks-for-one-of-a-kind-box-packaging/"><u>In 2024, Perfect Online Shopping Picks for One-of-a-Kind Box Packaging</u></a></li>
+<li><a href="https://fox-links.techidaily.com/laughing-through-the-metaverse-making-your-own-humor-for-2024/"><u>Laughing Through the Metaverse Making Your Own Humor for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/leveraging-length-and-style-in-your-instagram-videos-for-2024/"><u>Leveraging Length and Style in Your Instagram Videos for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-kinetic-typography-text-effect-easyandfast-for-2024/"><u>New Kinetic Typography Text Effect 【EASY&FAST】 for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Guide  Mastering Creative Effects in Online Zoom Sessions\""
-date: 2024-09-18T05:28:05.374Z
-updated: 2024-09-22T01:36:58.007Z
+date: 2024-09-27T17:40:59.297Z
+updated: 2024-09-28T21:39:16.016Z
 tags: 
   - screen-recording
   - ai video
@@ -67,9 +67,23 @@ Step3A pop-up menu will appear and tap on Background and Filters option.
 
 ![background and filters zoom mobile](https://images.wondershare.com/filmora/article-images/2022/08/background-and-filters-zoom-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4Tap on Filters tab and select a desired filter from the available filters.
 
 ![select desired filter zoom mobile](https://images.wondershare.com/filmora/article-images/2022/08/select-desired-filter-zoom-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5The last filter you tap on will be applied to your video. Finally, tap on “X” icon to close the filters overlay window.
 
@@ -99,15 +113,22 @@ Step5Drag and drop the desired filter on the Timeline to apply to your video. Yo
 
 ![timeline](https://images.wondershare.com/filmora/guide/filters-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can also use multiple video filters of different durations for one video clip. You can even customize the video filter by clicking on the applied filter.
 
 Step6Once you are satisfied with the editing, click on Export to save the edited video in desired file format.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The Bottom Line
@@ -142,5 +163,18 @@ You must have heard that Zoom lets you use a virtual background to make your vid
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-best-photo-text-editor-to-add-text-on-picture/"><u>[New] Best Photo Text Editor to Add Text on Picture</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-navigating-new-norms-metaverse-marketing-101/"><u>[New] Navigating New Norms Metaverse Marketing 101</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-optimizing-visuals-editing-videos-with-storyremix-and-windows-11-photos/"><u>[Updated] 2024 Approved Optimizing Visuals Editing Videos with StoryRemix and Windows 11 Photos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-a-step-by-step-approach-how-to-record-and-archive-online-radio-for-2024/"><u>[Updated] A Step-by-Step Approach How To Record & Archive Online Radio for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-premium-quality-transformer-for-video-enthusiasts/"><u>[Updated] Premium Quality Transformer for Video Enthusiasts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/connect-with-us-at-digiarty-pioneering-innovative-solutions-for-the-digital-era/"><u>Connect with Us at DigiArty - Pioneering Innovative Solutions for the Digital Era</u></a></li>
+<li><a href="https://fox-links.techidaily.com/digital-filmmakers-lifeline-mastering-avi-conversions-into-dynamic-gifs-with-filmora-windowsmacos-for-2024/"><u>Digital Filmmakers' Lifeline Mastering AVI Conversions Into Dynamic GIFs with Filmora (Windows/macOS) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-from-novice-to-pro-periscope-stream-mastery/"><u>In 2024, From Novice to Pro Periscope Stream Mastery</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-oppo-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Oppo Phone? Unlock It Now</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/quick-troubleshooting-guide-for-a-smooth-roblox-experience-on-desktop-update-2024/"><u>Quick Troubleshooting Guide for a Smooth Roblox Experience on Desktop - Update 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/your-guide-to-instantaneously-add-closed-captions-to-youtube-clips/"><u>Your Guide to Instantaneously Add Closed Captions to YouTube Clips</u></a></li>
+</ul></div>
 

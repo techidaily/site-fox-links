@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevate Your Audio Mastery with Expert Audacity Usage\""
-date: 2024-09-21T00:11:43.920Z
-updated: 2024-09-21T19:46:29.507Z
+date: 2024-09-27T18:55:58.848Z
+updated: 2024-09-28T21:00:27.775Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -52,6 +59,19 @@ Step2The Soundflower app must then be set up. To achieve this, choose "Sounds" f
 Step3In the "Device" section of the Audacity preferences box, choose "Soundflower (2ch)". From the recording area, choose "Software playthrough." Click "OK" to save the options you've selected.
 
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Export your audio
 
@@ -99,12 +119,16 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/reating-memorable-beginnings-imovie-tips-for-youtube-videos/"><u>[New] Creating Memorable Beginnings IMovie Tips for YouTube Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-digital-decor-best-platforms-and-software-for-photo-frameups/"><u>[Updated] Digital Decor Best Platforms & Software for Photo Frameups</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-gadget-showdown-unlocking-iphone-vs-galaxy-with-facial-scans/"><u>[Updated] In 2024, Gadget Showdown Unlocking iPhone Vs. Galaxy with Facial Scans</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-launching-a-vlog-essential-equipmentapps/"><u>[Updated] Launching a Vlog Essential Equipment/Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-early-bird-shooters-guide-to-cams-of-24/"><u>2024 Approved Early Bird Shooter’s Guide to Cams of '24</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/creative-windows-artistry-free-to-feed-tools-guide/"><u>Creative Windows Artistry - FREE to FEE'd Tools Guide</u></a></li>
+<li><a href="https://win-blog.techidaily.com/improving-gameplay-frame-rates-mastering-tainted-grail-conquest/"><u>Improving Gameplay Frame Rates: Mastering Tainted Grail: Conquest</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-selection-define-your-print-range-in-excel-with-ease/"><u>Mastering Selection: Define Your Print Range in Excel with Ease</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/tutorial-for-switching-the-screen-based-keyboard-feature-in-windows-11/"><u>Tutorial for Switching the Screen-Based Keyboard Feature in Windows 11</u></a></li>
+</ul></div>
 
