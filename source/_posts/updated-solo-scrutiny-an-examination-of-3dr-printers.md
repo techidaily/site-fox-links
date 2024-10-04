@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Solo Scrutiny  An Examination of '3DR' Printers\""
-date: 2024-09-21T19:20:50.982Z
-updated: 2024-09-28T17:40:22.481Z
+date: 2024-09-26T21:23:54.188Z
+updated: 2024-10-03T21:11:22.196Z
 tags: 
   - screen-recording
   - ai video
@@ -54,16 +54,10 @@ thumbnail: https://thmb.techidaily.com/1d9ebf5bb7f01c1686988d2dbf12477c216dfe196
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Complete Review
@@ -86,10 +80,10 @@ thumbnail: https://thmb.techidaily.com/1d9ebf5bb7f01c1686988d2dbf12477c216dfe196
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
@@ -109,10 +103,10 @@ thumbnail: https://thmb.techidaily.com/1d9ebf5bb7f01c1686988d2dbf12477c216dfe196
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
@@ -130,10 +124,10 @@ thumbnail: https://thmb.techidaily.com/1d9ebf5bb7f01c1686988d2dbf12477c216dfe196
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -161,18 +155,16 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-simplify-broadcasting-merge-obs-and-streamlabs-mac/"><u>[New] In 2024, Simplify Broadcasting Merge OBS and Streamlabs (Mac)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-chill-out-with-these-20-country-rhythms-on-tiktok/"><u>[Updated] In 2024, Chill Out with These 20 Country Rhythms on TikTok</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-timeless-trove-of-freely-shared-works/"><u>2024 Approved The Timeless Trove of Freely Shared Works</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-ultimate-showdown-vlc-versus-mpc-in-video-viewing/"><u>2024 Approved The Ultimate Showdown VLC Versus MPC in Video Viewing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-top-budget-friendly-sites-for-stunning-fx-on-videos/"><u>2024 Approved Top Budget-Friendly Sites For Stunning FX on Videos</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-unlock-on-iphone-15-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock On iPhone 15? How to Fix it?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/best-in-class-slideshow-maker-xi-to-x-series-iphones-for-2024/"><u>Best-in-Class Slideshow Maker XI to X Series iPhones for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fix-your-pc-tackling-the-persistent-windows-update-issue-error-0x80070002/"><u>Fix Your PC: Tackling the Persistent Windows Update Issue - Error 0X80070002</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/how-to-overcome-blue-screen-of-death-in-windows-10-after-a-system-update/"><u>How to Overcome Blue Screen of Death in Windows 10 After a System Update</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-on-apple-iphone-xs-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked On Apple iPhone XS?</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721268036836-revolutionizing-memories-discover-how-stellar-is-changing-the-game-with-its-unique-photo-recovery-and-repair-solution/"><u>Revolutionizing Memories: Discover How Stellar Is Changing the Game with Its Unique Photo Recovery & Repair Solution!</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/solved-move-from-itel-a05s-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Itel A05s to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/streamlining-windows-10-file-organization-hacks-max-156/"><u>Streamlining Windows: 10 File Organization Hacks (Max 156)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-accelerate-subscriber-count-on-your-channel/"><u>[New] 2024 Approved How to Accelerate Subscriber Count on Your Channel</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-is-av1-better-than-vp9-learn-it-here/"><u>[Updated] 2024 Approved Is AV1 Better Than VP9? Learn It Here</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-selecting-the-perfect-cam-mic-the-essentials/"><u>[Updated] 2024 Approved Selecting the Perfect Cam Mic, The Essentials</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-trendsetting-images-their-histories/"><u>[Updated] 2024 Approved Trendsetting Images Their Histories</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-effortless-transfer-of-images-to-ios-device/"><u>[Updated] Effortless Transfer of Images to iOS Device</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-photo-cartoony-kick-cross-platform-windows-and-mac-software/"><u>[Updated] In 2024, Photo Cartoony Kick Cross-Platform Windows & Mac Software</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-total-control-guide-powerdirector-user-manual/"><u>2024 Approved Total Control Guide PowerDirector User Manual</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tive-approach-to-swiftly-eliminate-video-comments/"><u>Effective Approach to Swiftly Eliminate Video Comments</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/guia-completa-maximizando-el-espacio-libre-en-su-unidad-de-almacenamiento-digital/"><u>Guía Completa: Maximizando El Espacio Libre en Su Unidad De Almacenamiento Digital</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-5-must-have-live-streaming-addons-for-kodi-enjoy-movies-and-more/"><u>Top 5 Must-Have Live Streaming Addons for Kodi: Enjoy Movies and More</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/1723262392171-top-gamers-choice-for-bargain-hunters-grab-a-powerhouse-pc-at-just-999rtx-4060-and-ultra-fast-ram/"><u>Top Gamers' Choice for Bargain Hunters: Grab a Powerhouse PC at Just $999—RTX 4060 & Ultra-Fast RAM!</u></a></li>
 </ul></div>
 

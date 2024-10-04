@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Take Long Exposure Shots with iPhone in iOS 11 or Previous\""
-date: 2024-09-15T00:46:24.041Z
-updated: 2024-09-22T04:12:33.168Z
+date: 2024-09-30T17:32:47.114Z
+updated: 2024-10-03T17:14:38.815Z
 tags: 
   - screen-recording
   - ai video
@@ -42,11 +42,31 @@ thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb887
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
 
 ![take-live-photo-on-iphone](https://images.wondershare.com/filmora/article-images/take-live-photo-on-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image resource: imore
 
@@ -57,6 +77,13 @@ thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb887
  Image resource: iPhoneMod
 
  Now bring up your live photo within the Photos app and bring up the effects selector. You can see this either by tapping 'details' or by simply swiping up whilst viewing the photo. There are lots of effects you can apply to your live photo, but the one we're looking for here is 'long exposure'. Simply tap this and your clever iPhone will make all the adjustments necessary to produce an awesome pro-looking photograph using long exposure.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Not a user of iOS 11?
 
@@ -77,13 +104,6 @@ thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb887
 
  This feature is one of the most exciting and interesting uses of Live Photos to date, and is well worth checking out if you haven't done so already.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What should you capture with your long exposure iPhone shots?
 
  Long exposure shots are magical, giving a dreamy, almost ethereal quality to everyday situations. No doubt you'll find your own amazing things to shoot, but to get you started, why not try a long exposure iPhone shot of:
@@ -93,10 +113,10 @@ thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb887
 ![flowing-water-long-exposure](https://images.wondershare.com/filmora/article-images/flowing-water-long-exposure.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image resource: Photography Mad
@@ -120,13 +140,6 @@ thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb887
  Image resource: Nikonites
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## To conclude
 
@@ -159,5 +172,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-boosting-youtube-descriptions-with-expert-templates/"><u>[New] Boosting YouTube Descriptions with Expert Templates</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-demystifying-the-srt-to-subcap-process/"><u>[New] Demystifying the SRT to SUBCAP Process</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-crafting-a-unique-identity-step-by-step-audio-customizations-on-android-phones-for-2024/"><u>[Updated] Crafting a Unique Identity Step-by-Step Audio Customizations on Android Phones for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-video-decks-smart-description-templates-for-2024/"><u>[Updated] Elevate Video Decks Smart Description Templates for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-guardianship-against-oculus-induced-discomfort-for-2024/"><u>[Updated] Guardianship Against Oculus-Induced Discomfort for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ideal-choices-our-exclusive-top-10-gopro-case-picks-for-2024/"><u>[Updated] Ideal Choices Our Exclusive Top 10 GoPro Case Picks for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-affordable-high-resolution-monitors-for-pc-and-laptop-games/"><u>2024 Approved Affordable, High-Resolution Monitors for PC & Laptop Games</u></a></li>
+<li><a href="https://fox-links.techidaily.com/cutting-edge-software-transform-and-tweet-videos-for-2024/"><u>Cutting-Edge Software Transform and Tweet Videos for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/experience-increased-output-how-chatgpt-can-revolutionize-your-daily-job-routine/"><u>Experience Increased Output: How ChatGPT Can Revolutionize Your Daily Job Routine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-best-retailers-where-you-can-score-great-deals-on-laptops/"><u>Explore the Best Retailers Where You Can Score Great Deals on Laptops</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-nvidia-quadro-graphics-driver-for-windows-10-quick-and-secure-update-process/"><u>Get the Newest Nvidia Quadro Graphics Driver for Windows 10 – Quick and Secure Update Process</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-vivo-s17-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Vivo S17 Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-oppo-reno-11-5g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Oppo Reno 11 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-personal-evolution-building-an-enduring-youtubing-identity/"><u>In 2024, Personal Evolution Building an Enduring YouTubing Identity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-guide-to-procuring-and-utilizing-free-visual-frame-content/"><u>The Guide to Procuring and Utilizing Free Visual Frame Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-reverse-trick-in-android-filmmaking/"><u>The Reverse Trick in Android Filmmaking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlock-creative-potential-advanced-zooming-on-snapchat/"><u>Unlock Creative Potential Advanced Zooming on Snapchat</u></a></li>
+</ul></div>
 

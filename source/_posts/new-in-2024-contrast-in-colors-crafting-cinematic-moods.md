@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Contrast in Colors  Crafting Cinematic Moods\""
-date: 2024-09-18T16:16:56.261Z
-updated: 2024-09-22T00:54:28.334Z
+date: 2024-09-27T03:29:34.851Z
+updated: 2024-10-03T16:09:48.668Z
 tags: 
   - screen-recording
   - ai video
@@ -69,6 +69,13 @@ Then select the New Project to create a new project file and click Import to fin
 
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
 
 Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar to enter the advanced color tools window, where you can apply the preset templates or adjust the color coarsely. It is suggested to start with Presets for beginners, which will save you much time.
@@ -78,6 +85,13 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
 
@@ -123,6 +137,13 @@ Once you've finished correcting the video color, press Play and go over the whol
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Using the Color Panel Window**
 
 ##### Step1To perform color correction in Filmora, switch to the Color tab
@@ -136,6 +157,13 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -201,12 +229,22 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dominate-search-results-essential-tips-for-optimizing-youtube-videos/"><u>[New] 2024 Approved Dominate Search Results Essential Tips for Optimizing YouTube Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-lightning-fast-windowed-photo-reader-for-win11/"><u>[New] 2024 Approved Lightning-Fast Windowed Photo Reader for Win11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-unlocked-potential-of-new-windows-11/"><u>[New] 2024 Approved The Unlocked Potential of New Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-comprehensive-overview-of-whatsapp-voice-calls/"><u>[New] Comprehensive Overview of WhatsApp Voice Calls</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-elevate-your-drawings-top-artistic-tools-on-chrome-os-for-2024/"><u>[New] Elevate Your Drawings Top Artistic Tools on Chrome OS for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-heart-of-storytelling-engaging-dialogue-in-scripts-for-2024/"><u>[New] The Heart of Storytelling Engaging Dialogue in Scripts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-a-step-by-step-journey-into-professional-gopro-editing-for-2024/"><u>[Updated] A Step-by-Step Journey Into Professional GoPro Editing for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/escape-stuck-screens-expert-fixes-for-far-cry-5s-endless-load-time/"><u>Escape Stuck Screens: Expert Fixes for Far Cry 5'S Endless Load Time</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/fcpx-on-a-budget-top-10-free-plugins-for-video-creators-for-2024/"><u>FCPX on a Budget Top 10 Free Plugins for Video Creators for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/how-to-choose-vr-headset-in-2024-mobile-vr-or-tethered-vr/"><u>How to Choose VR Headset, In 2024 Mobile VR or Tethered VR?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-moto-g34-5g-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Moto G34 5G?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Xiaomi Redmi K70? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-effortless-methods-amp-up-your-yt-video-quality/"><u>In 2024, Effortless Methods Amp Up Your YT Video Quality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-a-wallet-friendly-winner-the-lg-um7300-4k-tv-review/"><u>Unveiling the Potential of a Wallet-Friendly Winner: The LG UM7300 4K TV Review</u></a></li>
+</ul></div>
 

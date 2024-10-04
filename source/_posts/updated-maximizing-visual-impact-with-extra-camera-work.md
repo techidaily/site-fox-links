@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Maximizing Visual Impact with Extra Camera Work"
-date: 2024-09-22T18:05:38.690Z
-updated: 2024-09-28T17:33:52.051Z
+date: 2024-09-28T00:30:04.002Z
+updated: 2024-10-04T05:43:09.181Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,13 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
@@ -61,16 +68,16 @@ Including archival material in your video allows your audience to experience a p
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
@@ -79,10 +86,10 @@ When you are sharing a narrative that has been told in the past or that has hist
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
@@ -92,22 +99,15 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,17 +143,19 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elite-7-cameras-elevating-interactive-learning-vlogs-and-tutorials/"><u>[Updated] 2024 Approved Elite 7 Cameras Elevating Interactive Learning Vlogs & Tutorials</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/10-missing-iphone-x-tips-and-tricks-for-you-to-pick-up-for-2024/"><u>10 Missing iPhone X Tips and Tricks For You to Pick Up for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-system-prerequisites-for-running-big-sur-on-macs/"><u>2024 Approved System Prerequisites for Running Big Sur on Macs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-unveil-the-power-leveraging-windows-11-and-zoom-maximum/"><u>2024 Approved Unveil the Power Leveraging Windows 11 and Zoom Maximum</u></a></li>
-<li><a href="https://fox-links.techidaily.com/21plus-novel-collage-formulas-amplify-your-mood/"><u>21+ Novel Collage Formulas Amplify Your Mood</u></a></li>
-<li><a href="https://fox-links.techidaily.com/a-fresh-perspective-on-sony-blu-ray-s6500-features-for-2024/"><u>A Fresh Perspective on Sony Blu-Ray S6500 Features for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723964474459-enhance-your-pc-with-corsair-elite-6500-and-elite-nano-atx-motherboards-customizable-wood-or-aluminum-accent-panels-included/"><u>Enhance Your PC with Corsair Elite 6500 & Elite Nano ATX Motherboards: Customizable Wood or Aluminum Accent Panels Included</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/leading-converter-youtube-dialogue-to-text-for-2024/"><u>Leading Converter YouTube Dialogue to Text for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/microsofts-top-recommended-audio-driver-software-for-windows-users-download/"><u>Microsoft's Top Recommended Audio Driver Software for Windows Users (Download)</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/transform-your-video-creation-with-winxvideo-ai-the-ultimate-solution-for-capturing-enhancing-and-editing-media/"><u>Transform Your Video Creation with WinxVideo AI - The Ultimate Solution for Capturing, Enhancing, and Editing Media</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-strengths-of-moto-g-power-robust-performance-backed-by-extended-battery-life/"><u>Unveiling the Strengths of Moto G Power: Robust Performance Backed by Extended Battery Life</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-final-cut-pro-x-creating-stunning-titles-for-your-videos-for-2024/"><u>Updated Final Cut Pro X Creating Stunning Titles for Your Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-skip-the-slip-ups-the-8-must-avoid-mistakes-for-new-youtube-stars/"><u>[New] 2024 Approved How to Skip the Slip-Ups The 8 Must-Avoid Mistakes for New YouTube Stars</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-dji-aerial-inventory-standard-drone-premium-model-4k-experts/"><u>[New] In 2024, DJI Aerial Inventory Standard Drone, Premium Model, 4K Experts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-exploring-the-fundamentals-of-av1-encoding/"><u>[Updated] 2024 Approved Exploring the Fundamentals of AV1 Encoding</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-budget-friendly-cloud-pricing-showdown-for-2024/"><u>[Updated] Budget-Friendly Cloud Pricing Showdown for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-next-gen-gaming-horizon-upcoming-bests-in-playstation-vr-for-2024/"><u>[Updated] Next-Gen Gaming Horizon Upcoming Bests in PlayStation VR for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/an-encyclopedia-on-hand-pose-identification-systems/"><u>An Encyclopedia on Hand Pose Identification Systems</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/best-12-hd-video-transcoding-apps-reviewed-for-pc-and-mac-users-movavi/"><u>Best 12 HD Video Transcoding Apps Reviewed for PC and Mac Users [Movavi]</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-digital-growth-spurring-interest-in-physical-commerce-ventures/"><u>Facebook’s Digital Growth Spurring Interest in Physical Commerce Ventures</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ideal-digital-talk-initiator/"><u>Ideal Digital Talk Initiator</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-oppo-a59-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Oppo A59 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-no-output-device-is-installed-error-for-speakers-and-headphones-on-windows-versions-11-8-7/"><u>Solving 'No Output Device Is Installed' Error for Speakers and Headphones on Windows Versions (11, 8, 7)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-solitary-path-to-podcast-popularity/"><u>The Solitary Path to Podcast Popularity</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transforming-commerce-through-api-access-the-power-duo-of-chatgpt-and-whisper-unleashed/"><u>Transforming Commerce Through API Access: The Power Duo of ChatGPT & Whisper Unleashed</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/troubleshooting-techniques-for-escaping-iphones-persistent-data-recovery-loop/"><u>Troubleshooting Techniques for Escaping iPhone’s Persistent ‘Data Recovery’ Loop</u></a></li>
 </ul></div>
 

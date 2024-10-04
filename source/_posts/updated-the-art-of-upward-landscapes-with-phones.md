@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Art of Upward Landscapes with Phones"
-date: 2024-09-16T05:18:16.453Z
-updated: 2024-09-22T04:59:36.889Z
+date: 2024-09-29T23:21:16.761Z
+updated: 2024-10-03T19:06:19.363Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone users
 
  The iPhone users can follow the steps given below to execute vertorama.
@@ -58,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For Android users
 
  To capture vertical panorama on Android, the steps are given just below.
@@ -67,6 +81,13 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
@@ -74,10 +95,10 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
@@ -88,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 * Leaving some space is another beautiful tip especially if you are a graphic designer and want to add some text into the picture. The panorama shot will look perfectly enhanced this way.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -119,5 +133,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-night-shots-pro-tips-for-iphone-enthusiasts/"><u>[New] 2024 Approved Night Shots Pro Tips for iPhone Enthusiasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-pazeras-path-to-sound-freedom-extraction-techniques/"><u>[New] 2024 Approved Pazera's Path to Sound Freedom Extraction Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-avoiding-malware-while-securing-free-and-safe-vlc-download-on-macos/"><u>[New] Avoiding Malware While Securing Free & Safe VLC Download on macOS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-full-inspection-immersing-in-virtual-reality-with-gear-360/"><u>[New] In 2024, Full Inspection Immersing in Virtual Reality with Gear 360</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-unveiling-leading-edge-vr-developers/"><u>[New] In 2024, Unveiling Leading-Edge VR Developers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-key-ingredients-for-successful-instagram-unboxing-reels-for-2024/"><u>[New] The Key Ingredients for Successful Instagram Unboxing Reels for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-step-by-step-guide-to-record-online-video-calls/"><u>[Updated] 2024 Approved Step-by-Step Guide to Record Online Video Calls</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-manipulating-photography-captions-for-2024/"><u>[Updated] Manipulating Photography Captions for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-video-editing-tools-using-images/"><u>2024 Approved Best Video Editing Tools Using Images</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-cast-distribution-license-for-screen-viewing/"><u>2024 Approved Cast Distribution License for Screen Viewing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/clearsky-top-notch-photo-background-cleaner-for-2024/"><u>ClearSky Top-Notch Photo Background Cleaner for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nubia-red-magic-8s-pro-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Nubia Red Magic 8S Pro PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-iphone-11-pro-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 11 Pro When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/prime-platforms-elevating-youtube-success/"><u>Prime Platforms Elevating YouTube Success</u></a></li>
+<li><a href="https://fox-links.techidaily.com/speedster-software-best-rapid-releases-for-tablets-and-computers-for-2024/"><u>Speedster Software - Best Rapid Releases for Tablets & Computers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-hdr-camera-match-up/"><u>The Ultimate HDR Camera Match-Up</u></a></li>
+</ul></div>
 

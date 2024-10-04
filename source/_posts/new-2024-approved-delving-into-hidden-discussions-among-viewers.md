@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Delving Into Hidden Discussions Among Viewers\""
-date: 2024-09-23T16:31:08.370Z
-updated: 2024-09-28T17:33:44.459Z
+date: 2024-09-26T19:13:45.965Z
+updated: 2024-10-04T04:11:32.684Z
 tags: 
   - screen-recording
   - ai video
@@ -35,13 +35,6 @@ People can watch, like, share, comment on, and upload videos using the YouTube s
 * Share, like, and comment on other YouTube videos
 * Users can follow or subscribe to other YouTube channels.
 * To arrange videos and combine them together, make playlists.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Why Use YouTube?
 
@@ -78,10 +71,17 @@ Given how many students have smartphones, video is an excellent medium for conne
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to See Liked Comments on YouTube?
@@ -105,6 +105,13 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Click the **Comments** section.
 
@@ -132,14 +139,14 @@ This article tells you that you can't see who liked or disliked a comment, but y
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Respond to Comments
 
@@ -192,10 +199,17 @@ Additionally, video creators can manually highlight commenters to mark them for 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to See Liked Comments on YouTube?
@@ -216,6 +230,19 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
@@ -228,13 +255,6 @@ Now you will see your comment history, including the date when you commented on 
 
 ![your youtube comments date](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-comments-date.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To see videos/comments you liked or disliked, please follow these steps as continuation:
 
 Step4 In the **Google My Activity** tab, click **Other activity**.
@@ -245,29 +265,22 @@ Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Cl
 
 ![your comment likes and dislikes](https://images.wondershare.com/filmora/article-images/2022/11/your-comment-likes-and-dislikes.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
 ![date likes videos youtube](https://images.wondershare.com/filmora/article-images/2022/11/date-likes-videos-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Respond to Comments
 
@@ -300,13 +313,6 @@ Remember that you can only leave comments on videos that are public (or unlisted
 Because understanding how to comment is only one aspect of the issue; very important is knowing how to comment well. A brand's YouTube remark should provide value beyond simply attempting to sell something.
 
 Try making a joke, pointing out something amusing, providing helpful information, or expressing sympathy or concern for a fan. Additionally, a simple thumbs-up or heart can go a long way to demonstrate that you are paying attention even if you aren't feeling very friendly (we all have bad days, it's OK!).
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Did you know what a Highlighted comment is?
 
@@ -346,22 +352,22 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-unleashing-true-potential-in-speech-interpretation-through-google/"><u>[New] 2024 Approved Unleashing True Potential in Speech Interpretation Through Google</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-leveraging-snap-functions-boosting-virtual-interaction-during-meets/"><u>[New] In 2024, Leveraging Snap Functions Boosting Virtual Interaction During Meets</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-cardboard-contrast-google-to-samsung-gear-headset/"><u>2024 Approved Cardboard Contrast Google to Samsung Gear Headset</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-cheerful-account-creation-handbook/"><u>2024 Approved Cheerful Account Creation Handbook</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-discovering-potential-an-expert-review-of-ion-air-pro-3/"><u>2024 Approved Discovering Potential An Expert Review of ION Air Pro 3</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-how-to-effortlessly-add-realistic-motion-blur-in-ps/"><u>2024 Approved How to Effortlessly Add Realistic Motion Blur in PS</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-innovate-meme-designs-in-adobe-tools/"><u>2024 Approved Innovate Meme Designs in Adobe Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-leaders-shaping-immersive-digital-experiences/"><u>2024 Approved Leaders Shaping Immersive Digital Experiences</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-quirky-creations-your-guide-to-no-cost-memes/"><u>2024 Approved Quirky Creations – Your Guide to No-Cost Memes</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-sonys-pursuit-of-perfection-the-4k-smartphone-experience/"><u>2024 Approved Sony's Pursuit of Perfection The 4K Smartphone Experience</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-swap-periscopes-lens-innovative-video-platforms-for-smartphones/"><u>2024 Approved Swap Periscope's Lens Innovative Video Platforms for Smartphones</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Infinix Zero 5G 2023 Turbo? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-itel-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Itel Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://article-files.techidaily.com/optimal-power-solutions-for-gopro-hero5-official-and-third-party-brands/"><u>Optimal Power Solutions for GoPro Hero5 Official & Third-Party Brands</u></a></li>
-<li><a href="https://driver-download.techidaily.com/quick-and-painless-tips-for-installing-new-updates-on-your-amd-graphics-card/"><u>Quick and Painless Tips for Installing New Updates on Your AMD Graphics Card</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-xiaomi-redmi-a2plus-by-drfone-android/"><u>Three Ways to Sim Unlock Xiaomi Redmi A2+</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-vivo-y27s-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Vivo Y27s to Gmail | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-navigating-the-essentials-of-av1-coders/"><u>[New] 2024 Approved Navigating the Essentials of AV1 Coders</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-creating-a-narrative-structure/"><u>[New] Creating a Narrative Structure</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-cutting-edge-imaging-top-8k-cameras-unveiled-for-2024/"><u>[New] Cutting-Edge Imaging Top 8K Cameras Unveiled for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-pinnacle-of-picture-perfection-top-10-screens/"><u>[New] In 2024, Pinnacle of Picture Perfection Top 10 Screens</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-record-presentation-for-digital-projection/"><u>[New] Record Presentation for Digital Projection</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-shifting-screenshots-from-tif-to-common-formats-mac/"><u>[New] Shifting Screenshots From .tif to Common Formats (Mac)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-streamline-your-video-workflow-youtube-to-mpeg-essentials/"><u>[New] Streamline Your Video Workflow YouTube-to-MPEG Essentials</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-iphone-photography-fundamentals-the-essential-10-arrangement-rules/"><u>[Updated] In 2024, IPhone Photography Fundamentals The Essential 10 Arrangement Rules</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-playlist-pilgrimage-seamless-music-service-journeying/"><u>[Updated] In 2024, Playlist Pilgrimage Seamless Music Service Journeying</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-real-world-usability-of-photoshops-motion-reduction/"><u>[Updated] In 2024, The Real-World Usability of Photoshop’s Motion Reduction</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-reno-11-pro-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo Reno 11 Pro 5G Location by Number | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/inject-audio-harmony-to-premiere-pro-videos/"><u>Inject Audio Harmony to Premiere Pro Videos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/james-bond-film-series-viewing-guide-the-ultimate-watching-sequence/"><u>James Bond Film Series Viewing Guide: The Ultimate Watching Sequence</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/mfc-9330cdw-fan-bro-free-drive-setup/"><u>MFC-9330CDW Fan Bro: Free Drive Setup</u></a></li>
+<li><a href="https://windows11.techidaily.com/tips-and-tricks-enhance-gaming-experience-on-windows/"><u>Tips & Tricks: Enhance Gaming Experience on Windows</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/4-dvdps4/"><u>プレステ4 DVDファイルをPS4へ簡単に転送する方法</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Seamlessly Bring Back Windows Photo Viewer in Win 11 Systems"
-date: 2024-09-22T19:58:55.208Z
-updated: 2024-09-28T17:07:54.808Z
+date: 2024-09-26T16:55:50.315Z
+updated: 2024-10-03T23:55:36.556Z
 tags: 
   - screen-recording
   - ai video
@@ -70,16 +70,16 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -96,22 +96,15 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -119,19 +112,20 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -159,17 +153,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-push-boundaries-top-windows-10-innovations-in-games-and-apps/"><u>[New] 2024 Approved Push Boundaries Top Windows 10 Innovations in Games and Apps</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-overcome-unseen-blanks-in-game-transmission/"><u>[Updated] 2024 Approved Overcome Unseen Blanks in Game Transmission</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-elevate-your-driving-pleasure-with-essential-sj4000-gear/"><u>[Updated] Elevate Your Driving Pleasure with Essential SJ4000 Gear</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-capturing-radiance-advanced-techniques-in-ps-hdr/"><u>2024 Approved Capturing Radiance Advanced Techniques in PS HDR</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/expert-tips-to-fix-the-notorious-syntpsys-blue-screen-of-death-in-windows-os/"><u>Expert Tips to Fix the Notorious SYNTP.SYS Blue Screen of Death in Windows OS</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/free-online-converter-change-audio-pcm-format-to-mp3-with-justofmp/"><u>Free Online Converter: Change Audio-PCM Format to MP3 with JustoFMP</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-poco-c50-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Poco C50</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-inverting-media-flow-apple-device-technique/"><u>In 2024, Inverting Media Flow Apple Device Technique</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-mastering-avi-to-gif-conversion-windows-and-mac-edition-using-filmora/"><u>In 2024, Mastering AVI-to-GIF Conversion Windows & Mac Edition Using Filmora</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/integrating-audio-files-into-flipbooks-a-guide-with-flipbuilders-features/"><u>Integrating Audio Files Into Flipbooks: A Guide with FlipBuilder's Features</u></a></li>
-<li><a href="https://techidaily.com/whats-new-improved-clipboard-tools-and-graphics-program-for-windows-11-users/"><u>What's New? Improved Clipboard Tools and Graphics Program for Windows 11 Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-best-free-count-down-timers/"><u>[New] Best Free Count Down Timers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-capture-creativity-with-smartphones-best-apps/"><u>[New] In 2024, Capture Creativity with Smartphones' Best Apps</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-relaxed-rhythms-essential-20-country-tracks-to-dance-away-stress-tiktok-for-2024/"><u>[New] Relaxed Rhythms Essential 20 Country Tracks to Dance Away Stress (TikTok) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-immersive-chronicles-virtual-realitys-history/"><u>[Updated] 2024 Approved Immersive Chronicles Virtual Reality's History</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-premier-slow-mo-video-and-photography-apps-iosandroid-devices/"><u>[Updated] Premier Slow Mo Video & Photography Apps iOS/Android Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unveiling-canvas-power-10-pro-editor-techniques-for-2024/"><u>[Updated] Unveiling Canva's Power 10 Pro Editor Techniques for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/converting-literature-to-gamification-with-ai-the-ultimate-guide-to-turning-sherlock-holmes-stories-into-games-using-chatgpt/"><u>Converting Literature to Gamification with AI: The Ultimate Guide to Turning Sherlock Holmes Stories Into Games Using ChatGPT</u></a></li>
+<li><a href="https://blog-min.techidaily.com/create-interactive-music-games-with-effects-on-windows-and-macos/"><u>Create Interactive Music Games with Effects on Windows & macOS</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/dealing-with-frequent-crashes-of-the-medium-app-in-pc-browsers/"><u>Dealing with Frequent Crashes of the Medium App in PC Browsers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-expert-gopro-editor-software-for-smartphone-users/"><u>In 2024, Expert GoPro Editor Software for Smartphone Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-magix-acid-pro-unveiled-and-options-examined/"><u>In 2024, Magix ACID Pro Unveiled & Options Examined</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-top-5-free-screen-recorders-on-windows-11-2023-update/"><u>In 2024, Top 5 Free Screen Recorders on Windows 11-2023 Update</u></a></li>
+<li><a href="https://fox-links.techidaily.com/next-gen-virtual-reality-top-8-metaverse-tech-for-2024/"><u>Next-Gen Virtual Reality Top 8 Metaverse Tech for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/seamless-access-to-distant-linux-machine-files-made-simple/"><u>Seamless Access to Distant Linux Machine Files Made Simple</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/writing-wonders-how-to-triumph-over-machine-penning/"><u>Writing Wonders: How to Triumph Over Machine Penning</u></a></li>
 </ul></div>
 
