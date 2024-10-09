@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Simplify Video Annotation  Adding Titles & Captions via Photos Win 11\""
-date: 2024-09-17T05:10:23.802Z
-updated: 2024-09-21T20:11:01.952Z
+date: 2024-10-03T21:19:25.233Z
+updated: 2024-10-08T17:04:36.910Z
 tags: 
   - screen-recording
   - ai video
@@ -67,6 +67,19 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -77,13 +90,40 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -108,12 +148,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-discovering-toolwizs-potentials-in-digital-photography-editing/"><u>[New] Discovering Toolwiz's Potentials in Digital Photography Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-elite-list-10-websites-with-superior-vectors/"><u>[New] In 2024, The Elite List 10 Websites with Superior Vectors</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-screen-streaming-showdown-whos-the-champion-obs-or-shadowgl/"><u>[Updated] 2024 Approved Screen Streaming Showdown Who's the Champion? OBS or ShadowGL?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-a-journey-through-time-best-history-youtubes-for-scholars-and-enthusiasts/"><u>[Updated] A Journey Through Time Best History YouTubes for Scholars & Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-capture-stillness-on-the-go-without-tripods/"><u>[Updated] Capture Stillness on the Go without Tripods</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-get-more-views-with-the-best-youtube-thumbnail-ideas/"><u>[Updated] In 2024, Get More Views with the Best YouTube Thumbnail Ideas</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-ultimate-guide-to-crafting-compelling-and-credible-documentary-scripts/"><u>[Updated] In 2024, The Ultimate Guide to Crafting Compelling and Credible Documentary Scripts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-epicmosaic-insta-video-fusion-for-iosandroid/"><u>2024 Approved EpicMosaic Insta Video Fusion for iOS/Android</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-meme-ing-in-virtual-space-top-funny-vr-imagery-and-how-to-make-it/"><u>2024 Approved Meme-Ing in Virtual Space Top Funny VR Imagery and How to Make It</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-rapid-method-converting-images-into-desktop-thumbnails-for-youtube/"><u>2024 Approved Rapid Method Converting Images Into Desktop Thumbnails for YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-to-show-or-not-to-display-off-facebook-activities/"><u>2024 Approved To Show or Not to Display Off-Facebook Activities</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unlocking-potential-advanced-tactics-for-spotify-ads/"><u>2024 Approved Unlocking Potential Advanced Tactics for Spotify Ads</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/navigating-audacitys-volume-dissipation-features-for-2024/"><u>Navigating Audacity's Volume Dissipation Features for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/step-up-your-content-game-top-30-video-plans/"><u>Step Up Your Content Game Top 30 Video Plans</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transforming-skincare-secrets-into-social-stardom/"><u>Transforming Skincare Secrets Into Social Stardom</u></a></li>
+</ul></div>
 

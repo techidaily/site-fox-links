@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Quickest Quads  2022 Olympics Skate\""
-date: 2024-09-20T18:42:53.530Z
-updated: 2024-09-22T00:28:08.618Z
+date: 2024-10-05T02:38:21.276Z
+updated: 2024-10-09T08:17:11.027Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,19 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
@@ -57,6 +70,13 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
@@ -64,6 +84,13 @@ The last leg of competition among skaters before reaching the finishing line at 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -78,6 +105,13 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -97,13 +131,6 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -115,10 +142,10 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -142,5 +169,23 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-complete-breakdown-dji-inspire-1-explored/"><u>[New] 2024 Approved Complete Breakdown DJI Inspire 1 Explored</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-how-to-transfer-videos-and-photos-from-a-pc-to-an-iphone/"><u>[New] 2024 Approved How to Transfer Videos and Photos From a PC to an iPhone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-20-quick-video-concepts-for-aspiring-vloggers/"><u>[Updated] 20 Quick Video Concepts for Aspiring Vloggers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-compliance-with-standards/"><u>[Updated] 2024 Approved Compliance with Standards</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-cutting-edge-live-upgrades-the-top-9-webcam-filter-guide/"><u>[Updated] 2024 Approved Cutting-Edge Live Upgrades The Top 9 Webcam Filter Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-sensational-jokes-ranking-the-viral-ones/"><u>[Updated] 2024 Approved Sensational Jokes Ranking the Viral Ones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-steps-for-initiating-a-social-media-charity-drive/"><u>[Updated] 2024 Approved Steps for Initiating a Social Media Charity Drive</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-avatar-makeover-building-your-cartoon-personality/"><u>[Updated] Avatar Makeover Building Your Cartoon Personality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-capture-words-use-at-zero-expense/"><u>[Updated] Capture Words, Use at Zero Expense</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unraveling-top-hdr-camera-brands-and-features/"><u>[Updated] Unraveling Top HDR Camera Brands and Features</u></a></li>
+<li><a href="https://article-helps.techidaily.com/high-ranked-choices-ideal-online-spots-for-grab-snapchat-ringtone/"><u>High-Ranked Choices Ideal Online Spots for Grab Snapchat Ringtone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-perfect-accompaniments-for-your-sj4000-journey/"><u>In 2024, Perfect Accompaniments for Your SJ4000 Journey</u></a></li>
+<li><a href="https://games-able.techidaily.com/joystick-or-trackpad-optimal-device-for-car-simulation/"><u>Joystick or Trackpad: Optimal Device for Car Simulation?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/step-up-your-sj4000-game-with-these-accessories-for-2024/"><u>Step Up Your SJ4000 Game with These Accessories for 2024</u></a></li>
+<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-samsung-galaxy-m34-5g-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Samsung Galaxy M34 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-vibrance-the-dynamics-of-dialogue-in-pick-up-lines/"><u>Verbal Vibrance: The Dynamics of Dialogue in Pick-Up Lines</u></a></li>
+</ul></div>
 

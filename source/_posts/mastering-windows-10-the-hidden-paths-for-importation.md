@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Windows 10  The Hidden Paths for Importation\""
-date: 2024-09-20T02:10:05.327Z
-updated: 2024-09-21T21:03:06.846Z
+date: 2024-10-02T00:12:32.494Z
+updated: 2024-10-08T22:19:15.554Z
 tags: 
   - screen-recording
   - ai video
@@ -40,22 +40,29 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 
 ## Part 1: Import Photos and Video from a Phone
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1: Connecting Your Phone
 
 If you are moving photos and video to Windows 10 from a smartphone, you will first have to connect your phone to the computer. It can be done through the USB cable that you should have received with the smartphone. Plug one end of the cable into your phone and the other into the USB port of your desktop or laptop.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 3: Import Photos and Videos
 
@@ -70,16 +77,10 @@ Your computer will tell you how many pictures and photos were found. You can eit
 The great thing about reviewing the photos and videos before importing them onto your computer is that you can choose folders for different files, name those folders and ensure that you are only importing files that are not on your system already.
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Start Importing in Photos App
@@ -93,15 +94,22 @@ Click the Import button on the Photos app and choose the items that you want to 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Troubleshooting the Phone to PC Connection
 
@@ -112,13 +120,6 @@ The first thing to check is whether your USB port works. Try connecting some oth
 As mentioned above, you must ensure that you have enabled media and file transfers in the USB settings when you connect your phone to the computer. It is the only way that your computer has permission to access the files on your smartphone.
 
 If you have an iPhone, ensure that your device is unlocked. You will get a “Trust this device” prompt and you must accept it. And if your photos are saved directly to iCloud and not your iPhone, you will need to complete a transfer from iCloud, which you can do by visiting the website or using the relevant desktop app.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Import Photos and Video from a Camera
 
@@ -157,5 +158,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-mastering-the-art-of-fb-instream-ad-configurations-a-step-by-step-approach/"><u>[New] 2024 Approved Mastering the Art of FB Instream Ad Configurations A Step-by-Step Approach</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-azure-speech-to-text-a-quick-overview-for-developers/"><u>[New] Azure Speech-to-Text A Quick Overview for Developers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-mastering-reddit-posts-a-stepwise-strategy-for-engagement/"><u>[New] In 2024, Mastering Reddit Posts A Stepwise Strategy for Engagement</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-tomtoms-advanced-adventure-cameras-review-2023-edition/"><u>[New] In 2024, TomTom’s Advanced Adventure Cameras Review - 2023 Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-is-it-possible-to-quick-review-on-windows-heres-how/"><u>[New] Is It Possible to Quick Review on Windows? Here’s How</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-ultimate-tv-streaming-guide-international-and-regional-channels/"><u>[New] Ultimate TV Streaming Guide International & Regional Channels</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-navigating-the-best-online-tools-for-vhs-photo-upgrading/"><u>[Updated] 2024 Approved Navigating the Best Online Tools for VHS Photo Upgrading</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-electric-vehicles-outshine-gas-guzzlers-in-terms-of-efficiency-and-power-the-reasons-behind-it/"><u>How Electric Vehicles Outshine Gas Guzzlers in Terms of Efficiency and Power - The Reasons Behind It</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-successfully-overcome-a-failed-hcmond-driver-setup/"><u>How to Successfully Overcome a Failed Hcmond Driver Setup</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-comprehensive-guide-to-top-5-free-windows-screen-recorders/"><u>In 2024, Comprehensive Guide to Top 5 Free Windows Screen Recorders</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-creating-characters-in-the-metaverse-an-easy-methodology/"><u>In 2024, Creating Characters in the Metaverse An Easy Methodology</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-precision-zoom-youtube-video-expansion/"><u>In 2024, Precision Zoom YouTube Video Expansion</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/solving-iphone-xs-trust-issues-fixing-facial-detection-glitches-for-2024/"><u>Solving iPhone X's Trust Issues Fixing Facial Detection Glitches for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-premier-intro-list-for-panzoids-for-2024/"><u>The Premier Intro List for Panzoids for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unveiling-inauthentic-accounts-on-brand-pages-for-2024/"><u>Unveiling Inauthentic Accounts on Brand Pages for 2024</u></a></li>
+</ul></div>
 

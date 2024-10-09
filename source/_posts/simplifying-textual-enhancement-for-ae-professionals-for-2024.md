@@ -1,7 +1,7 @@
 ---
 title: "Simplifying Textual Enhancement for AE Professionals for 2024"
-date: 2024-09-28T01:59:25.020Z
-updated: 2024-10-03T21:06:16.075Z
+date: 2024-10-07T22:27:02.920Z
+updated: 2024-10-09T08:50:27.453Z
 tags: 
   - screen-recording
   - ai video
@@ -49,10 +49,10 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. Types of Fonts in After Effects
@@ -70,10 +70,16 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
@@ -104,10 +110,10 @@ These features also include adding texts and changing the fonts of those texts o
 * After you are done, click "save" and the text effects will be added to your videos successfully.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -121,10 +127,10 @@ These features also include adding texts and changing the fonts of those texts o
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
@@ -166,21 +172,20 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-expert-guide-to-progressive-volume-reduction-with-logic-pro/"><u>[New] In 2024, Expert Guide to Progressive Volume Reduction with Logic Pro</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-the-complete-walkthrough-to-emoji-enriched-discord-statuses/"><u>[New] The Complete Walkthrough to Emoji-Enriched Discord Statuses</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-gamegazers-graphic-guide/"><u>[Updated] GameGazer's Graphic Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-navigating-gif-storage-and-use-in-the-digital-age-iphone/"><u>[Updated] In 2024, Navigating GIF Storage and Use in the Digital Age (iPhone)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-perfect-your-streamline-setup-unleashing-the-full-potential-of-floating-window-feature/"><u>[Updated] In 2024, Perfect Your Streamline Setup Unleashing the Full Potential of Floating Window Feature</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-21-edition-exploration-mastering-vegas-pro-for-gambling/"><u>2024 Approved '21 Edition Exploration – Mastering Vegas Pro for Gambling</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-intuitive-audio-fading-strategies-with-garageband/"><u>2024 Approved Intuitive Audio Fading Strategies with Garageband</u></a></li>
-<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-samsung-galaxy-f54-5g-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Samsung Galaxy F54 5G | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-tcl-32s325-roku-smart-led-tv-2019-a-blend-of-intelligence-and-design/"><u>Comprehensive TCL 32S325 Roku Smart LED TV (2019): A Blend of Intelligence and Design</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-tecno-phantom-v-flip-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from Tecno Phantom V Flip?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-4k-resolution-unveiled-in-chroma-focused-lenses/"><u>In 2024, 4K Resolution Unveiled in Chroma-Focused Lenses</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-xr-drfone-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/insiders-guide-to-the-best-6-harnesses-for-capturing-life-with-gopro/"><u>Insider's Guide to the Best 6 Harnesses for Capturing Life with GOPRO</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-how-to-for-finding-freely-available-pictorial-frames/"><u>The How-To for Finding Freely Available Pictorial Frames</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unveiling-roku-express-and-stick-comparison-key-distinctions-explained/"><u>Unveiling Roku Express and Stick Comparison: Key Distinctions Explained</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-pushing-perception-analyzing-the-dreamcolors-z32x-4k/"><u>[New] In 2024, Pushing Perception Analyzing the DreamColor's Z32X 4K</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-shorts-earnings-guide-must-knows-and-future-potential/"><u>[New] Youtube Shorts Earnings Guide Must-Knows & Future Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minute-moments-make-mastering-slovak-a-reality/"><u>10-Minute Moments Make Mastering Slovak a Reality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-a-step-by-step-guide-to-perfecting-the-art-of-podcast-naming/"><u>2024 Approved A Step-by-Step Guide to Perfecting the Art of Podcast Naming</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-bend-the-norm-innovative-text-transformation-techniques/"><u>2024 Approved Bend the Norm Innovative Text Transformation Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-classroom-vids-essential-editing-strategies/"><u>2024 Approved Classroom Vids Essential Editing Strategies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-explore-virtual-realms-with-top-gadgets-and-peripherals/"><u>2024 Approved Explore Virtual Realms with Top Gadgets and Peripherals</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-narakeet-review-text-to-speech-convenient-voice-maker/"><u>2024 Approved Narakeet Review Text to Speech Convenient Voice Maker</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-painless-audio-progression-the-unobtrusive-way/"><u>2024 Approved Painless Audio Progression The Unobtrusive Way</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-perfected-pixel-panache-packages/"><u>2024 Approved Perfected Pixel Panache Packages</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-showcase-spaces-perfect-live-stream-flair/"><u>2024 Approved Showcase Spaces Perfect Live Stream Flair</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fix-displayport-no-signal-easily/"><u>Fix DisplayPort No Signal Easily</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-essential-call-customization-applications-ranked/"><u>In 2024, Essential Call Customization Applications Ranked</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-full-guide-to-apple-iphone-14-plus-icloud-bypass-by-drfone-ios/"><u>In 2024, Full guide to Apple iPhone 14 Plus iCloud Bypass</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-oneplus-ace-3-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 OnePlus Ace 3 Bypass FRP Tools for PC That Actually Work</u></a></li>
 </ul></div>
 

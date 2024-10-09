@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Diverting Photographs  Extracting Scenes as Stills in Photos App\""
-date: 2024-09-17T18:38:16.782Z
-updated: 2024-09-22T02:23:36.617Z
+date: 2024-10-03T04:14:33.792Z
+updated: 2024-10-09T11:56:16.122Z
 tags: 
   - screen-recording
   - ai video
@@ -63,26 +63,40 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
 
 We are explaining the solutions here –
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -96,15 +110,21 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,5 +155,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-cinematic-sequence-best-video-cameras-for-extended-slow-motion/"><u>[New] Cinematic Sequence Best Video Cameras for Extended Slow Motion</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-cutting-edge-solutions-for-webmicrone-capture-with-these-9-tools-23/"><u>[New] Cutting-Edge Solutions for Webmicrone Capture with These 9 Tools ('23)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-flv-video-unification-techniques/"><u>[New] In 2024, FLV Video Unification Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-visualize-success-innovative-video-ideas-countdown/"><u>[New] In 2024, Visualize Success Innovative Video Ideas Countdown</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-sculpt-satirical-scenes-with-giphy/"><u>[New] Sculpt Satirical Scenes with Giphy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-elevate-your-stream-with-these-9-premium-filter-choices/"><u>[Updated] 2024 Approved Elevate Your Stream with These 9 Premium Filter Choices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-elite-visualsai-cutting-edge-photo-transformations-for-2024/"><u>[Updated] Elite VisualsAI Cutting-Edge Photo Transformations for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-professionals-choice-best-top-10-4k-monitors/"><u>[Updated] In 2024, Professional's Choice Best Top 10 4K Monitors</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-melodic-moments-to-augment-your-status/"><u>[Updated] Melodic Moments to Augment Your Status</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-uncovering-expert-video-making-talents/"><u>[Updated] Uncovering Expert Video Making Talents</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fixing-the-missing-d3dx927dll-error-on-your-pc-easily/"><u>Fixing The Missing d3dx9_27.dll Error on Your PC Easily</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-honor-90-gt-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Honor 90 GT Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://article-posts.techidaily.com/humor-haven-memes-for-iphones/"><u>Humor Haven Memes for iPhones</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/master-money-making-the-top-13-reddit-strategies-no-experience/"><u>Master Money Making The Top 13 Reddit Strategies (No Experience)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/title-transformations-beyond-standard-styles/"><u>Title Transformations Beyond Standard Styles</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-unleash-the-power-of-video-metadata-on-mac-8-editor-recommendations/"><u>Updated 2024 Approved Unleash the Power of Video Metadata on Mac 8 Editor Recommendations</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+</ul></div>
 

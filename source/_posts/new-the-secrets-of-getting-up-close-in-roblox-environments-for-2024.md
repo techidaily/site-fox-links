@@ -1,7 +1,7 @@
 ---
 title: "[New] The Secrets of Getting Up Close in Roblox Environments for 2024"
-date: 2024-09-17T16:26:00.310Z
-updated: 2024-09-21T17:57:00.207Z
+date: 2024-10-06T05:14:26.602Z
+updated: 2024-10-09T09:01:34.438Z
 tags: 
   - screen-recording
   - ai video
@@ -73,9 +73,23 @@ Step1There is a simple and convenient technique to manage the zoom while playing
 
 ![push r3 button ontroller](https://images.wondershare.com/filmora/article-images/2022/07/push-r3-button-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2Zoom in by pressing forward on the right thumbstick that has been clicked down.
 
 ![press forward right thumbstick](https://images.wondershare.com/filmora/article-images/2022/07/press-forward-right-thumbstick.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3Pull rearward on the clicked-down right thumbstick to zoom out. The same joystick (right) must constantly be pulled rearward to zoom out.
 
@@ -90,10 +104,10 @@ Step1Open the Roblox app, sign in, and then start a test gaming session. The fir
 ![zoom in roblox teblet](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-roblox-teblet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2To zoom, just use two fingers and slide them apart (for zooming in) or together (for zooming out) like you would to do so on a smartphone (zoom out).
@@ -107,10 +121,16 @@ Step4The camera angle and/or your character will only move if one of your finger
 ![zoom character on roblox](https://images.wondershare.com/filmora/article-images/2022/07/zoom-character-on-roblox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -145,5 +165,21 @@ You may wish to change your viewpoint when playing games on Roblox, the most cut
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-empowering-visual-communication-integrating-s2t-into-your-powerpoint/"><u>[New] In 2024, Empowering Visual Communication Integrating S2T Into Your Powerpoint</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-precision-in-premiere-4-proven-strategies-to-elevate-iphone-hdri/"><u>[New] Precision in Premiere 4 Proven Strategies to Elevate iPhone HDRI</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-virtual-worlds-practical-applications-for-2024/"><u>[New] Virtual World's Practical Applications for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-face-off-frenzy-legendary-sj6-vs-xiaomis-four-k-creators-for-2024/"><u>[Updated] Face-Off Frenzy Legendary SJ6 Vs. Xiaomi's Four-K Creators for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ideas-that-make-your-meme-go-global/"><u>[Updated] Ideas That Make Your Meme Go Global</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-art-of-iphone-photography-mastering-image-cropping/"><u>[Updated] In 2024, The Art of iPhone Photography Mastering Image Cropping</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-auditory-aesthetics-choosing-the-right-soundtracks-for-boxings/"><u>2024 Approved Auditory Aesthetics Choosing the Right Soundtracks for Boxings</u></a></li>
+<li><a href="https://windows11.techidaily.com/best-budget-friendly-options-for-adobe-photoshop-and-illustrator-on-windows-systems/"><u>Best Budget-Friendly Options for Adobe Photoshop and Illustrator on Windows Systems</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/expert-video-tutorial-on-enhancing-mac-privacy-with-disk-encryption-and-recovery-procedures/"><u>Expert Video Tutorial on Enhancing Mac Privacy with Disk Encryption & Recovery Procedures</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-get-animated-10-best-free-whiteboard-animation-software-for-windows-and-mac/"><u>In 2024, Get Animated 10 Best Free Whiteboard Animation Software for Windows and Mac</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-messages-from-apple-iphone-8-plus-to-other-iphone-all-ios-versions-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How To Transfer Messages From Apple iPhone 8 Plus to other iPhone All iOS Versions | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-in-this-article-we-will-introduce-you-videopad-video-editor/"><u>Updated 2024 Approved In This Article, We Will Introduce You Videopad Video Editor</u></a></li>
+</ul></div>
 

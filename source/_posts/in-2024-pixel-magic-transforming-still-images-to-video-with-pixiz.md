@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Pixel Magic  Transforming Still Images to Video with Pixiz\""
-date: 2024-09-29T19:18:10.516Z
-updated: 2024-10-03T17:50:10.083Z
+date: 2024-10-06T23:08:22.688Z
+updated: 2024-10-09T10:57:48.141Z
 tags: 
   - screen-recording
   - ai video
@@ -61,13 +61,6 @@ Step2Now select any slideshow template by clicking on it.
 
 ![click on slideshow template](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3Click on the select photo option and choose a photo.
 
 ![choose a photo](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-3.jpg)
@@ -76,9 +69,23 @@ Step4You can add more photos, in the same way, one by one (till the maximum numb
 
 ![click on go button](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5Now click on download and then save. Your photo video will be saved in GIF format.
 
 ![click on download and save](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. The best software for creating slideshows - [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -89,13 +96,6 @@ The powerful video editing program Filmora is offered by Wondershare. It offers 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How do you make photo videos using Filmora?
 
@@ -109,13 +109,6 @@ Step3**Import** photos by **clicking** (import media) and then drag and drop the
 
 ![import photos](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 **Double-click the photo** to open options to make your photos fit the screen (in case there is a gap on the sides). A new box will appear. Under the primary option, click the **transform tab**. You can **increase** the **scale** option to make the photo fit.
 
 ![option to make the photo fit](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-8.jpg)
@@ -125,10 +118,10 @@ Step5**Click** on the **Title** option in the top right and select the **title t
 ![click on the title](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step6**Double click the text** to open the box for **making edits in text**, font, color, and other options.
@@ -139,13 +132,6 @@ Step7Let's add some music. **Click** the **audio tab** at the top right. Now **c
 
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step8You can **double-click** the music to open the **settings box** and make changes.
 
 ![change music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-12.jpg)
@@ -155,10 +141,10 @@ Step9To make your slideshow more appealing, you can also add transitions or effe
 ![add transitions or effects](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-13.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step10After finishing all the editing, you can export your creation to any format you want.
@@ -166,16 +152,10 @@ Step10After finishing all the editing, you can export your creation to any forma
 ![export creation to any format](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-14.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -196,6 +176,13 @@ Step2Now **open** **Filmora** and **click** **new project**.
 
 ![open filmora](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3**Import** photos by **clicking** (import media) and then drag and drop them.
 
 ![import photos](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-7.jpg)
@@ -203,6 +190,13 @@ Step3**Import** photos by **clicking** (import media) and then drag and drop the
 Step4 **Double-click the photo** to open options to make your photos fit the screen (in case there is a gap on the sides). A new box will appear. Under the primary option, click the **transform tab**. You can **increase** the **scale** option to make the photo fit.
 
 ![option to make the photo fit](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5**Click** on the **Title** option in the top right and select the **title template**. **Drag and drop** the **title template** at the point of the video you want it to appear.
 
@@ -213,10 +207,10 @@ Step6**Double click the text** to open the box for **making edits in text**, fon
 ![double click on the text box](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step7Let's add some music. **Click** the **audio tab** at the top right. Now **choose** some **music** and then **drag and drop** to add.
@@ -267,24 +261,22 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-easy-access-to-legal-gamers-tunes/"><u>[Updated] 2024 Approved Easy Access to Legal Gamers' Tunes</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-bridging-the-gap-in-vr-storytelling-and-innovation/"><u>[Updated] In 2024, Bridging the Gap in VR Storytelling and Innovation</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-unveiling-the-wonders-mastering-firefox-x-pie-mode/"><u>[Updated] In 2024, Unveiling the Wonders Mastering Firefox X-Pie Mode</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-maximizing-meeting-visibility-in-microsoft-teams-for-2024/"><u>[Updated] Maximizing Meeting Visibility in Microsoft Teams for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-sculpted-scenes-incor-written-in-156-characters-or-less-each-title-is-tailored-to-guide-users-through-the-process-of-adding-fade-in-and-fade-out-eff/"><u>[Updated] Sculpted Scenes Incor Written in 156 Characters or Less, Each Title Is Tailored to Guide Users Through the Process of Adding Fade-In and Fade-Out Effects Using Adobe Premiere Pro without Exceeding the Specified Character Limit for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/advanced-tips-for-blending-modes-in-vfx/"><u>Advanced Tips for Blending Modes in VFX</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/bring-the-beat-home-add-songs-to-your-inshot-app-for-2024/"><u>Bring the Beat Home Add Songs to Your InShot App for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/drive-your-site-traffic-with-the-power-of-cookiebot-technology/"><u>Drive Your Site Traffic with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-get-the-most-recent-hp-laserjet-m514-driver-update-for-optimal-performance/"><u>How to Get the Most Recent HP LaserJet M514 Driver Update for Optimal Performance</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-exploring-the-distinctions-of-srgb-and-rgb/"><u>In 2024, Exploring the Distinctions of Srgb and Rgb</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-mastering-the-art-of-system-enhancements/"><u>In 2024, Mastering the Art of System Enhancements</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-the-definitive-guide-to-audio-interfaces-in-podcasting/"><u>In 2024, The Definitive Guide to Audio Interfaces in Podcasting</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-top-phones-that-seamlessly-integrate-with-the-latest-gear-vr/"><u>In 2024, Top Phones That Seamlessly Integrate with the Latest Gear VR</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Samsung Galaxy M34 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/macx-dvd-ripper-pro-authentifizierungsschlussel-fur-den-gesamten-offiziellen-vertrieb-erwerben-sie-ihre-seriennummer-2021/"><u>MacX DVD Ripper Pro: Authentifizierungsschlüssel Für Den Gesamten Offiziellen Vertrieb - Erwerben Sie Ihre Seriennummer 2021</u></a></li>
-<li><a href="https://win11.techidaily.com/uniting-consciousness-effects-of-meditation-on-thinking-and-feeling/"><u>Uniting Consciousness: Effects of Meditation on Thinking & Feeling</u></a></li>
-<li><a href="https://fox-links.techidaily.com/unlocking-the-full-screen-potential-of-premiere-pro-for-2024/"><u>Unlocking the Full Screen Potential of Premiere Pro for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-the-ultimate-list-of-sources-for-professional-whoosh-effects-for-2024/"><u>Updated The Ultimate List of Sources for Professional Whoosh Effects for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/will-gpt-challenge-se-dominance/"><u>Will GPT Challenge SE Dominance?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-simplified-path-to-viewing-popular-youtube-comments/"><u>[New] 2024 Approved Simplified Path to Viewing Popular YouTube Comments</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-unveiling-the-leading-8-open-source-business-meeting-solutions/"><u>[New] In 2024, Unveiling the Leading 8 Open-Source Business Meeting Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-maximizing-roi-with-targeted-market-research-strategies/"><u>[New] Maximizing ROI with Targeted Market Research Strategies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-right-time-to-invest-in-your-next-4k-lens/"><u>[New] The Right Time to Invest in Your Next 4K Lens</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-dimensions-and-edits-the-imovie-crop-enigma/"><u>[Updated] 2024 Approved Dimensions and Edits The iMovie Crop Enigma</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-introduce-movement-variance-to-pixels-in-ps/"><u>[Updated] In 2024, Introduce Movement Variance to Pixels in PS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-virtual-trips-unveiled-top-10-iphoneandroid-apps/"><u>[Updated] In 2024, Virtual Trips Unveiled Top 10 iPhone/Android Apps</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-unveiling-the-5-premier-android-ps2-emulation-tools-for-2024/"><u>[Updated] Unveiling the 5 Premier Android PS2 Emulation Tools for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/cutting-edge-ipad-voice-recording-tools-3p/"><u>Cutting-Edge iPad Voice Recording Tools 3P</u></a></li>
+<li><a href="https://fox-links.techidaily.com/designing-dynamic-movie-synopses/"><u>Designing Dynamic Movie Synopses</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Xiaomi Redmi Note 12 4G? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-mastering-subtitle-integration-in-wmp/"><u>In 2024, Mastering Subtitle Integration in WMP</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-supercharge-your-gaming-experience-the-best-free-voice-transformer-awaits/"><u>In 2024, Supercharge Your Gaming Experience - The Best Free Voice Transformer Awaits</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/league-of-legends-stability-enhanced-effortless-bug-fix-strategies/"><u>League of Legends Stability Enhanced: Effortless Bug Fix Strategies</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-9-ultimate-photo-management-apps-the-complete-guide/"><u>Top 9 Ultimate Photo Management Apps: The Complete Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/what-we-know-so-far-about-the-newest-sony-vr-device-release-date-guesswork-price-forecast-and-advanced-specs-revealed/"><u>What We Know So Far About the Newest Sony VR Device: Release Date Guesswork, Price Forecast & Advanced Specs Revealed</u></a></li>
 </ul></div>
 

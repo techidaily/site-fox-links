@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Visual Communication  Title & Caption Overlays on Video Clips via Photos\""
-date: 2024-09-29T23:51:23.158Z
-updated: 2024-10-04T01:20:24.249Z
+date: 2024-10-07T07:42:37.984Z
+updated: 2024-10-08T17:02:32.938Z
 tags: 
   - screen-recording
   - ai video
@@ -56,13 +56,6 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -73,6 +66,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * On the right, find the effects sidebar and select any effect that you find suitable for your video text
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
@@ -85,19 +85,19 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -107,10 +107,10 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -138,18 +138,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-end-scene-excellence-your-guide-to-yt-outro-mastery/"><u>[New] 2024 Approved End Scene Excellence Your Guide to YT Outro Mastery</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-digital-dimensions-metaverse-vs-omniverse-explained/"><u>[New] Digital Dimensions Metaverse Vs. Omniverse Explained</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-film-talents-unleashed-downloadable-content-pass/"><u>[New] In 2024, Film Talents Unleashed Downloadable Content Pass</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-ps5xbox-x-visuals-the-top-5-game-tvs/"><u>[New] PS5/Xbox X Visuals The Top 5 Game TVs</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-webvidrecorder-download-fb-content-easily/"><u>[New] WebVidRecorder Download FB Content Easily</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-comparing-youtube-policies-with-creative-commons-for-2024/"><u>[Updated] Comparing YouTube Policies with Creative Commons for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-how-to-make-picture-in-picture-video-on-macos-sierra/"><u>[Updated] How to Make Picture in Picture Video on macOS Sierra</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-understanding-and-crafting-youtube-live-thumbnails/"><u>2024 Approved Understanding and Crafting YouTube Live Thumbnails</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/guide-to-accessing-price-null-picture-content/"><u>Guide to Accessing Price-Null Picture Content</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-your-apple-iphone-15-pro-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your Apple iPhone 15 Pro Without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/identify-some-outdated-hardware-drivers-with-windows-device-manager-in-windows-11-and-10-by-drivereasy-guide/"><u>Identify some outdated hardware drivers with Windows Device Manager in Windows 11 & 10</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-missed-display-after-windows-starts/"><u>Overcoming Missed Display After Windows Starts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/prime-selection-of-7-top-rated-android-adblocking-apps/"><u>Prime Selection of 7 Top-Rated Android AdBlocking Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-windows-update-insights-the-latest-wins/"><u>[New] 2024 Approved Windows Update Insights The Latest Wins</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-compendium-classification-of-camera-types-for-videos/"><u>[New] In 2024, Compendium Classification of Camera Types for Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-innovative-iphone-and-ipad-video-players-the-10-best-options/"><u>[New] Innovative iPhone & iPad Video Players The 10 Best Options</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlocking-the-potential-of-non-mic-sound-capture-methods/"><u>[New] Unlocking the Potential of Non-Mic Sound Capture Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-enhancing-digital-meetings-focus-up-techniques/"><u>[Updated] 2024 Approved Enhancing Digital Meetings Focus Up Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-integrating-microsofts-azure-transcription-service-in-code/"><u>[Updated] 2024 Approved Integrating Microsoft's Azure Transcription Service in Code</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-mitigating-virtual-reality-nausea/"><u>[Updated] 2024 Approved Mitigating Virtual Reality Nausea</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-runners-digital-dream-top-virtual-reality-walkers/"><u>[Updated] In 2024, The Runner's Digital Dream Top Virtual Reality Walkers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-seamless-fileshift-android-media-to-iphone/"><u>[Updated] Seamless Fileshift Android Media to iPhone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-right-platform-for-content-creation-podcast-or-video/"><u>[Updated] The Right Platform for Content Creation? Podcast or Video?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/camera-confusion-no-video-display-issue/"><u>Camera Confusion No Video Display Issue</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-action-filmmaking-elevated-gopros-best-15-color-grading-look-ups/"><u>In 2024, Action Filmmaking Elevated GoPro's Best 15 Color Grading Look-Ups</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-step-by-step-perfecting-iphones-audio-captures/"><u>In 2024, Step-by-Step Perfecting iPhone's Audio Captures</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/innovative-electronics-with-tom-your-trusted-source-for-top-hardware-picks/"><u>Innovative Electronics with Tom: Your Trusted Source for Top Hardware Picks</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 15 Pro | Dr.fone</u></a></li>
 </ul></div>
 

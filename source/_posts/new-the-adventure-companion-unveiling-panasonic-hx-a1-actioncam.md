@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Adventure Companion  Unveiling Panasonic HX-A1 ActionCam\""
-date: 2024-09-14T22:23:53.514Z
-updated: 2024-09-22T01:31:14.552Z
+date: 2024-10-06T01:11:57.074Z
+updated: 2024-10-08T16:35:56.106Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/dd7a824e4ab8b6d6473fb0116a606a013dd12f046
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -67,6 +74,19 @@ thumbnail: https://thmb.techidaily.com/dd7a824e4ab8b6d6473fb0116a606a013dd12f046
 | Waterproof, dustproof, shockproof and freeze proof. No additional housing or case needed to take it underwater as a replacement glass cover for lens is also included. | Not compatible for 4K shooting                                                                         |
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Accessories in the box
 
@@ -106,10 +126,10 @@ thumbnail: https://thmb.techidaily.com/dd7a824e4ab8b6d6473fb0116a606a013dd12f046
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Features
@@ -149,10 +169,10 @@ thumbnail: https://thmb.techidaily.com/dd7a824e4ab8b6d6473fb0116a606a013dd12f046
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -178,5 +198,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-teaching-techniques-with-youtube-a-practical-approach/"><u>[New] In 2024, Teaching Techniques with YouTube A Practical Approach</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-mastery-over-supplementary-film-sequences-b-roll/"><u>[Updated] 2024 Approved Mastery Over Supplementary Film Sequences (B-Roll)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-discovering-sky-vistas-in-hd-mi-drone-review/"><u>[Updated] Discovering Sky Vistas in HD Mi Drone Review</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevating-your-vlogs-a-list-of-the-top-12-professional-cameras/"><u>[Updated] Elevating Your Vlogs A List of the Top 12 Professional Cameras</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-importing-songs-into-inshot-a-step-by-step-guide/"><u>[Updated] In 2024, Importing Songs Into InShot A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-which-movie-software-takes-the-lead-vlc-vs-mx/"><u>[Updated] In 2024, Which Movie Software Takes The Lead? VLC Vs. MX</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-insta-twist-techniques-for-tailoring-your-photos-on-the-fly/"><u>[Updated] Insta-Twist Techniques for Tailoring Your Photos on the Fly</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-platform-precision-examining-obs-against-twitch-hub-for-2024/"><u>[Updated] Platform Precision Examining OBS Against Twitch Hub for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-premium-aquatic-filters-boosting-gopro-cinematography/"><u>[Updated] Premium Aquatic Filters Boosting GoPro Cinematography</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-most-compelling-free-ae-design-samples-for-2024/"><u>[Updated] The Most Compelling Free AE Design Samples for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/easy-steps-to-personalize-movie-outro-templates-for-free-for-2024/"><u>Easy Steps to Personalize Movie Outro Templates for Free for 2024</u></a></li>
+<li><a href="https://win-web3.techidaily.com/get-your-favorite-youtube-content-on-your-mobile-device-effortless-downloader-for-ipods-and-iphones-available-now/"><u>Get Your Favorite YouTube Content on Your Mobile Device: Effortless Downloader for iPods & iPhones Available Now!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-xiaomi-civi-3-disney-100th-anniversary-edition-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Xiaomi Civi 3 Disney 100th Anniversary Edition Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-samsung-galaxy-s23plus-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Samsung Galaxy S23+ to iPod | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-7-best-video-mergers-without-watermark/"><u>New 2024 Approved 7 Best Video Mergers Without Watermark</u></a></li>
+</ul></div>
 

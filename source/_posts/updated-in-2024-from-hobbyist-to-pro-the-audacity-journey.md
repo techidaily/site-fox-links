@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Hobbyist to Pro  The Audacity Journey\""
-date: 2024-09-17T17:43:08.636Z
-updated: 2024-09-21T23:29:40.793Z
+date: 2024-10-04T12:06:54.375Z
+updated: 2024-10-08T17:22:52.710Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -52,6 +59,13 @@ Step2The Soundflower app must then be set up. To achieve this, choose "Sounds" f
 Step3In the "Device" section of the Audacity preferences box, choose "Soundflower (2ch)". From the recording area, choose "Software playthrough." Click "OK" to save the options you've selected.
 
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Export your audio
 
@@ -99,18 +113,21 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-5-simple-steps-to-quickly-improve-your-filmmaking-skills/"><u>[New] 5 Simple Steps to Quickly Improve Your Filmmaking Skills</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-gradual-diminishment-of-sound-tips-from-logic-pro-experts/"><u>[New] Gradual Diminishment of Sound Tips From Logic Pro Experts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-innovating-with-no-cost-text-animation-methods/"><u>[New] In 2024, Innovating with No-Cost Text Animation Methods</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-navigating-win11-like-a-pro-your-guidebook/"><u>[New] Navigating Win11 Like a Pro - Your Guidebook</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-sustained-sky-exploration-the-best-drones-for-distance/"><u>[Updated] 2024 Approved Sustained Sky Exploration The Best Drones for Distance</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-auditory-aspects-in-inshot-video-creation/"><u>[Updated] Auditory Aspects in InShot Video Creation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-3d-tvs-for-immersive-blu-ray-viewing/"><u>[Updated] In 2024, Top 3D TVs for Immersive Blu-Ray Viewing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unravel-the-mysteries-of-color-grading-with-cs6cc-luts/"><u>2024 Approved Unravel the Mysteries of Color Grading with CS6/CC LUTs</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/command-the-field-again-comprehensive-guide-to-restoring-psr-player-screen-refresh-on-pc-call-of-duty-warzone-2024/"><u>Command the Field Again: Comprehensive Guide to Restoring PSR (Player Screen Refresh) on PC [Call of Duty: Warzone 2024]</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-gionee-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Gionee Device</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-understanding-fair-use-and-infringement-on-youtube/"><u>In 2024, Understanding Fair Use and Infringement on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/straightforward-screen-grabber-w10-edition-for-2024/"><u>Straightforward Screen Grabber, W10 Edition for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-disappearing-display-on-sony-a6400-for-2024/"><u>The Disappearing Display on Sony A6400 for 2024</u></a></li>
+</ul></div>
 

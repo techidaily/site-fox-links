@@ -1,7 +1,7 @@
 ---
 title: "[New] Unleash Your Typographic Vision in After Effects Mastery"
-date: 2024-10-01T03:51:23.385Z
-updated: 2024-10-03T19:56:53.302Z
+date: 2024-10-01T19:20:03.165Z
+updated: 2024-10-09T05:29:12.646Z
 tags: 
   - screen-recording
   - ai video
@@ -42,16 +42,10 @@ TextExploder is an After Effects plugin that is developed by MamoWorld and it al
 ![text exploder plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-exploder-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## iExpressions 2
@@ -71,10 +65,10 @@ If you want to create the perfect shape behind your text, then TextBox is a good
 ![text box plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-box-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Font Manager
@@ -85,13 +79,6 @@ Font Manager is an After Effects text plugin that is useful when creating and wo
 
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Cartoon Moblur
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Fcartoon%5Fmoblur>
@@ -100,11 +87,38 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Shadow Studio
 
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
 
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Texts Animation Bundle
 
@@ -114,6 +128,20 @@ This is a bundle of more than 80 different templates to add text effects to any 
 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Artificial Intelligence Titles
 
 Link: <https://videohive.net/item/ait-artificial-intelligence-titles/22124640?s%5Frank=1>
@@ -122,20 +150,6 @@ The Artificial Intelligence Titles is an After Effects text plugin that is desig
 
 ![artificial intelligence titles plugin](https://images.wondershare.com/filmora/article-images/2022/07/artificial-intelligence-titles-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Text Library
 
 Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
@@ -143,20 +157,6 @@ Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
 This is another great text animation bundle with different options for just about any kind of project. But unlike other plugin bundles that only have a few effects to choose from, Text Library has thousands of templates to choose from. Once you have selected the template that you would like to use, you also get the option to customize the template to suit your project. You can customize the text, size, duration of the animation, and color. It is easy to use and is constantly updated to introduce even more templates with each update.
 
 ![text library plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-library-plugin.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -192,17 +192,22 @@ On its own After Effects comes with so many post-production effects and features
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-examining-wirecasts-features-against-competitors/"><u>[New] In 2024, Examining WireCast's Features Against Competitors</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-periscope-unveiled-free-access-benefits-and-signing-up-guide-for-2024/"><u>[Updated] Periscope Unveiled Free Access, Benefits & Signing Up Guide for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-pinnacle-av-artisans-an-exclusive-list-for-you/"><u>[Updated] Pinnacle AV Artisans An Exclusive List for You</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2023s-most-popular-apple-watches-ranked-find-the-perfect-fit/"><u>2023'S Most Popular Apple Watches Ranked: Find the Perfect Fit!</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/download-now-the-ultimate-selection-of-5-fast-and-efficient-free-music-players/"><u>Download Now: The Ultimate Selection of 5 Fast & Efficient Free Music Players!</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/get-ahead-of-the-curve-with-insider-details-on-googles-next-streaming-marvel-budget-availability-and-tech-breakdown/"><u>Get Ahead of the Curve with Insider Details on Google's Next Streaming Marvel - Budget, Availability & Tech Breakdown!</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-itel-s23-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Itel S23? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-epic-narrative-institute-premier-choices/"><u>In 2024, Epic Narrative Institute – Premier Choices</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-storytelling-methodologies-for-the-documentarian/"><u>In 2024, Storytelling Methodologies for the Documentarian</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-oppo-a58-4g-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Oppo A58 4G Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://fox-links.techidaily.com/strategies-to-enhance-testimonial-credibility-and-impact-for-2024/"><u>Strategies to Enhance Testimonial Credibility and Impact for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/what-to-do-when-microsoft-edge-fails-to-work-properly/"><u>What to Do When Microsoft Edge Fails to Work Properly</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-chromatic-brilliance-in-high-definition-blade-camera-review/"><u>[New] 2024 Approved Chromatic Brilliance in High Definition Blade Camera Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-elevating-drones-to-new-heights-yuneecs-q500/"><u>[New] Elevating Drones to New Heights Yuneec's Q500</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-ensemble-moves-syncing-your-song-collections-for-2024/"><u>[New] Ensemble Moves Syncing Your Song Collections for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-windows-10-new-features-at-a-glance-for-2024/"><u>[New] Windows 10 New Features at a Glance for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-8-best-screen-capture-tools-for-linux/"><u>[Updated] 8 Best Screen Capture Tools for Linux</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-accelerating-video-conversion-youtube-to-mpeg-edition/"><u>[Updated] Accelerating Video Conversion YouTube to MPEG Edition</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-binge-worthy-20-catchy-tiktok-songs-by-artists/"><u>[Updated] Binge-Worthy 20 Catchy TikTok Songs by Artists</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-a-complete-rundown-on-excellent-screen-recording-of-facetime-calls/"><u>[Updated] In 2024, A Complete Rundown on Excellent Screen-Recording of FaceTime Calls</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-steps-for-effective-ipad-screen-casts/"><u>[Updated] In 2024, Steps for Effective iPad Screen Casts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-top-7-essential-metaverse-tech-for-your-arsenal/"><u>[Updated] In 2024, Top 7 Essential Metaverse Tech for Your Arsenal</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-perfecting-package-adventure-7-steps-for-2024/"><u>[Updated] Perfecting Package Adventure 7 Steps for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/7-cutting-edge-replacements-for-the-conversational-gpt-bot/"><u>7 Cutting-Edge Replacements for the Conversational GPT Bot</u></a></li>
+<li><a href="https://games-able.techidaily.com/a-comprehensive-guide-to-elgatos-stream-deck-range/"><u>A Comprehensive Guide to Elgato's Stream Deck Range</u></a></li>
+<li><a href="https://fox-links.techidaily.com/discerning-divergence-360-video-vs-virtual-reality-for-2024/"><u>Discerning Divergence 360° Video Vs. Virtual Reality for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-realme-narzo-60-pro-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Realme Narzo 60 Pro 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-10-mkv-to-mp4-converter-tools-compatible-with-both-windows-and-macos/"><u>Top 10 MKV to MP4 Converter Tools Compatible with Both Windows and macOS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/vertex-productions-summary-pinnacle-studio-assessment-2023/"><u>Vertex Productions Summary Pinnacle Studio Assessment, 2023</u></a></li>
 </ul></div>
 

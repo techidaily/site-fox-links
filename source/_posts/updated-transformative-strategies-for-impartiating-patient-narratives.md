@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Transformative Strategies for Impartiating Patient Narratives"
-date: 2024-09-30T00:05:06.439Z
-updated: 2024-10-03T16:29:27.770Z
+date: 2024-10-08T08:27:05.175Z
+updated: 2024-10-09T04:02:34.525Z
 tags: 
   - screen-recording
   - ai video
@@ -36,22 +36,16 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
@@ -61,13 +55,6 @@ It may seem like a daunting task, but there are several ways you can go about de
 ## Include Strong Opinions
 
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Use the word “I”.
 * Use the word “we”.
@@ -85,46 +72,53 @@ When asking someone for their thoughts on a topic or issue, there's always going
 
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lighting, Sound, and Video Quality Matter
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lighting, sound, and video quality matter.
 
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Really Listen to Your Prospects
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Beware of Skeptics and Negative Nellies
 
 ![beware skeptics](https://images.wondershare.com/filmora/article-images/2022/07/beware-skeptics.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
@@ -164,18 +158,22 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-elevating-voice-quality-top-10-microphone-guide/"><u>[New] 2024 Approved Elevating Voice Quality Top 10 Microphone Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-editors-deep-dive-visionx-pro-and-its-features-for-2024/"><u>[New] Editor's Deep Dive VisionX Pro and Its Features for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-photoshops-powerful-tool-image-curving-techniques/"><u>[New] Photoshop's Powerful Tool Image Curving Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-enhance-your-media-masterpiece-with-canvas-soundscape-edition-for-2024/"><u>[Updated] Enhance Your Media Masterpiece with Canva's Soundscape Edition for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-auditory-aesthetics-choosing-the-right-soundtracks-for-boxings/"><u>[Updated] In 2024, Auditory Aesthetics Choosing the Right Soundtracks for Boxings</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-effortless-course-skipping-techniques-for-bypassing-edgenuity-videos/"><u>2024 Approved Effortless Course Skipping Techniques for Bypassing Edgenuity Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-seamless-shift-your-path-to-kinemaster-expertise/"><u>2024 Approved The Seamless Shift Your Path to Kinemaster Expertise</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/free-download-compatible-zexmte-bluetooth-dongle-driver-for-windows-10-7-and-8/"><u>Free Download: Compatible ZexMTE Bluetooth Dongle Driver for Windows 10, 7 & 8</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor 90 | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-top-pick-of-vocal-transformation-apps-for-youtubers/"><u>In 2024, Top Pick of Vocal Transformation Apps for YouTubers</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-xiaomi-redmi-13c-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Xiaomi Redmi 13C Phones</u></a></li>
-<li><a href="https://blog-min.techidaily.com/les-logiciels-libres-preferences-pour-la-conception-graphique-de-logos-les-8-incontournables/"><u>Les Logiciels Libres Preferences Pour La Conception Graphique De Logos : Les 8 Incontournables</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/srt-transition-the-ultimate-subcap-guide-for-2024/"><u>SRT Transition The Ultimate SUBCAP Guide for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-step-by-step-guide-to-creating-a-video-channel-reviewing-tech-accessories/"><u>[New] 2024 Approved Step-by-Step Guide to Creating a Video Channel Reviewing Tech Accessories</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-deciphering-gopro-burst-mode-mechanics/"><u>[Updated] 2024 Approved Deciphering GoPro Burst Mode Mechanics</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-correct-obs-blackout-error-in-gaming-capture-for-2024/"><u>[Updated] Correct OBS Blackout Error in Gaming Capture for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-essential-software-for-windows-filmmakers-critical-edits-selection-for-2024/"><u>[Updated] Essential Software for Windows Filmmakers Critical Edits Selection for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/windowsiphoneandroid/"><u>多種多様なデバイス対応: 「Windows、iPhone、Android用」動画ファイル形式転換ガイド</u></a></li>
+<li><a href="https://fox-links.techidaily.com/embrace-the-world-of-video-design-in-xp-for-2024/"><u>Embrace the World of Video Design in XP for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/excellent-mkv-player-on-ios-android-for-2024/"><u>Excellent MKV Player on iOS, Android for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/exclusive-places-for-next-gen-vr-content-for-2024/"><u>Exclusive Places for Next-Gen VR Content for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/harmonizing-marketing-brands-and-youtubes-co-creative-pathways/"><u>Harmonizing Marketing Brands & YouTube's Co-Creative Pathways</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Itel P55 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-of-the-best-select-photovideo-makers-with-musical-accents/"><u>In 2024, Best of the Best Select Photo/Video Makers with Musical Accents</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-backdrop-to-your-podcasts-success-story/"><u>In 2024, The Ultimate Backdrop to Your Podcast's Success Story</u></a></li>
+<li><a href="https://fox-links.techidaily.com/maximizing-impact-with-strategic-fb-giveaway-announcements-for-2024/"><u>Maximizing Impact with Strategic FB Giveaway Announcements for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/overcoming-persistent-errors-keeping-the-content-warning-app-running-smoothly-on-your-device/"><u>Overcoming Persistent Errors: Keeping the Content Warning App Running Smoothly on Your Device</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolve-screen-imperfections-a-step-by-step-guide-to-restoring-accurate-colors-and-clear-images/"><u>Resolve Screen Imperfections: A Step-by-Step Guide to Restoring Accurate Colors & Clear Images</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/reversal-tactics-unique-youtube-video-experiences-for-2024/"><u>Time-Reversal Tactics Unique YouTube Video Experiences for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-poco-c51-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Poco C51 for Parents | Dr.fone</u></a></li>
 </ul></div>
 

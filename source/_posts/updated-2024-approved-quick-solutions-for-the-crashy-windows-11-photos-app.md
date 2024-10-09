@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Quick Solutions for the Crashy Windows 11 Photos App\""
-date: 2024-09-27T19:13:42.327Z
-updated: 2024-10-03T16:20:12.564Z
+date: 2024-10-02T00:17:01.506Z
+updated: 2024-10-08T18:14:14.312Z
 tags: 
   - screen-recording
   - ai video
@@ -61,6 +61,13 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -75,10 +82,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 3: Reset it
@@ -90,13 +97,6 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -110,16 +110,10 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -133,18 +127,18 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -173,15 +167,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-captivating-audience-with-these-innovative-videos/"><u>[New] 2024 Approved Captivating Audience with These Innovative Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-photo-hdr-excellence-tips-from-the-pros/"><u>[New] 2024 Approved Photo-HDR Excellence Tips From the Pros</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-strategy-behind-automatic-youtube-playback-on-fb/"><u>[New] 2024 Approved The Strategy Behind Automatic YouTube Playback on FB</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-complete-overview-how-to-navigate-telegram-web/"><u>[Updated] 2024 Approved Complete Overview How To Navigate Telegram Web</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-embark-on-a-google-meet-journey/"><u>[Updated] 2024 Approved Embark on a Google Meet Journey</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-fun-on-faces-a-comprehensive-guide-to-cartoon-snaps/"><u>[Updated] In 2024, Fun on Faces A Comprehensive Guide to Cartoon Snaps</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-skincare-and-sensational-looks/"><u>[Updated] Skincare and Sensational Looks</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-enhance-customer-engagement-with-strategic-language/"><u>In 2024, Enhance Customer Engagement with Strategic Language</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/overcoming-itunes-movie-issues-unexpected-tricks-to-get-your-films-flowing-smoothly/"><u>Overcoming iTunes Movie Issues: Unexpected Tricks to Get Your Films Flowing Smoothly</u></a></li>
-<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-navigating-next-gen-storage-the-ultimate-five/"><u>[New] 2024 Approved Navigating Next-Gen Storage The Ultimate Five</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-resource-guide-for-refining-on-screen-text-in-videos/"><u>[New] In 2024, The Ultimate Resource Guide for Refining On-Screen Text in Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-quick-tips-for-transforming-pinterest-videos-into-mp3s/"><u>[New] Quick Tips for Transforming Pinterest Videos Into MP3s</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-navigating-tiktok-lives-as-a-virtual-attendee/"><u>[Updated] 2024 Approved Navigating TikTok Lives as a Virtual Attendee</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-easy-way-change-clownfish-tone-in-windows/"><u>[Updated] In 2024, Easy Way Change Clownfish Tone in Windows</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>A Detailed VPNa Fake GPS Location Free Review On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-motorola-moto-g14-photos-an-easy-method-explained-by-fonelab-android-recover-photos/"><u>How to Restore Deleted Motorola Moto G14 Photos An Easy Method Explained.</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-making-classroom-content-video-editing-insights/"><u>In 2024, Making Classroom Content Video Editing Insights</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-mastering-drones-in-media-production/"><u>In 2024, Mastering Drones in Media Production</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-moviecraft-analysis-in-depth-exploration/"><u>In 2024, MovieCraft Analysis – In-Depth Exploration</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/introduce-natural-photo-smear-in-ps/"><u>Introduce Natural Photo Smear in PS</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-from-raw-audio-to-polished-masterpiece-editing-with-avidemux-2023-edition/"><u>New In 2024, From Raw Audio to Polished Masterpiece Editing with Avidemux - 2023 Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/snap-edit-share-your-initial-guide-to-lunapic/"><u>Snap, Edit, Share Your Initial Guide to LunaPic</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-your-iphones-secrets-no-ejector-needed/"><u>Unlocking Your iPhone's Secrets: No Ejector Needed</u></a></li>
 </ul></div>
 

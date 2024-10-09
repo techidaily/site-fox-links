@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Easy Steps to Master Volume Control Transitions\""
-date: 2024-09-20T00:13:15.521Z
-updated: 2024-09-22T03:28:07.901Z
+date: 2024-10-07T22:02:03.250Z
+updated: 2024-10-08T23:10:31.246Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,13 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 
 * Now exactly, in the same way, you can go in and begin to make adjustments. Now, when you make a selection here, Audition compresses your adjustments into that selected region. You will need to be a little careful about that when working with these effects. So, you can add fades very easily at any time by clicking on the handles at the top right and left of Waveform Display, or you can use dedicated effects for the purpose.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. Audition Alternative to Fade Audio
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is another best audio editing tool that is a great alternative to Adobe Audition software. Wondershare Filmora, which is the latest version of Filmora, has the visual audio editing potential to guide you in editing audio files. There are many features available in this like you can add background music, detect music beats, etc.
@@ -83,13 +90,6 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
@@ -101,13 +101,6 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -126,29 +119,36 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
 
@@ -157,6 +157,13 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -188,5 +195,24 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-blueprint-to-establishing-an-online-review-community-for-toys/"><u>[New] 2024 Approved The Blueprint to Establishing an Online Review Community for Toys</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-educators-manual-for-integrating-videos-in-instruction/"><u>[New] In 2024, Educator's Manual for Integrating Videos in Instruction</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-exploring-the-world-of-youtube-channel-naming-innovative-ideas-for-vloggers-and-filmmakers-no-more-than-156-characters/"><u>[New] In 2024, Exploring the World of YouTube Channel Naming Innovative Ideas For Vloggers & Filmmakers (No More than 156 Characters)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-advanced-systems-for-tracking-human-manoeuvres/"><u>[Updated] 2024 Approved Advanced Systems for Tracking Human Manoeuvres</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-how-to-create-and-edit-videos-on-windows-11/"><u>[Updated] 2024 Approved How to Create and Edit Videos on Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-archive-your-art-innovative-cost-effective-photo-storage-platforms/"><u>[Updated] Archive Your Art Innovative, Cost-Effective Photo Storage Platforms</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-detailed-review-of-the-sony-fdr-x1000-action-camera-for-2024/"><u>[Updated] Detailed Review of the Sony FDR-X1000 Action Camera for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-gopros-top-5-subaquatic-filter-choices-for-2024/"><u>[Updated] GoPro's Top 5 Subaquatic Filter Choices for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-best-virtual-reality-bike-adventures-listed-here/"><u>[Updated] In 2024, Best Virtual Reality Bike Adventures Listed Here</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-next-gen-escapades-upcoming-best-playstation-vr-games-to-try/"><u>[Updated] Next-Gen Escapades Upcoming Best PlayStation VR Games to Try</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-odins-fury-new-wrath-unleashed/"><u>[Updated] Odin's Fury New Wrath Unleashed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rt-google-meet-chats-into-youtube-livestream-easily/"><u>Convert Google Meet Chats Into YouTube Livestream Easily</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diagnosing-and-fixing-a-broken-wacom-pen-connection-in-modern-windows-environments/"><u>Diagnosing and Fixing a Broken Wacom Pen Connection in Modern Windows Environments</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-vrchat-connectivity-issues-why-it-wont-load/"><u>Fixing VRChat Connectivity Issues: Why It Won't Load</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-selections-for-speedy-facebook-video-transfers-and-streams/"><u>In 2024, Top Selections for Speedy Facebook Video Transfers and Streams</u></a></li>
+<li><a href="https://win-blog.techidaily.com/top-tips-for-eliminating-high-ping-and-improving-responsiveness-in-chivalry-2/"><u>Top Tips for Eliminating High Ping & Improving Responsiveness in Chivalry 2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlock-the-secrets-spotifys-plan-to-charge-for-access-to-song-lyrics/"><u>Unlock the Secrets: Spotify's Plan to Charge for Access to Song Lyrics</u></a></li>
+</ul></div>
 

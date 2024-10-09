@@ -1,7 +1,7 @@
 ---
 title: "\"Spectrum Savvy  The Filmmaker's Guide to Color for 2024\""
-date: 2024-10-02T05:38:22.627Z
-updated: 2024-10-03T23:06:56.365Z
+date: 2024-10-07T20:01:11.973Z
+updated: 2024-10-09T03:56:21.277Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Color grading and color correction are processes that happen throughout postprod
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why is Color Grading Important?
@@ -77,10 +77,10 @@ Then select the New Project to create a new project file and click Import to fin
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
@@ -111,13 +111,6 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step2Select the specific video portion
 
 #####
@@ -125,6 +118,13 @@ Here, there are two options to select: The Color correction. It offers different
 First, you need to select the specific video portion you want to change the color. Just click the scissor icon or what we call split tool. In this case, I split the 2nd video when I zoom in on the subject.
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * And I selected the end portion of the video. After that, choose the part of the video.
 
@@ -144,6 +144,13 @@ Once you've finished correcting the video color, press Play and go over the whol
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Using the Color Panel Window**
 
 ##### Step1To perform color correction in Filmora, switch to the Color tab
@@ -157,13 +164,6 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -231,15 +231,18 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-direct-engagement-broadcast-from-twitch-to-facebook-friends/"><u>[New] Direct Engagement Broadcast From Twitch to Facebook Friends</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-dissecting-the-capabilities-of-magixs-photo-manager/"><u>[Updated] In 2024, Dissecting the Capabilities of MAGIX's Photo Manager</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-why-marketers-love-video-commendations/"><u>[Updated] In 2024, Why Marketers Love Video Commendations</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-flight-paths-revealed-full-review-of-dji-phantom-4/"><u>2024 Approved Flight Paths Revealed Full Review of DJI Phantom 4</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-how-to-record-audio-on-windows-10/"><u>2024 Approved How To Record Audio on Windows 10?</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/expert-guide-to-leveraging-obs-in-android/"><u>Expert Guide to Leveraging OBS in Android</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-control-airpod-auto-switching-feature-between-multiple-apple-products/"><u>How To Control AirPod Auto-Switching Feature Between Multiple Apple Products</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Nokia G22? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/live-stream-titans-clash-twitch-vs-youtube-analysis-for-2024/"><u>Live-Stream Titans Clash Twitch Vs YouTube Analysis for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-take-your-designs-to-the-next-level-10-top-animated-text-tools/"><u>New Take Your Designs to the Next Level 10 Top Animated Text Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-which-is-superior-obs-or-streamlabs-for-your-livestream-needs/"><u>[New] 2024 Approved Which Is Superior, OBS or Streamlabs for Your Livestream Needs?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-becoming-an-active-participant-in-tiktok-lives/"><u>[Updated] 2024 Approved Becoming an Active Participant in TikTok Lives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-transforming-your-youtube-profile-descriptions-for-2024/"><u>[Updated] Transforming Your YouTube Profile Descriptions for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-navigating-kinemasters-features-and-comparing-to-leading-online-games/"><u>2024 Approved Navigating KineMaster's Features and Comparing to Leading Online Games</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-prime-cloud-storage-contenders-of-the-new-year/"><u>2024 Approved The Prime Cloud Storage Contenders of the New Year</u></a></li>
+<li><a href="https://fox-links.techidaily.com/adding-accurate-dates-to-photographic-records-for-2024/"><u>Adding Accurate Dates to Photographic Records for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/best-6-video-translators-to-translate-video-for-2024/"><u>Best 6 Video Translators to Translate Video for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/boost-visual-impact-learning-to-edit-videos-using-storyremix-and-windows-photos-for-2024/"><u>Boost Visual Impact Learning to Edit Videos Using StoryRemix and Windows Photos for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-redmi-note-13-proplus-5g-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Redmi Note 13 Pro+ 5G</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/free-video-editing-made-easy-top-online-choices/"><u>Free Video Editing Made Easy Top Online Choices</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-samsung-galaxy-f15-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Samsung Galaxy F15 5G Phone?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-best-action-cameras-on-wheels-top-5-picks-for-23-riders/"><u>In 2024, Best Action Cameras on Wheels – Top 5 Picks for '23 Riders</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-infinix-note-30i-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Infinix Note 30i Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
 </ul></div>
 
