@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting-Edge Techniques for Bypassing Obscuring Elements in Affinity Photo\""
-date: 2024-09-18T22:53:39.354Z
-updated: 2024-09-21T20:42:56.346Z
+date: 2024-10-13T17:07:31.762Z
+updated: 2024-10-15T17:20:16.507Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,13 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -48,6 +55,13 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -88,14 +102,14 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-**Note:** To save your image with a transparent background, do not export it in JPG file format.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+**Note:** To save your image with a transparent background, do not export it in JPG file format.
 
 ## The Best Alternative of Affinity Photo
 
@@ -104,6 +118,13 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -131,13 +152,6 @@ And if you have any interests in finding free images to expand your resource, yo
 
 Hopefully, this article and video can help you create ideal images!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -161,6 +175,13 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -194,5 +215,16 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-innovative-fbx-gametime-tracking-solutions/"><u>[New] 2024 Approved Innovative FBX Gametime Tracking Solutions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-maximize-your-sims-legacy-top-techniques-for-capturing-sims-4-adventures/"><u>[New] 2024 Approved Maximize Your Sim's Legacy Top Techniques for Capturing Sims 4 Adventures</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-perfect-your-titles-and-descriptions-for-top-ranked-igtv-videos-for-2024/"><u>[New] Perfect Your Titles & Descriptions for Top-Ranked IGTV Videos for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-tag-with-your-favorite-show-podcast-on-ig/"><u>[New] Tag with Your Favorite Show Podcast on IG</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-seamless-youtube-experience-facebooks-autoplay-solution/"><u>[Updated] 2024 Approved Seamless YouTube Experience Facebook's Autoplay Solution</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-discovering-new-ways-beyond-magix-acid-pro/"><u>[Updated] In 2024, Discovering New Ways Beyond Magix ACID Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/conveniently-enjoy-nba-games-top-15-streaming-methods-for-2024/"><u>Conveniently Enjoy NBA Games - Top 15 Streaming Methods for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/diy-fix-for-broken-optical-disk-readers-open-and-eject-troubleshooting/"><u>DIY Fix for Broken Optical Disk Readers - Open and Eject Troubleshooting</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-tapping-into-creative-potential-with-luts-in-premiere-pro/"><u>In 2024, Tapping Into Creative Potential with LUTs in Premiere Pro</u></a></li>
+</ul></div>
 

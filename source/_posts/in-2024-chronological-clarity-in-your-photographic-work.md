@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Chronological Clarity in Your Photographic Work"
-date: 2024-09-17T22:02:28.923Z
-updated: 2024-09-22T01:26:53.984Z
+date: 2024-10-13T18:14:10.117Z
+updated: 2024-10-15T19:25:14.568Z
 tags: 
   - screen-recording
   - ai video
@@ -175,6 +175,13 @@ First, to resize an image in the Photos app on a Mac, enter editing mode by clic
 
 ![straighten flip rotate and crop](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2Sharpen your images
 
 You can make your photos sharper by simply navigating to the bottom of the Modify menu in the Photos app and selecting Sharpen.
@@ -205,18 +212,18 @@ Step4Proceed to add date and time into the text area manually.
 
 ![add data and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5When ready, drag and slide the date to the area of the image where you wish to stamp it.
 
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
 
 Step6Finally, select File>Save to add your date to the picture.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Use an inbuilt app to edit photos on Windows
 
@@ -244,16 +251,16 @@ Step4To create a text box, click and drag.
 
 ![create a text box](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-15.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5Enter the date you want.
 
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step6Select Menu in the upper-left corner.
 
@@ -262,6 +269,13 @@ Step6Select Menu in the upper-left corner.
 Step7Proceed to click on the Save option.
 
 ![click on save option](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-18.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Edit Photos Online to add date stamps
 
@@ -377,10 +391,10 @@ The stock Android Camera app has full editing features that allow you to crop, r
 The stock iPhone Camera app also has full editing tools that allow you to crop, rotate and adjust the contrast of your photos. You can also add stickers and frames to your photo within this app.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Use other photo editors to edit photos
@@ -394,13 +408,6 @@ You can make use of other photo editing apps to edit your pictures. Here are thr
 Instasize is an app that you will find quite useful. The app was developed for influencers and social media users who wish to produce captivating, imaginative images and films..
 
 ![instasize](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Key features**
 
@@ -438,13 +445,6 @@ VSCO is another editing app you can use for your photo editing. VSCO has an easy
 
 ![vsco](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Key Features**
 
 * Color Correction
@@ -478,6 +478,13 @@ You can make your photos sharper by simply navigating to the bottom of the Modif
 
 ![sharpen your images](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3Adjust lighting and exposure
 
 When retouching your image in the Photos app, select the Adjust tab, then drag the thumb along the Lights slider to make the necessary adjustments.
@@ -506,6 +513,13 @@ Step5When ready, drag and slide the date to the area of the image where you wish
 
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6Finally, select File>Save to add your date to the picture.
 
 ### Use an inbuilt app to edit photos on Windows
@@ -529,6 +543,13 @@ Step2Select Edit & Create > Edit with Paint 3D in the upper right corner of the 
 Step3Go to the screen's top and click Text.
 
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4To create a text box, click and drag.
 
@@ -617,5 +638,24 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-seamless-upconversion-from-standard-definition-to-dynamic-range-extraordinaire/"><u>[New] 2024 Approved Seamless Upconversion From Standard Definition to Dynamic Range Extraordinaire</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-are-reviews-on-merchandise-streamed-for-cash-in-2024/"><u>[New] Are Reviews on Merchandise Streamed for Cash, In 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-colorful-conga-crow/"><u>[New] Colorful Conga Crow</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-core-elements-in-virtual-narrative-design/"><u>[New] Core Elements in Virtual Narrative Design</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-elevate-engagement-discover-these-top-12-techniques-for-video-success-for-2024/"><u>[New] Elevate Engagement - Discover These Top 12 Techniques for Video Success for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-free-videography-starter-pack-openers-and-more/"><u>[New] Free Videography Starter Pack Openers & More</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unleash-vibrant-canvas-cropping-adding-and-editing-sound-effectively-for-2024/"><u>[New] Unleash Vibrant Canvas Cropping, Adding, & Editing Sound Effectively for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-premier-general-knowledge-trivia-hubs/"><u>[Updated] 2024 Approved Premier General Knowledge Trivia Hubs</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-reigning-on-rankings-transforming-your-online-presence/"><u>2024 Approved Reigning on Rankings Transforming Your Online Presence</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-a15-4g-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy A15 4G</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/exploring-alternatives-to-magixs-acid-pro-for-2024/"><u>Exploring Alternatives to Magix's ACID Pro for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-stop-chrome-from-using-too-much-processor-power-solution/"><u>How to Stop Chrome From Using Too Much Processor Power (Solution)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-capturing-cadence-leading-cameras-for-extended-shutter-times/"><u>In 2024, Capturing Cadence Leading Cameras for Extended Shutter Times</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-echo-podcast-content-to-followers-instantly/"><u>In 2024, Echo Podcast Content to Followers Instantly</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-enhanced-video-capture-on-pcmac-with-top-apps/"><u>In 2024, Enhanced Video Capture on PC/Mac with Top Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-mixed-reality-shopping-showcase/"><u>In 2024, Mixed Reality Shopping Showcase</u></a></li>
+<li><a href="https://fox-within.techidaily.com/mastering-vsphere-backups-proven-solutions-for-secure-vmware-environment-management/"><u>Mastering vSphere Backups: Proven Solutions for Secure VMware Environment Management</u></a></li>
+</ul></div>
 

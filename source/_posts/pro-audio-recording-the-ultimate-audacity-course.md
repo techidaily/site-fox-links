@@ -1,7 +1,7 @@
 ---
 title: "\"Pro Audio Recording  The Ultimate Audacity Course\""
-date: 2024-10-02T03:35:37.640Z
-updated: 2024-10-08T17:18:55.652Z
+date: 2024-10-08T19:47:20.158Z
+updated: 2024-10-15T18:11:26.338Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Recording using Mac
@@ -61,10 +61,10 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Export your audio
@@ -115,19 +115,22 @@ Simply select the necessary file format from the drop-down box that appears next
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-elevate-your-editing-game-with-speed-control-skills-for-2024/"><u>[New] Elevate Your Editing Game with Speed Control Skills for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-explore-elite-gaming-opening-tutorials-free-and-premium-alternatives-for-2024/"><u>[New] Explore Elite Gaming Opening Tutorials Free & Premium Alternatives for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-master-your-craft-best-drawing-tools-on-the-chromebook-spectrum-for-2024/"><u>[New] Master Your Craft Best Drawing Tools on the Chromebook Spectrum for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-masterclass-navigating-through-the-best-cricket-livestreams/"><u>[Updated] 2024 Approved Masterclass Navigating Through the Best Cricket Livestreams</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-exquisite-series-for-animating-fonts/"><u>[Updated] In 2024, Exquisite Series for Animating Fonts</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>11 Best Location Changers for Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-12-pro-max-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 12 Pro Max To Other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-samsung-galaxy-s23-fe-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Samsung Galaxy S23 FE Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-transform-canon-photos-gratuitous-fundamentals-plus-optional-lut-expansion/"><u>In 2024, Transform Canon Photos Gratuitous Fundamentals + Optional LUT Expansion</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-the-launch-of-days-gone-tips-and-tricks-to-overcome-pc-startup-problems/"><u>Mastering the Launch of Days Gone: Tips and Tricks to Overcome PC Startup Problems</u></a></li>
-<li><a href="https://fox-links.techidaily.com/perfecting-the-art-of-silence-increase-in-audacity-for-2024/"><u>Perfecting the Art of Silence Increase in Audacity for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unveiling-brilliance-a-thorough-review-of-the-professional-quest-with-bl2711u-for-2024/"><u>Unveiling Brilliance A Thorough Review of the Professional Quest with BL2711U for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Tecno Camon 20? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-no-pay-unlock-fcp-paths-to-a-free-edit-suite/"><u>[New] 2024 Approved No Pay? Unlock FCP Paths to a Free Edit Suite</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-top-5-free-video-players-vlc-or-mpc-winner/"><u>[New] 2024 Approved Top 5 Free Video Players VLC or MPC Winner?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-revolutionizing-movie-magic-with-the-4k-31mu97-b-from-lg/"><u>[New] In 2024, Revolutionizing Movie Magic with the 4K 31MU97-B From LG</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-quick-solutions-for-the-crashy-windows-11-photos-app/"><u>[Updated] 2024 Approved Quick Solutions for the Crashy Windows 11 Photos App</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-duration-decoded-a-guide-to-editing-youtube-videos/"><u>[Updated] Duration Decoded A Guide to Editing YouTube Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-pinnacle-of-camera-quality-top-18-4k-camcorders/"><u>[Updated] Pinnacle of Camera Quality - Top 18 4K Camcorders</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-smileslice-studio-memomaestrospace/"><u>[Updated] SmileSlice Studio MemoMaestroSpace</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mini-youtube-content-explained/"><u>2024 Approved Mini YouTube Content Explained</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-step-by-step-guide-for-effective-use-of-luts-in-adobe-suite/"><u>A Step-by-Step Guide for Effective Use of LUTs in Adobe Suite</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-civilization-vi-launch-problems-in-windows-10-tips-and-tricks/"><u>Fixing Civilization VI Launch Problems in Windows 10 - Tips and Tricks</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-airplay-from-a-mac-to-a-tv/"><u>How to AirPlay From a Mac to a TV</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/how-to-quickly-and-safely-erase-data-from-your-sandisk-ssd-using-windows-tools/"><u>How to Quickly and Safely Erase Data From Your Sandisk SSD Using Windows Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-glee-and-gags-the-classic-vhs-of-a-goofy-adventure/"><u>In 2024, 'Glee and Gags' - The Classic VHS of A Goofy Adventure</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-asus-rog-phone-8-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-wrapping-the-world-in-one-frame-not-two-sides/"><u>In 2024, Wrapping the World in One Frame, Not Two Sides</u></a></li>
+<li><a href="https://driver-error.techidaily.com/reactivating-obscured-bluetooth-in-system-settings/"><u>Reactivating: Obscured Bluetooth in System Settings</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-oneplus-12r-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace OnePlus 12R Location | Dr.fone</u></a></li>
 </ul></div>
 

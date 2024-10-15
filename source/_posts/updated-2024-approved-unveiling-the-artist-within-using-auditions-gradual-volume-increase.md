@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unveiling the Artist Within  Using Audition's Gradual Volume Increase\""
-date: 2024-09-17T17:36:21.501Z
-updated: 2024-09-22T01:49:26.141Z
+date: 2024-10-12T16:55:52.928Z
+updated: 2024-10-15T17:39:36.821Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,13 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -77,25 +84,18 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
@@ -104,6 +104,19 @@ If you want to fade in and fade out two clips at the same time, then controlling
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Adobe Audition fade-out greyed out?
 
@@ -119,6 +132,13 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -132,27 +152,20 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ## Part 3\. Related FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Adobe Audition fade-out greyed out?
 
@@ -188,5 +201,19 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-newbies-pathway-to-stunning-photo-edits-in-ps/"><u>[New] In 2024, Newbie's Pathway to Stunning Photo Edits in PS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-10-secret-tips-to-better-use-canva-photo-editor/"><u>[Updated] 2024 Approved 10 Secret Tips to Better Use Canva Photo Editor</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-power-of-pacing-keeping-your-audience-glued-to-the-screen/"><u>[Updated] In 2024, The Power of Pacing Keeping Your Audience Glued to the Screen</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-your-guide-to-expert-use-of-telegrams-browser-functionality/"><u>[Updated] Your Guide To Expert Use of Telegram's Browser Functionality</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-essential-guide-to-free-attractive-youtube-intros/"><u>2024 Approved The Essential Guide to Free, Attractive YouTube Intros</u></a></li>
+<li><a href="https://fox-access.techidaily.com/crafting-cinematic-projects-utilizing-movie-maker-on-windows-8-pcs-for-2024/"><u>Crafting Cinematic Projects Utilizing Movie Maker on Windows 8 PCs for 2024</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/how-to-successfully-upgrade-your-system-from-hard-drive-hdd-to-solid-state-drive-ssd-in-windows-1011/"><u>How To Successfully Upgrade Your System From Hard Drive (HDD) To Solid State Drive (SSD) in Windows 10/11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-innovative-practices-for-enhancing-vhs-photos-via-pcs/"><u>In 2024, Innovative Practices for Enhancing VHS Photos via PCs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-remove-youtube-sneak-peeks-for-uninterrupted-views/"><u>In 2024, Remove YouTube Sneak Peeks for Uninterrupted Views</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-asus-rog-phone-7-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Asus ROG Phone 7 FRP Bypass</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-madden-19-superior-aspects-but-feeling-a-bit-stale/"><u>In-Depth Look at Madden 19: Superior Aspects But Feeling a Bit Stale</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-youtube-studio-editing-handbook-for-2024/"><u>The Ultimate YouTube Studio Editing Handbook for 2024</u></a></li>
+</ul></div>
 

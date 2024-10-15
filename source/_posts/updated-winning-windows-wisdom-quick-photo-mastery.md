@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Winning Window's Wisdom  Quick Photo Mastery\""
-date: 2024-10-04T06:16:12.400Z
-updated: 2024-10-09T02:46:58.835Z
+date: 2024-10-13T17:03:12.586Z
+updated: 2024-10-15T16:57:51.389Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,10 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 When you draw on the image or video, the ink can be attached to a particular object or person within the video. As you move the camera angle or the object, the ink stays or moves along. You just need to select the anchor icon and link it to the object in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Draw on Photos Online
@@ -73,19 +73,39 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -94,21 +114,7 @@ The Photos app has an interface that is restructured with dark theme options and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -135,22 +141,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-leading-fb-video-players-ranking-1-10/"><u>[New] 2024 Approved Leading FB Video Players Ranking #1-10</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-luminous-videos-an-android-lighting-guide/"><u>[New] 2024 Approved Luminous Videos An Android Lighting Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-virtual-decoration-google-vs-alternative-ar-tools/"><u>[New] Virtual Decoration Google Vs. Alternative AR Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unraveling-whatsapps-voice-transmission-techniques/"><u>[Updated] 2024 Approved Unraveling WhatsApp's Voice Transmission Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-diversify-laptop-editing-with-alternatives-to-inshot-for-2024/"><u>[Updated] Diversify Laptop Editing with Alternatives to Inshot for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-creating-an-impactful-film-short-summary/"><u>[Updated] In 2024, Creating an Impactful Film Short Summary</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-premier-platforms-for-game-casting/"><u>[Updated] In 2024, Premier Platforms for Game Casting</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-tips-to-improve-visual-integrity-while-watching-youtube-content/"><u>[Updated] In 2024, Tips to Improve Visual Integrity While Watching YouTube Content</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-masterclass-navigating-through-the-best-cricket-livestreams-for-2024/"><u>[Updated] Masterclass Navigating Through the Best Cricket Livestreams for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-dichotomy-of-digital-minis-youtubes-efficiency-versus-tiktoks-trendiness/"><u>[Updated] The Dichotomy of Digital Minis YouTube's Efficiency Versus TikTok's Trendiness</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/coloring-beneath-the-surface-a-guide-to-shading-alternating-cells-in-ms-excel/"><u>Coloring Beneath the Surface: A Guide to Shading Alternating Cells in MS Excel</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/enhance-your-virtual-stage-the-ultimate-list-of-top-6-microphones/"><u>Enhance Your Virtual Stage The Ultimate List of Top 6 Microphones</u></a></li>
-<li><a href="https://fox-links.techidaily.com/googles-ar-sticker-innovation-an-inside-look-and-alternatives-for-2024/"><u>Google's AR Sticker Innovation An Inside Look & Alternatives for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-on-your-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID On your Apple iPhone 6 Plus?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-tecno-spark-10-4g-easily-by-drfone-android/"><u>In 2024, How To Unlock a Tecno Spark 10 4G Easily?</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/portrait-perfection-free-official-passport-image-generator-download-for-2024/"><u>Portrait Perfection Free, Official Passport Image Generator Download for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-tips-for-when-yahoo-mail-fails-to-deliver-incoming-emails/"><u>Troubleshooting Tips for When Yahoo Mail Fails to Deliver Incoming Emails</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-fast-track-to-1000-subscribers-in-youtube-landscape/"><u>[New] 2024 Approved Fast-Track To 1,000 Subscribers in Youtube Landscape</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-from-basics-to-advanced-the-hand-trackers-playbook/"><u>[New] In 2024, From Basics to Advanced The Hand Tracker's Playbook</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-masterful-transitioning-8-leading-convertors-for-sub-and-srt/"><u>[Updated] In 2024, Masterful Transitioning 8 Leading Convertors for Sub and SRT</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-saturation-savvy-professionals-secrets-revealed/"><u>[Updated] In 2024, Saturation Savvy Professionals' Secrets Revealed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-pixelpilot-photovideo-slide-show-for-macos/"><u>[Updated] PixelPilot Photovideo Slide Show for macOS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-pros-guide-to-exceptional-cameras-and-lenses-in-4k/"><u>[Updated] The Pro's Guide to Exceptional Cameras and Lenses in 4K</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-uncovering-key-pace-requirements-for-exceptional-slow-motion-videos/"><u>[Updated] Uncovering Key Pace Requirements for Exceptional Slow-Motion Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-realme-c55-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elite-series-for-engaging-typographic-movement/"><u>Elite Series for Engaging Typographic Movement</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/master-device-agnostic-recording-techniques-for-youtube-live-streams/"><u>Master Device-Agnostic Recording Techniques for YouTube Live Streams</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-11-pro-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone 11 Pro Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/surveying-the-digital-community-for-news-feed-insights/"><u>Surveying the Digital Community for News Feed Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-11-economical-cameras-for-professional-vloggers-for-2024/"><u>Top 11 Economical Cameras for Professional Vloggers for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Creating Quantum Displacement Effects\""
-date: 2024-10-04T04:20:52.374Z
-updated: 2024-10-08T17:22:23.596Z
+date: 2024-10-09T17:25:35.499Z
+updated: 2024-10-15T18:44:53.423Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,13 @@ You can also use a light that is 5,600 kelvins, which indicates blue light. We c
 
 ![blue light lighting setup](https://images.wondershare.com/filmora/article-images/2023/04/blue-light-lighting-setup.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you don't have an asset to get the lighting set up, then don't worry; we have another option.
 
 **Make colorful shots with plastic binders**
@@ -58,6 +65,19 @@ Professional videographers create these effects using high-end lighting. But you
 First, wrap the colorful divider around the LED light or any other light you're using to take video. The dividers will be melt or burn when the light source gets too hot; therefore, check the temperature of the light after short gaps.
 
 ![wrap the led light with a plastic binder](https://images.wondershare.com/filmora/article-images/2023/04/wrap-the-led-light-with-a-plastic-binder.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Shoot the video now, and experiment with adding suspense, terror, and cheerful effects with various colors.
 
@@ -78,13 +98,6 @@ After setting all equipment, now it's time to allow the character to perform in 
 For the first round, the subject has to do acting for the daytime script. Let the character do their performance according to the screenplay.
 
 In this article, we are doing a daytime performance in the first round. For this, the subject should go from right to left to step over for night time dimension.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### #1 night-time lighting setup
 
@@ -120,9 +133,23 @@ You can also create a marking by using anything in yours. We are using the midli
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
 
 ![cross line between two rounds](https://images.wondershare.com/filmora/article-images/2023/04/cross-line-between-two-rounds.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 After shooting all the clips, it's time to edit them on Filmora. To do this, check out the step to step guide below.
 
@@ -255,13 +282,6 @@ To get the thrilling look, you have to apply the laser effect between the two cl
 
 ![apply the laser effect](https://images.wondershare.com/filmora/article-images/2023/04/apply-the-laser-effect.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Reposition and adjust it according to the requirements if needed.
 * Extend the laser effect to the end of the scene.
 
@@ -270,6 +290,13 @@ To get the thrilling look, you have to apply the laser effect between the two cl
 Congratulations! You have all done with the time travel teleportation effects and get a bombing video. Check out the results below!
 
 ![final results of time travel teleportation effects](https://images.wondershare.com/filmora/article-images/2023/04/final-results-of-time-travel-teleportation-effects.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you want to change the effects, then you can easily switch from the stock of the Wondershare Filmora. It gives unlimited creative and fun effects to interact with more audiences daily.
 
@@ -289,6 +316,13 @@ Create for you and add different effects and experiment with new features. You w
 
 To create shots, we have to do two processing rounds. In the first round, we will film a shot for daytime activity. While in the next round, we will shoot a video for nighttime activity. Get straight into the filming mode and create according to your script.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### #1 daylight lighting setup
 
 In this round, you have to create a daytime action, implying that you need daylight. As well as, you don't need professional filming skills because it is going to be so simple.
@@ -298,13 +332,6 @@ Catch us at the below tips to make your video shots more skilled! First, you nee
 You can also use a light that is 5,600 kelvins, which indicates blue light. We can easily change the light from its remote, as shown below.
 
 ![blue light lighting setup](https://images.wondershare.com/filmora/article-images/2023/04/blue-light-lighting-setup.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you don't have an asset to get the lighting set up, then don't worry; we have another option.
 
@@ -336,13 +363,6 @@ For the first round, the subject has to do acting for the daytime script. Let th
 
 In this article, we are doing a daytime performance in the first round. For this, the subject should go from right to left to step over for night time dimension.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### #1 night-time lighting setup
 
 In the second round, you have to create a nighttime action indicating that you need a night light. You have to change the costume of a subject as well as you can change the set too.
@@ -361,19 +381,6 @@ In this round, the subject should start from the right to left and perform stepp
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
 
 ### #3 cross line between two rounds
@@ -387,13 +394,6 @@ You can also create a marking by using anything in yours. We are using the midli
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 ![marking for the cross line of transitions](https://images.wondershare.com/filmora/article-images/2023/04/marking-for-the-cross-line-of-transitions.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
@@ -449,6 +449,13 @@ Find the spot where the subject steps over in the nighttime clip, and select the
 
 ![marker 3 on the nighttime clip](https://images.wondershare.com/filmora/article-images/2023/04/marker-3-on-the-nighttime-clip.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After marking the points on the clips, then you have to align and adjust the clips!
 
 ##### Step6Align the markers
@@ -501,22 +508,16 @@ To show the energy pack between two time-travel clips, you have to add the effec
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** After dropping the effect, ensure that it starts simultaneously when the nighttime clip appears on the screen.
 
 ![after adding the elemental energy effect](https://images.wondershare.com/filmora/article-images/2023/04/after-adding-the-elemental-energy-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Resize the effect according to the clip for a better look.
 
@@ -555,13 +556,6 @@ Congratulations! You have all done with the time travel teleportation effects an
 ![final results of time travel teleportation effects](https://images.wondershare.com/filmora/article-images/2023/04/final-results-of-time-travel-teleportation-effects.gif)
 
 If you want to change the effects, then you can easily switch from the stock of the Wondershare Filmora. It gives unlimited creative and fun effects to interact with more audiences daily.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -597,20 +591,17 @@ Create for you and add different effects and experiment with new features. You w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-comprehensive-guide-to-sound-in-powerpoint-presentations/"><u>[New] 2024 Approved Comprehensive Guide to Sound in PowerPoint Presentations</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-free-funny-faces-our-simple-meme-guide/"><u>[New] Free Funny Faces - Our Simple Meme Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-deep-dive-into-the-features-of-lgs-ultrafine-4k-display/"><u>[New] In 2024, Deep Dive Into the Features of LG's UltraFine 4K Display</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-expert-picks-for-best-timelapse-tools/"><u>[New] In 2024, Expert Picks for Best Timelapse Tools</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-mastery-guide-installing-snapchat-on-mac-os/"><u>[New] In 2024, Mastery Guide Installing Snapchat on Mac OS</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-selecting-superior-5k-displays-the-top-eight/"><u>[New] In 2024, Selecting Superior 5K Displays The Top Eight</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-digital-worlds-revealed-metaverse-vs-multiverse-for-2024/"><u>[Updated] Digital Worlds Revealed Metaverse vs Multiverse for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-discover-the-hidden-gems-of-photography-on-pexels/"><u>[Updated] Discover the Hidden Gems of Photography on Pexels</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-from-raw-files-to-artwork-beginners-guide-to-lunapic/"><u>[Updated] From Raw Files to Artwork Beginner’s Guide to LunaPic</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-essence-of-uavs-understanding-their-mechanics-and-use/"><u>[Updated] In 2024, The Essence of UAVs Understanding Their Mechanics & Use</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/compare-and-conquer-making-the-right-decision-between-iphones-and-androids-for-yourself/"><u>Compare and Conquer: Making the Right Decision Between iPhones and Androids for Yourself</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-samsung-galaxy-s21-ultra-a-review-of-androids-finest-offering/"><u>Exploring the Samsung Galaxy S21 Ultra - A Review of Android's Finest Offering</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/o-add-timestamps-youtube-video-for-2024/"><u>How to Add Timestamps YouTube Video for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-discover-top-10-camcorders-in-depth-analysis/"><u>In 2024, Discover Top 10 Camcorders – In-Depth Analysis</u></a></li>
-<li><a href="https://driver-download.techidaily.com/newest-dolby-sound-drivers-available-free-downloads-and-updates-for-windows-11-10-and-81/"><u>Newest Dolby Sound Drivers Available: Free Downloads & Updates for Windows 11, 10 & 8.1</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-simplified-protocol-effortless-video-conversion-and-dvd-making/"><u>[New] 2024 Approved Simplified Protocol Effortless Video Conversion and DVD Making</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-exploring-the-professional-landscape-with-4k-and-beyond-the-benq-bl2711u-story/"><u>[New] In 2024, Exploring the Professional Landscape with 4K and Beyond - The BenQ BL2711U Story</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-meetup-event-visual-format/"><u>[New] In 2024, Meetup Event Visual Format</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-pinnacle-of-3d-entertainment-premium-blu-ray-decks/"><u>[New] In 2024, Pinnacle of 3D Entertainment Premium Blu-Ray Decks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-instagram-success-secrets-8-steps-to-becoming-a-top-poster-for-2024/"><u>[New] Instagram Success Secrets 8 Steps to Becoming a Top Poster for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unlock-windows-xp-professional-for-media-development-for-2024/"><u>[New] Unlock Windows XP Professional for Media Development for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-webinar-creation-and-management-on-youtube-for-2024/"><u>[Updated] Free Webinar Creation & Management on Youtube for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/enhance-your-desktop-aesthetics-changing-the-color-of-your-windows-1e-taskbar-made-easy/"><u>Enhance Your Desktop Aesthetics: Changing the Color of Your Windows 1E Taskbar Made Easy</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-11-pro-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset iPhone 11 Pro Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/illumination-in-high-dynamic-range-a-smart-option-for-2024/"><u>Illumination in High-Dynamic Range A Smart Option for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unveiling-the-wonders-of-phantoms-chrono-inversion/"><u>Unveiling the Wonders of Phantom’s Chrono Inversion</u></a></li>
+<li><a href="https://win-popular.techidaily.com/windows-server-2003/"><u>Windows Server 2003 バックアップ用画像生成ツール</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Navigating and Exploring Every Aspect of Mac's Preview App\""
-date: 2024-10-06T09:13:08.241Z
-updated: 2024-10-09T06:24:37.572Z
+date: 2024-10-11T19:01:16.529Z
+updated: 2024-10-15T18:54:07.068Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -68,6 +75,13 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -114,16 +128,16 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -143,10 +157,10 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Combine Images into One
@@ -164,13 +178,6 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 **Step 3: Combine the Images**
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
 
@@ -218,13 +225,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -250,22 +250,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-illustrators-journey-navigating-for-success-in-designing/"><u>[New] 2024 Approved The Illustrator's Journey Navigating for Success in Designing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-building-trust-through-words-docu-script-insights-for-2024/"><u>[New] Building Trust Through Words Docu-Script Insights for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-leading-livestream-tech-for-gaming-enthusiasts/"><u>[New] In 2024, Leading Livestream Tech For Gaming Enthusiasts</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-minute-drama-framework-plan/"><u>[New] In 2024, Minute Drama Framework Plan</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-sunset-symphony-cinematic-darkening-in-pro/"><u>[New] Sunset Symphony Cinematic Darkening in Pro</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-visionary-artistry-breakdown-studio-25-explored-in-detail-2023/"><u>[New] Visionary Artistry Breakdown Studio 25 Explored in Detail, 2023</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhance-brand-recognition-inserting-watermarklogo-in-youtube-videos/"><u>[Updated] 2024 Approved Enhance Brand Recognition Inserting Watermark/Logo in Youtube Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-elevate-ps2-gameplay-on-ios-devices-for-2024/"><u>[Updated] Elevate PS2 Gameplay on iOS Devices for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-navigating-the-world-of-virtual-backgrounds-for-online-media-professionals/"><u>[Updated] In 2024, Navigating the World of Virtual Backgrounds for Online Media Professionals</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-leading-video-cameras-of-2024-reviewed-and-rated/"><u>[Updated] Leading Video Cameras of 2024 Reviewed & Rated</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-no-cash-all-fun-turning-twitter-vids-into-gifs/"><u>[Updated] No Cash, All Fun Turning Twitter Vids Into GIFs</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-professional-fb-ad-videos-made-simple-free-kit-included-for-2024/"><u>[Updated] Professional FB Ad Videos Made Simple – Free Kit Included for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-taking-the-plunge-a-stepwise-strategy-to-set-up-your-personal-tech-review-platform/"><u>[Updated] Taking the Plunge A Stepwise Strategy to Set Up Your Personal Tech Review Platform</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-unlocking-the-potential-of-bandicam-your-ultimate-guide/"><u>[Updated] Unlocking the Potential of Bandicam – Your Ultimate Guide</u></a></li>
-<li><a href="https://win-able.techidaily.com/1723012288372-get-your-pcs-minecraft-back-to-playing-smoothly-fix-common-freeze-problems-today/"><u>Get Your PC's Minecraft Back to Playing Smoothly - Fix Common Freeze Problems Today</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/intels-strategy-unveiled-triple-threat-panther-lake-processors-set-to-power-new-laptops-after-retiring-the-lunar-series/"><u>Intel’s Strategy Unveiled: Triple-Threat Panther Lake Processors Set to Power New Laptops After Retiring the Lunar Series</u></a></li>
-<li><a href="https://fox-links.techidaily.com/streamlining-virtual-meetings-in-google-mail/"><u>Streamlining Virtual Meetings in Google Mail</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-your-ipad-as-a-creative-tool-for-time-lapse/"><u>[New] 2024 Approved Your iPad as a Creative Tool for Time Lapse</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-document-your-days-with-xiaomis-state-of-the-art-screenshot-tool-for-2024/"><u>[New] Document Your Days with Xiaomi's State-of-the-Art Screenshot Tool for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-essential-gif-tools-for-x876-owners/"><u>[New] Essential GIF Tools for X/8/7/6 Owners</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-audiopiece-recorder-guide-installation-and-test-for-2024/"><u>[Updated] AudioPiece Recorder Guide Installation & Test for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-your-first-encounter-with-snapseed-image-editing/"><u>[Updated] In 2024, Your First Encounter with Snapseed Image Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-inspirational-metaverse-sayings-arvr-edition/"><u>[Updated] Inspirational Metaverse Sayings AR/VR Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-visual-perfection-with-obs-studio-and-its-comprehensive-lut-support/"><u>[Updated] Visual Perfection with OBS Studio and Its Comprehensive LUT Support</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-connectivity-at-its-peak-usb-c-and-the-hp-envy-27-monitor/"><u>2024 Approved Connectivity at Its Peak USB-C & the HP Envy 27 Monitor</u></a></li>
+<li><a href="https://win11.techidaily.com/eliminate-entry-points-to-troubled-boots-in-win-writable-steps/"><u>Eliminate Entry Points to Troubled Boots in Win' Writable Steps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-audio-aesthetics-weaving-tunes-into-snapchat/"><u>In 2024, Audio Aesthetics Weaving Tunes Into Snapchat</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-multitasking-media-mastery-proficient-use-of-netflixs-pip-functionality/"><u>In 2024, Multitasking Media Mastery Proficient Use of Netflix’s PIP Functionality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ranked-slideshow-creation-software-on-latest-iphones-for-2024/"><u>Ranked Slideshow Creation Software on Latest iPhones for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/reveling-in-4k-an-in-depth-look-at-yis-hero-series-for-2024/"><u>Reveling in 4K An In-Depth Look at Yi’s HERO Series for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/successful-broadcom-gige-network-adapter-installation-guide-for-windows-11-users/"><u>Successful Broadcom GigE Network Adapter Installation Guide for Windows 11 Users</u></a></li>
 </ul></div>
 

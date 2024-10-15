@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Gradual Transition Tactics for Premiere Professionals for 2024"
-date: 2024-10-04T21:36:09.239Z
-updated: 2024-10-08T16:43:57.914Z
+date: 2024-10-12T18:22:00.361Z
+updated: 2024-10-15T18:27:05.689Z
 tags: 
   - screen-recording
   - ai video
@@ -99,7 +99,21 @@ Exponential Fade is opposite to constant power. It fades out the first clip and 
 
 ![exponential fade](https://images.wondershare.com/filmora/article-images/2022/03/exponential-fade.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Thus, now you know how to add crossfade in Premiere Pro smoothly.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3 Add Video fade in Premiere Pro
 
@@ -180,6 +194,13 @@ End At Cut: Adjust the end transition at the end of the first clip
 Start At Cut: Adjust the start of the transition at the beginning of the first clip. This is another method to add fade in the Premiere.
 
 ![start and end](https://images.wondershare.com/filmora/article-images/2022/03/start-and-end.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2 Fade In/Out sound on Premiere Pro
 
@@ -226,10 +247,10 @@ To add fade in Premiere Pro, navigate Effects > Video Transitions > Dissolve > F
 ![film dissolve](https://images.wondershare.com/filmora/article-images/2022/03/film-dissolve.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Fade in and out can be done using Film Dissolve found in the Video transitions folder.
@@ -247,13 +268,6 @@ It is possible to change the length of the Fade in and out effects after the fil
 ![change length](https://images.wondershare.com/filmora/article-images/2022/03/change-length.jpg)
 
 Short video transitions are the best between the clips for most transitions. No one would like to wait between two scenes, but there are situations you might want to extend. This is how to add fade in the premiere.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Tip: Fade In/Out Effects with Filmora
 
@@ -299,6 +313,13 @@ Initially, you need to apply the transition to add fading effects. First, choose
 
 ![apply transition](https://images.wondershare.com/filmora/article-images/2022/03/apply-transition.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2 Single-Sided Transitions
 
 When you place the transition on a single cut, click on Ctrl + drag on the transition to the timeline. Release the mouse when the “End at Cut” or “Start at Cut” icon appears.
@@ -309,13 +330,6 @@ Start At Cut: Adjust the start of the transition at the beginning of the first c
 
 ![start and end](https://images.wondershare.com/filmora/article-images/2022/03/start-and-end.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2 Fade In/Out sound on Premiere Pro
 
 Are you in doubt about how to fade background music in Premiere Pro? A crossfade is an essential tool for smooth video effects where viewers cannot notice any cuts between the videos, which can be valuable for both video and audio. There are two types of crossfading, either by using keyframes manually or using transitions pre-built in Premiere Pro.
@@ -325,10 +339,10 @@ Let’s learn how to add crossfade in Premiere. There are three types of crossfa
 ![types of crossfade](https://images.wondershare.com/filmora/article-images/2022/03/types-of-crossfade.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can find these options in Effects > Audio Transitions > Crossfade available in the project panel. This is how to add a crossfade in Premiere with just three simple steps. There are three types of crossfade available in Premiere Pro, and below is a brief description of them.
@@ -339,6 +353,13 @@ The constant gain crossfades are employed to vary the audio at a constant rate a
 
 ![constant gain](https://images.wondershare.com/filmora/article-images/2022/03/constant-gain.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 But this constant gain generally seems to be noise and not smooth compared to continuous power. Let us discuss this next.
 
 ### Constant Power
@@ -347,13 +368,6 @@ Constant Power crossfade creates a smooth, gradual transition effect analogous t
 
 ![constant power](https://images.wondershare.com/filmora/article-images/2022/03/constant-power.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Compared to all other crossfades, constant power is the best audio crossfade. This will be giving a more smoothing effect and gradual shift in gain between the clips, nothing more apparent changes during the transition. This is how to fade in sound on Premiere Pro using constant power crossfade.
 
 ### Exponential Fade
@@ -361,6 +375,13 @@ Compared to all other crossfades, constant power is the best audio crossfade. Th
 Exponential Fade is opposite to constant power. It fades out the first clip and disappears in the second clip, which brings a smooth logarithmic curve. This is how to add exponential Fade in Premiere Pro to the video.
 
 ![exponential fade](https://images.wondershare.com/filmora/article-images/2022/03/exponential-fade.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Thus, now you know how to add crossfade in Premiere Pro smoothly.
 
@@ -374,13 +395,6 @@ To add fade in Premiere Pro, navigate Effects > Video Transitions > Dissolve > F
 
 ![film dissolve](https://images.wondershare.com/filmora/article-images/2022/03/film-dissolve.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Fade in and out can be done using Film Dissolve found in the Video transitions folder.
 
 ##### Step 2 Appling Fade in/out
@@ -394,13 +408,6 @@ In Adobe Premiere, add Fade in or out, click and hold on Film Dissolve effect. D
 It is possible to change the length of the Fade in and out effects after the film dissolve is applied. You can notice that the Fade gets added between the clip. Inside the video, there is a small box. You can click on it drag their edges to increase the duration of the fade-in/out in the video.
 
 ![change length](https://images.wondershare.com/filmora/article-images/2022/03/change-length.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Short video transitions are the best between the clips for most transitions. No one would like to wait between two scenes, but there are situations you might want to extend. This is how to add fade in the premiere.
 
@@ -465,13 +472,6 @@ Are you in doubt about how to fade background music in Premiere Pro? A crossfade
 Let’s learn how to add crossfade in Premiere. There are three types of crossfade available in the Premiere: constant gain, constant power, and exponential power to fade music. Lets us discuss how to add music fade in Premiere Pro.
 
 ![types of crossfade](https://images.wondershare.com/filmora/article-images/2022/03/types-of-crossfade.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can find these options in Effects > Audio Transitions > Crossfade available in the project panel. This is how to add a crossfade in Premiere with just three simple steps. There are three types of crossfade available in Premiere Pro, and below is a brief description of them.
 
@@ -567,21 +567,24 @@ Thus, in this guide, you learned how to add fade-in Premiere and proper edits to
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-10-secret-photoshop-photo-editing-tips-for-beginners/"><u>[New] 2024 Approved 10 Secret Photoshop Photo Editing Tips for Beginners</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-unveiling-the-art-of-podcast-rss-mastery/"><u>[New] In 2024, Unveiling the Art of Podcast RSS Mastery</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-inside-virtual-worlds-todays-insights-and-tomorrows-trials-for-2024/"><u>[New] Inside Virtual Worlds Today's Insights & Tomorrow's Trials for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-advanced-photo-manipulation-focus-on-content-not-backdrop/"><u>[Updated] 2024 Approved Advanced Photo Manipulation Focus on Content, Not Backdrop</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-how-to-build-circles-and-spheres-in-minecraft/"><u>[Updated] 2024 Approved How to Build Circles and Spheres in Minecraft</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-step-by-step-lenovo-laptop-screen-recording/"><u>[Updated] 2024 Approved Step-by-Step Lenovo Laptop Screen Recording</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-essential-tips-for-combining-srt-with-mp4-video-content/"><u>[Updated] In 2024, Essential Tips for Combining SRT with MP4 Video Content</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-transforming-team-conversation-windows-pre-and-post-calls/"><u>[Updated] In 2024, Transforming Team Conversation Windows Pre & Post-Calls</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/accelerating-videos-an-easy-start-with-snapchat/"><u>Accelerating Videos An Easy Start with Snapchat</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/bose-soundsport-frames-unveiled-excellent-audio-plus-solar-defense/"><u>Bose Soundsport Frames Unveiled: Excellent Audio + Solar Defense</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-realme-c67-4g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Realme C67 4G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-breaking-down-the-process-of-adding-fonts-to-ae-projects/"><u>In 2024, Breaking Down the Process of Adding Fonts to AE Projects</u></a></li>
-<li><a href="https://fox-links.techidaily.com/masterclass-building-hype-with-solo-podcasts-for-2024/"><u>Masterclass Building Hype with Solo Podcasts for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-wonders-of-windows-11/"><u>New Wonders of Windows 11</u></a></li>
-<li><a href="https://common-error.techidaily.com/noise-free-viewing-effective-methods-for-restoring-sound-on-netflix/"><u>Noise-Free Viewing: Effective Methods for Restoring Sound on Netflix</u></a></li>
-<li><a href="https://fox-links.techidaily.com/unlocking-the-secrets-of-periscope-mastery-for-2024/"><u>Unlocking the Secrets of Periscope Mastery for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/1716069497692-new-in-2024-high-quality-video-calling-solutions-top-10-best-apps-ranked/"><u>[New] In 2024, High-Quality Video Calling Solutions Top 10 Best Apps Ranked!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-inside-look-whatsapps-voice-message-technology-for-2024/"><u>[New] Inside Look WhatsApp's Voice Message Technology for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-advanced-method-for-combining-gopro-footage-with-full-spherical-vids-for-2024/"><u>[Updated] Advanced Method for Combining GoPro Footage with Full Spherical Vids for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-audacitys-annotated-guide-for-amplifying-transitions/"><u>[Updated] Audacity's Annotated Guide for Amplifying Transitions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-childs-play-top-5-fun-flying-toys-reviewed-for-2024/"><u>[Updated] Child's Play Top 5 Fun Flying Toys Reviewed for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-memes-for-iphone/"><u>[Updated] Memes for iPhone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-10-best-introduction-editors-apps/"><u>[Updated] Top 10 Best Introduction Editors (Apps)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-videology-app-analysis-and-ratings/"><u>[Updated] Videology App Analysis & Ratings</u></a></li>
+<li><a href="https://fox-links.techidaily.com/essential-sites-for-watching-vr-media/"><u>Essential Sites for Watching VR Media</u></a></li>
+<li><a href="https://fox-links.techidaily.com/exploring-the-world-with-a-vr-headset-for-2024/"><u>Exploring the World with a VR Headset for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-pro-max-without-passcode-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 15 Pro Max Without Passcode? 4 Easy Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-onscreen-excellence-flexible-talent-access/"><u>In 2024, Onscreen Excellence Flexible Talent Access</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-promotional-planning-perfection/"><u>In 2024, Promotional Planning Perfection</u></a></li>
+<li><a href="https://fox-access.techidaily.com/melodic-matchmaking-complementary-soundtracks-for-boxings-for-2024/"><u>Melodic Matchmaking Complementary Soundtracks for Boxings for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/quick-start-how-to-preserve-your-favorite-internet-streams/"><u>Quick Start How To Preserve Your Favorite Internet Streams</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/streamline-your-roblox-recording-mac-guide-for-2024/"><u>Streamline Your Roblox Recording Mac Guide for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-razr-40-ultra-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Razr 40 Ultra without backup.</u></a></li>
+<li><a href="https://win-guides.techidaily.com/understanding-the-scope-of-article-2-is-essential-for-determining-the-rules-governing-a-contract-involving-goods/"><u>Understanding the Scope of Article 2 Is Essential for Determining the Rules Governing a Contract Involving Goods.</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Xiaomi Redmi K70 Pro? | Dr.fone</u></a></li>
 </ul></div>
 

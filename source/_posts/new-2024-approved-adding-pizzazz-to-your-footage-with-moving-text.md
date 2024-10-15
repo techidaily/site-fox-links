@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Adding Pizzazz to Your Footage with Moving Text\""
-date: 2024-10-05T20:18:02.107Z
-updated: 2024-10-08T16:10:02.995Z
+date: 2024-10-12T18:06:23.278Z
+updated: 2024-10-15T20:16:10.636Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,13 @@ Small company product videos, social media promos, webinars, infomercials, and o
 ## Part 1\. How to Add Free Animation to Video Online
 
 With the help of the text animation tool [Kapwing](https://www.kapwing.com/animated-text-video-maker), users may include moving text in their films or photographs. The fact that you can upload any text or an existing one to the app and then add your own voice to make the text speak makes it simple to use. Kapwing provides some of the fundamental tools required to make a video with animated text. Your movie may have background music added, and you can choose how quickly you want the animated text to move.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **How to Add Free Animation Using Kapwing**
 
@@ -77,6 +84,19 @@ To fit the longest name or title that will be entered on the same toolbar as the
 
 ![make your animated text](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Add Keyframing
 
 To add life and movement to your videos, use animation effects and keyframing. It streamlines animation and makes it possible to quickly apply modifications like expanding, rotating, and narrowing. Filmora will automatically add all the intermediate frames while maintaining coherence if you just choose the starting and finishing keyframes. The location, transparency, size, and other characteristics of keyframes may all be changed.
@@ -84,6 +104,13 @@ To add life and movement to your videos, use animation effects and keyframing. I
 ##### Step5 Export the Animated Content
 
 Simply click the Export button in the top-right corner of the screen, as shown below, to export the text animations as a GIF whenever you're done using them in your projects. In addition to using the desired format option in the export box, you may now select to share your work directly from your official YouTube account with just one click.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. How to Add Free Animation to Video on Mac
 
@@ -119,13 +146,6 @@ After finishing your Keynote text animation, export it sing Share > File and the
 
 ![export media from imovie](https://images.wondershare.com/filmora/article-images/2022/09/export-media-from-imovie.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4\. How to Add Free Animation to Video on Mobile
 
 Making films with animated text is a breeze with Textro, a video editing program that enables you to add text and add animated text effects like shadow, light, reflection, etc. to your texts. Your videos will appear polished in no time! You may make a fantastic film with mixed media material by using the program, which also permits adding photographs, videos, and other images to your video.
@@ -137,6 +157,13 @@ Utilizing Textro is quite easy. All you have to do is choose the items you want 
 To get started, just download the app. It will ask you to add text when you first run the software.
 
 ![download textro animated editor](https://images.wondershare.com/filmora/article-images/2022/09/download-textro-animated-editor.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step2 Add Text and Customize
 
@@ -169,10 +196,10 @@ Right after installing the program, you need to launch the Video editor and the 
 ![add media to software](https://images.wondershare.com/filmora/guide/startup-window-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step2 Add Texts to Videos
@@ -195,13 +222,6 @@ To add life and movement to your videos, use animation effects and keyframing. I
 
 Simply click the Export button in the top-right corner of the screen, as shown below, to export the text animations as a GIF whenever you're done using them in your projects. In addition to using the desired format option in the export box, you may now select to share your work directly from your official YouTube account with just one click.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. How to Add Free Animation to Video on Mac
 
 Filmora is more than simply a tool for video editing; it also enables users to animate words with a variety of effects, including reflection, shadow, transparency, and more. However, you may use Apple Inc.'s iMovie program to get started with a built-in toolbox. In this way, video editing may be started on a mobile device and finished on a Mac computer. Users of the program may rotate the letters by modifying their angle, size, and location so that it perfectly complements their backdrop video or picture.
@@ -218,25 +238,11 @@ The next step is to import your video, Download the picture, open it in any phot
 
 ![import video into imovie](https://images.wondershare.com/filmora/article-images/2022/09/import-video-into-imovie.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3 Add and Edit Text
 
 The title in the preview may be clicked to alter the text. Additionally, you may alter the font, color, and orientation. Although you can't change the animation, some of the pre-made transitions are pretty good. The duration may also be changed by dragging the text's boundary on your timeline.
 
 ![add edit text imovie](https://images.wondershare.com/filmora/article-images/2022/09/add-edit-text-imovie.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step4 Include Animations to Texts
 
@@ -244,18 +250,18 @@ Now choose the appropriate title under the Titles menu. You may get a brief live
 
 ![include animation to text imovie](https://images.wondershare.com/filmora/article-images/2022/09/include-animation-to-text-imovie.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step5 Export the Project
 
 After finishing your Keynote text animation, export it sing Share > File and then select the format. To obtain the best results, be sure to export in high resolution for a better experience.
 
 ![export media from imovie](https://images.wondershare.com/filmora/article-images/2022/09/export-media-from-imovie.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4\. How to Add Free Animation to Video on Mobile
 
@@ -275,6 +281,13 @@ By clicking the random button, you may create an entirely new color combination 
 
 ![add text textro](https://images.wondershare.com/filmora/article-images/2022/09/add-text-textro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Add Animated Template and Customize
 
 From the list of templates in both Fonts and Colors tab, select the best suited one and add it to the text. In this way, you can add text adjustments while customizations hand in hand.
@@ -288,17 +301,10 @@ Finally, after the necessary customizations, may be saved to your phone or immed
 ![save project textro](https://images.wondershare.com/filmora/article-images/2022/09/save-project-textro.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -329,22 +335,21 @@ After all, during the last several years, videos have been one of the most popul
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-cartooncraft-master-guide-24-report/"><u>[New] 2024 Approved CartoonCraft Master Guide '24 Report</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-craft-humorous-images-on-no-cost/"><u>[New] Craft Humorous Images on No-Cost</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-exquisite-quintet-of-precision-engineered-cameras/"><u>[New] In 2024, Exquisite Quintet of Precision-Engineered Cameras</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-ultimate-m1-macbook-showdown-light-vs-powerhouse/"><u>[New] In 2024, The Ultimate M1 MacBook Showdown Light vs Powerhouse</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-innovative-approaches-in-micro-cinematography-for-2024/"><u>[New] Innovative Approaches in Micro Cinematography for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-savvy-soccer-snatching-how-to-record-and-cut-cheap/"><u>[New] Savvy Soccer Snatching How to Record and Cut Cheap</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-vs-dailymention-spotlighting-key-aspects/"><u>[New] YouTube Vs. DailyMention Spotlighting Key Aspects</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-top-text-tilt-treasures/"><u>[Updated] 2024 Approved Top Text Tilt Treasures</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-chat-commander-the-ultimate-guide-to-text-from-voice/"><u>[Updated] Chat Commander The Ultimate Guide to Text From Voice</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-a-drone-transformed-with-yuneecs-typhoon-q500/"><u>[Updated] In 2024, A Drone Transformed with Yuneec's Typhoon Q500</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-altering-game-console-speech-ps5ps4-upgrades/"><u>[Updated] In 2024, Altering Game Console Speech PS5/PS4 Upgrades</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-memo-menagerie-the-ultimate-list-of-meme-generators/"><u>[Updated] Memo Menagerie The Ultimate List of Meme Generators</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/beyond-syntax-understanding-gptbots-impact-and-site-restrictions/"><u>Beyond Syntax: Understanding GPTBot's Impact and Site Restrictions</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-fix-your-connection-isnt-private-message-in-mozilla-firefox/"><u>How to Fix 'Your Connection Isn't Private' Message in Mozilla Firefox</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-best-aif-to-mp3-converter-convert-audio-files-easily-and-quickly/"><u>New Best AIF to MP3 Converter Convert Audio Files Easily and Quickly</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-ultimate-tiktok-video-locker-free-and-clear-for-2024/"><u>The Ultimate TikTok Video Locker - FREE & Clear for 2024</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/transformacion-libre-de-mp4-a-mov-online-por-movavi-guia-paso-a-paso/"><u>Transformación Libre De MP4 a MOV Online Por Movavi: Guía Paso a Paso</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-a-detailed-list-of-top-free-cross-platform-mobile-video-chats/"><u>[New] 2024 Approved A Detailed List of Top Free, Cross-Platform Mobile Video Chats</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-meme-milestones-crafting-jokes-for-lifes-turning-points/"><u>[New] 2024 Approved Meme Milestones Crafting Jokes for Life's Turning Points</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-precision-subtitle-tweaking-for-the-mac-pro-user/"><u>[New] 2024 Approved Precision Subtitle Tweaking for the Mac Pro User</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-accelerated-adventures-fastest-flash-games-on-devices/"><u>[New] Accelerated Adventures Fastest Flash Games on Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-selective-slideshow-software-for-xrxsx-models/"><u>[New] In 2024, Selective Slideshow Software for Xr/XS/X Models</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/solved-logitech-g433-mic-not-working/"><u>[SOLVED] Logitech G433 Mic Not Working</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-unlock-superior-mac-gif-capture-with-these-apps-for-2024/"><u>[Updated] Unlock Superior Mac GIF Capture with These Apps for 2024</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/1728507230687-hdd/"><u>外部HDDに安全な段階的バックアップ手順ガイド</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-our-picks-the-7-greatest-no-cost-music-streamers-for-mobile-users/"><u>Discover Our Picks: The 7 Greatest No-Cost Music Streamers for Mobile Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/elevate-your-design-skills-mastering-3d-text-effects/"><u>Elevate Your Design Skills Mastering 3D Text Effects</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-embedded-recorder-usage-in-huaweis-mate-series-and-the-p-lineup/"><u>In 2024, Embedded Recorder Usage in Huawei's Mate Series and the P Lineup</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/perfect-star-wars-viewing-sequence-the-official-disneyplus-order/"><u>Perfect Star Wars Viewing Sequence: The Official Disney+ Order</u></a></li>
+<li><a href="https://fox-links.techidaily.com/tailored-titling-for-stellar-online-video-content-for-2024/"><u>Tailored Titling for Stellar Online Video Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-hash-playbook-for-video-gamers-on-youtube-for-2024/"><u>The Ultimate Hash Playbook for Video Gamers on YouTube for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/transform-your-images-erase-backdrops-with-canva-skills/"><u>Transform Your Images Erase Backdrops with Canva Skills</u></a></li>
 </ul></div>
 

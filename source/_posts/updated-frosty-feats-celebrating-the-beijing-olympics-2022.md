@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Frosty Feats  Celebrating the Beijing Olympics, 2022\""
-date: 2024-09-16T21:29:38.771Z
-updated: 2024-09-21T19:16:08.303Z
+date: 2024-10-10T18:31:14.479Z
+updated: 2024-10-15T18:20:13.819Z
 tags: 
   - screen-recording
   - ai video
@@ -35,7 +35,21 @@ American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowb
 
 ![lindsey jacobellis wins the gold medal](https://images.wondershare.com/filmora/article-images/lindsey-jacobellis-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. Nathan Chen Breaks World Record
 
@@ -51,14 +65,14 @@ Injuries are part of sports events but some injuries are gruesome and are result
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
-She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
@@ -84,6 +98,13 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
 
 21-year-old Chloe Kim became back-to-back Olympic champion by dominating in the halfpipe. The American confirmed a gold medal on the first run itself. Her runs had 1080, a switch 900, and a switch backside of 540\. It further added another 1080\. She dominated the Snowboarding Women's Halfpipe Final with 94 points. Spain's Queralkt Castellet won silver and the bronze went to Sena Tomita of Japan.
@@ -93,10 +114,10 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
@@ -105,27 +126,20 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
@@ -136,10 +150,10 @@ Doping scandals have become a part of the Olympics and this year is no different
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
@@ -161,5 +175,22 @@ However, due to some miscommunication, she was allowed to be a participant in th
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-basic-techniques-transforming-fishy-chatter-in-the-win-world/"><u>[New] 2024 Approved Basic Techniques Transforming Fishy Chatter in the Win World</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-countdown-chronicles-the-best-mobile-clocks-for-weddings/"><u>[New] Countdown Chronicles The Best Mobile Clocks For Weddings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-step-by-step-guide-to-flawless-zoom-screen-sharing/"><u>[New] In 2024, Step-by-Step Guide to Flawless Zoom Screen Sharing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-tailored-treasure-troves-the-ultimate-list-of-online-box-sellers-for-2024/"><u>[New] Tailored Treasure Troves The Ultimate List of Online Box Sellers for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-action-spectacle-evaluating-hero5b-vs-hero5-session-performance-for-2024/"><u>[Updated] Action Spectacle Evaluating Hero5B vs Hero5 Session Performance for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-innovative-methods-for-time-loop-illusions-for-2024/"><u>[Updated] Innovative Methods for Time Loop Illusions for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-optimize-your-facebook-streaming-experience-with-these-methods/"><u>[Updated] Optimize Your Facebook Streaming Experience with These Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-zenith-pinnacle-software-testing/"><u>[Updated] Zenith Pinnacle Software Testing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/re-the-8-premier-zero-cost-video-editors-for-social-media-pros-for-2024/"><u>Explore the 8 Premier Zero-Cost Video Editors for Social Media Pros for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/has-support-ended-for-this-product-or-service/"><u>Has Support Ended For This Product or Service?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-chronological-clarity-in-your-photographic-work/"><u>In 2024, Chronological Clarity in Your Photographic Work</u></a></li>
+<li><a href="https://article-files.techidaily.com/subtitle-savant-strategies-for-unparalleled-srt-file-creation/"><u>Subtitle Savant Strategies for Unparalleled SRT File Creation</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-digital-artisans-guide-mastering-screen-recordings-in-macos/"><u>The Digital Artisan's Guide Mastering Screen Recordings in macOS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-lidar-in-robotic-cleaning-a-closer-look-at-dreame-bot-l10-pro-review/"><u>Unveiling the Power of LiDAR in Robotic Cleaning - A Closer Look at Dreame Bot L10 Pro Review</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/warzone-screen-blankness-a-guide-to-resolving-the-issue-for-gamers-in-2atury-2024/"><u>Warzone Screen Blankness - A Guide to Resolving the Issue for Gamers in 2Atury 2024</u></a></li>
+</ul></div>
 

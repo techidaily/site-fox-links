@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Transforming Simple Videos  Text Addition in Windows 10'S Photos Software for 2024\""
-date: 2024-10-07T04:54:31.076Z
-updated: 2024-10-08T21:15:26.323Z
+date: 2024-10-14T17:54:53.686Z
+updated: 2024-10-15T17:59:59.438Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -67,13 +74,6 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -81,10 +81,10 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
@@ -92,19 +92,19 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -138,22 +138,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-a-straightforward-approach-to-image-distortion/"><u>[New] A Straightforward Approach to Image Distortion</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-elaborate-study-of-uncomplicated-hdr-techniques/"><u>[New] In 2024, Elaborate Study of Uncomplicated HDR Techniques</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/iniature-harmonies-character-music-journey/"><u>[New] Miniature Harmonies Character Music Journey</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-top-social-network-sites-for-youtube-growth/"><u>[New] Top Social Network Sites for YouTube Growth</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solved-steelseries-arctis-1-mic-not-working/"><u>[SOLVED] SteelSeries Arctis 1 Mic Not Working</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-is-inshot-leading-video-editing-an-examination-review/"><u>[Updated] 2024 Approved Is InShot Leading Video Editing? An Examination Review</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-top-5-ps2-emulation-apps-for-android-devices/"><u>[Updated] 2024 Approved Top 5 PS2 Emulation Apps for Android Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-estimating-film-budget-the-cost-of-capturing-melodies-visually-for-2024/"><u>[Updated] Estimating Film Budget The Cost of Capturing Melodies Visually for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-step-by-step-building-a-viral-instagram-film-empire-for-2024/"><u>[Updated] Step-by-Step Building a Viral Instagram Film Empire for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-tecno-phantom-v-fold-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Tecno Phantom V Fold Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/crafting-compelling-movie-previews-for-2024/"><u>Crafting Compelling Movie Previews for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-motorola-g54-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Motorola G54 5G Location | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/mastering-pubg-effective-techniques-for-altering-your-vocal-presence-for-2024/"><u>Mastering PUBG Effective Techniques for Altering Your Vocal Presence for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1723807967805-skyrim-special-edition-fps-boost-2024-fix/"><u>Skyrim Special Edition FPS Boost - 2024 Fix</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unleash-the-potential-effective-pip-use-on-microsoft-edge-browser/"><u>Unleash the Potential Effective PIP Use on Microsoft Edge Browser</u></a></li>
-<li><a href="https://fox-links.techidaily.com/unlock-full-media-potential-with-funimate-tools-for-2024/"><u>Unlock Full Media Potential with Funimate Tools for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unmasking-momentum-makers-seeking-out-niche-influencers-for-2024/"><u>Unmasking Momentum Makers Seeking Out Niche Influencers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-audiences-take-gopro-hero5-footage/"><u>[New] 2024 Approved Audience's Take GoPro Hero5 Footage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-drone-reality-check-gopro-karma-in-action/"><u>[New] In 2024, Drone Reality Check GoPro Karma in Action</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-sprint-showcase-short-track-22-glory/"><u>[New] In 2024, Sprint Showcase Short Track '22 Glory</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-premier-pro-ultimate-2023-template-giveaway/"><u>[New] Premier Pro Ultimate 2023 Template Giveaway</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-ultimate-online-livestream-technology/"><u>[New] Ultimate Online Livestream Technology</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-appreciation-series-unlimited-freepaid-otus/"><u>[Updated] 2024 Approved Appreciation Series Unlimited Free/Paid OTUs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-djis-new-frontier-mavic-air-vs-spark-in-gamers-eyes-for-2024/"><u>[Updated] DJI’s New Frontier Mavic Air Vs. Spark in Gamer's Eyes for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-tech-innovator-point-of-view-unveiling-the-best-fb-video-downloaders-on-android/"><u>[Updated] In 2024, Tech Innovator' Point of View Unveiling the Best FB Video Downloaders on Android</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-podcast-streaming-trick-quick-play-upgrade-for-2024/"><u>[Updated] Top Podcast Streaming Trick - Quick Play Upgrade for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prime-focus-systems-ultimate-4k-dslr-rig-guide/"><u>2024 Approved Prime Focus Systems Ultimate 4K DSLR Rig Guide</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-motorola-edge-40-pro-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhanced-eyes-complimentary-mobile-picture-upgrade-for-2024/"><u>Enhanced Eyes Complimentary Mobile Picture Upgrade for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-level-iphone-video-editor-factory-pro-software-suite/"><u>Expert-Level iPhone Video Editor: Factory Pro Software Suite</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-role-of-burst-mode-in-action-sports-filming/"><u>In 2024, The Role of Burst Mode in Action Sports Filming</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/step-by-step-guide-restoring-your-macbook-air-to-factory-settings/"><u>Step-by-Step Guide: Restoring Your MacBook Air to Factory Settings</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-motorola-moto-g-stylus-5g-2023-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Motorola Moto G Stylus 5G (2023) Phone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-concentration-8-effective-chatgpt-queries-for-a-distraction-less-digital-experience/"><u>Unlocking Concentration: 8 Effective ChatGPT Queries for a Distraction-Less Digital Experience</u></a></li>
 </ul></div>
 

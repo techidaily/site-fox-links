@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Definitive Guide to SRT Editing on Mac for 2024"
-date: 2024-09-15T18:25:53.916Z
-updated: 2024-09-16T17:07:27.308Z
+date: 2024-10-09T19:49:12.819Z
+updated: 2024-10-15T18:01:20.724Z
 tags: 
   - screen-recording
   - ai video
@@ -123,25 +123,11 @@ Step3 Open your video file on the VLC player by double-clicking on the movie and
 
 ![tap on the file tab](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 The video will begin playing. Go to the menu bar and click on the Subtitles tab > choose the “Add Subtitle File…” button.
 
 ![choose the add subtitle file button](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-5.jpg)
 
 Step5 Choose the SRT file from your device and then load it.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Use a Browser-based Online Tool like HappyScribe on Mac
 
@@ -173,19 +159,6 @@ Step1 Open HappyScribe through your preferred browser. Press the Upload a File o
 
 ![press the upload a file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Tap the "Autogenerate subtitles" option, or you can browse for suitable SRT files.
 
 ![browse for suitable subtitles](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-7.jpg)
@@ -207,6 +180,13 @@ Step1 Open your chosen browser, and search the Caption Converter-Rev tool. Acces
 Step2 Click on the “Select Caption Files” option and press the “SELECT .SRT FILES” choice in red button form. Add the SRT file(s) you want to edit.
 
 ![press the select srt files option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Choose the output format for the file. Choose QT available in the fourth spot.
 
@@ -250,11 +230,25 @@ Step3 Right-click your cursor on the editor timeline > Choose the Advanced Edit 
 
 ![choose the advanced edit option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Alternatively, double-click on top of the chosen SRT file and clip it.
 
 Step4 Make customizations, like changing the text, editing the timecode, adjusting the font style, and merging/adding/deleting the text strips. Press OK after you are done.
 
 ![press ok after you are done](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 Choose the edited SRT file on the editor timeline. Right-click and choose the “Export Subtitle File” option.
 
@@ -278,16 +272,16 @@ The SRT file is typically a plain text-based file with time markers, sequence nu
 
 However, the QuickTime player on Mac does not always support SRT in videos. You have to convert them to a format the QuickTime Player supports or utilize a third-party **SRT editor Mac** allows.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: What Programs can open SRT Files on Mac, and How to do it?
 
 Indeed, you have to install specific types of software on your Mac device if you want to **SRT edit Mac-**based videos. Specific programs support the SRT file in media files on Mac devices. You must use these tools separately to open and edit the SRT file.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 1: Open SRT files on Mac using TextEdit
 
@@ -426,13 +420,6 @@ Step2 Click on the “Select Caption Files” option and press the “SELECT .SR
 
 ![press the select srt files option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Choose the output format for the file. Choose QT available in the fourth spot.
 
 ![choose the output format](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-9.jpg)
@@ -448,6 +435,20 @@ Step6 Access the video file and press View > Subtitles. Press the submenu and ch
 Step7 Click on the Windows tab > Properties and make adjustments to the file.
 
 ![make adjustments to the file](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: The Best Way to Edit .SRT Files for Videos on Mac
 
@@ -469,6 +470,19 @@ Step1 Launch Filmora on Mac and click on New Project. Add the video file and dra
 
 ![launch filmora on mac](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-12.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Click on the Media tab and import the SRT file.
 
 Step3 Right-click your cursor on the editor timeline > Choose the Advanced Edit option.
@@ -484,6 +498,13 @@ Step4 Make customizations, like changing the text, editing the timecode, adjusti
 Step5 Choose the edited SRT file on the editor timeline. Right-click and choose the “Export Subtitle File” option.
 
 ![choose the export subtitle file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-15.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -519,5 +540,22 @@ URL for VLC on Mac steps/pics: <https://videoconverter.wondershare.com/subtitle/
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-10plus-top-videos-and-tutorials-on-best-iphoneipad-editing-tools/"><u>[New] 2024 Approved 10+ Top Videos & Tutorials on Best iPhone/iPad Editing Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-stepping-into-the-spotlight-5-core-principles-for-social-media-promotion/"><u>[New] 2024 Approved Stepping Into the Spotlight 5 Core Principles for Social Media Promotion</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-capturing-every-angle-not-just-a-single-plane-for-2024/"><u>[New] Capturing Every Angle, Not Just a Single Plane for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-decoding-photopeas-art-of-backdrop-elimination-for-2024/"><u>[New] Decoding Photopea's Art of Backdrop Elimination for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-transforming-perceptions-with-virtual-tour-experiences/"><u>[New] In 2024, Transforming Perceptions with Virtual Tour Experiences</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-journey-through-hdr-with-asuss-top-4k-professional-monitor/"><u>[Updated] 2024 Approved Journey Through HDR with ASUS's Top 4K Professional Monitor</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-h501x4-fpv-quadcopter-unveiled-review-breakdown/"><u>[Updated] In 2024, H501X4 FPV Quadcopter Unveiled - Review Breakdown</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-navigating-through-the-maze-creating-seamless-video-experienences-in-pixiz/"><u>[Updated] In 2024, Navigating Through the Maze Creating Seamless Video Experienences in Pixiz</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/discover-frames-top-online-resources-for-picture-edits/"><u>Discover Frames Top Online Resources for Picture Edits</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-why-you-shouldnt-overlook-the-oneplus-nord-n1-5g-smartphone/"><u>Discover Why You Shouldn't Overlook the OnePlus Nord N1# 5G Smartphone!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/dive-into-dynamic-footage-the-review-of-polaroid-cubeplus-for-2024/"><u>Dive Into Dynamic Footage The Review of Polaroid Cube+ for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-motorola-razr-40-ultra-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Motorola Razr 40 Ultra to iPod | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-taking-control-of-a-stopped-up-obs-capture-device/"><u>In 2024, Taking Control of a Stopped-Up OBS Capture Device</u></a></li>
+<li><a href="https://fox-links.techidaily.com/picsart-remove-bg-comprehensive-tutorial/"><u>Picsart Remove Bg Comprehensive Tutorial</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-hp-omen-obelisk-unveiled-where-budget-meets-high-end-gaming-performance/"><u>The HP Omen Obelisk Unveiled: Where Budget Meets High-End Gaming Performance</u></a></li>
+</ul></div>
 

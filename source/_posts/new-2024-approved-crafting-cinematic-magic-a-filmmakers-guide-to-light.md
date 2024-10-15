@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Crafting Cinematic Magic  A Filmmaker's Guide to Light\""
-date: 2024-09-17T23:44:04.435Z
-updated: 2024-09-22T01:16:38.882Z
+date: 2024-10-12T16:35:38.582Z
+updated: 2024-10-15T18:57:33.063Z
 tags: 
   - screen-recording
   - ai video
@@ -97,6 +97,13 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -129,12 +136,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-step-by-step-guide-to-synchronized-camscreen-capture/"><u>[New] 2024 Approved Step-by-Step Guide to Synchronized Cam/Screen Capture</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-cultivating-community-communication-tips-for-youtube-enthusiasts-for-2024/"><u>[New] Cultivating Community Communication Tips for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-digital-color-standards-in-review-rgb-vs-srgb-breakdown-for-2024/"><u>[New] Digital Color Standards in Review Rgb vs Srgb Breakdown for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-portable-visual-tinkering-a-lut-enthusiasts-guide/"><u>[New] Portable Visual Tinkering A LUT Enthusiast's Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unlock-visual-impact-with-these-7-graders-secrets-for-2024/"><u>[New] Unlock Visual Impact with These 7 Graders' Secrets for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-become-a-pro-at-setting-up-vrecorder-fast-for-2024/"><u>[Updated] Become a Pro at Setting Up VRecorder Fast for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-behind-the-scenes-look-at-dji-inspire-2/"><u>[Updated] Behind-the-Scenes Look at DJI Inspire 2</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-transforming-your-zip-archive-into-an-srt-subtitle-file/"><u>[Updated] Transforming Your Zip Archive Into an Srt Subtitle File</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-powered-excel-improving-efficiency-and-accuracy/"><u>ChatGPT-Powered Excel: Improving Efficiency and Accuracy</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/criando-aperto-com-stop-motion-guia-completo-de-curso-e-referencia-visual/"><u>Criando Aperto Com Stop Motion: Guia Completo De Curso E Referência Visual</u></a></li>
+<li><a href="https://fox-links.techidaily.com/elevating-photography-through-editing-knowledge/"><u>Elevating Photography Through Editing Knowledge</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/essential-steps-to-boost-your-instagram-unboxings-for-2024/"><u>Essential Steps to Boost Your Instagram Unboxings for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-discover-the-best-11-waterproof-cams-ideal-for-young-vloggers/"><u>In 2024, Discover The Best 11 Waterproof Cams Ideal for Young Vloggers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-quintessential-quest-for-stories-worlds-best-1-8-schools/"><u>In 2024, The Quintessential Quest for Stories – World's Best #1-#8 Schools</u></a></li>
+<li><a href="https://win-blog.techidaily.com/master-fixes-to-get-your-battlenet-up-and-running-again-in-202eby/"><u>Master Fixes to Get Your Battle.net Up and Running Again in 202Eby</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-tutorial-for-setting-up-wake-on-lan-on-microsofts-latest-operating-systems/"><u>Step-by-Step Tutorial for Setting Up Wake-on-LAN on Microsoft's Latest Operating Systems</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/steps-to-restrict-youtube-viewing-on-your-ipad-device/"><u>Steps to Restrict YouTube Viewing on Your iPad Device</u></a></li>
+</ul></div>
 

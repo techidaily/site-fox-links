@@ -1,7 +1,7 @@
 ---
 title: "\"Unveiling the Magic of AR  Mastering LUT Applications\""
-date: 2024-09-15T03:51:51.555Z
-updated: 2024-09-21T23:38:15.361Z
+date: 2024-10-10T17:50:35.886Z
+updated: 2024-10-15T19:34:54.890Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,13 @@ The patch graph that renders the color gradation effect looks like this:
 * ColorLUTShader looks up the RGBA values of this texture in the Tension color LUT array and converts them to a new green color. This will change the texture and create a gradient effect.
 * Finally, the Screen Output patch renders the green color.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Free LUTs resource for Spark AR
 
 Here are the best free LUTs resources for Spark AR:
@@ -76,10 +83,10 @@ Client filter pieces occasionally end up on the scrap heap. It was a poor Frost 
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Fur
@@ -96,10 +103,10 @@ Here are the key building principles.
 ![fur](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Shockwave
@@ -109,10 +116,16 @@ Even while using large image sequences is frequently discouraged, you can still 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Transition Curves
@@ -121,31 +134,31 @@ There are 11 distinct animation curves included with Spark AR in the Transition 
 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Realistic Smoke
 
 By adding smoke to a scene, you can easily add a lot of detail and realism. Nothing revolutionary is happening here. The particle emitter creates flat planes of smoke texture that are forced upward. The force slowly shifts left and right as seen in the patch editor. The Fade particle script (created by Josh Beckwith) enlarges the particles and fades them out at the same time.
 
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Rainbow Glitter
 
 Given how beautifully Glitter Rain was received, I believed it would be fitting to broaden the potential with an HDR setting. While Glitter Rain made use of two different colors, this technique makes use of an entirely colorless substance and gets its color information via HDR.
 
 ![rainbow glitter](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Closing Thoughts
 
@@ -179,5 +192,18 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-deciphering-the-value-of-photoshop-sway-control/"><u>[New] 2024 Approved Deciphering the Value of Photoshop Sway Control</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-novices-nexus-grasping-frame-rates-and-aspect-ratios-for-2024/"><u>[New] Novice's Nexus Grasping Frame Rates and Aspect Ratios for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-conversion-wizards-turning-vids-into-audible-files-on-pinterest/"><u>[Updated] 2024 Approved Conversion Wizards Turning Vids Into Audible Files on Pinterest</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-effortless-passport-photo-creation-get-10-free-images-instantly/"><u>[Updated] Effortless Passport Photo Creation – Get 10 FREE Images Instantly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-stay-ahead-of-the-curve-with-these-10-must-use-tags/"><u>[Updated] In 2024, Stay Ahead of the Curve with These 10 Must-Use Tags</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-three-easy-iphone-methods-for-integrating-songs-into-videos-for-2024/"><u>[Updated] Three Easy iPhone Methods for Integrating Songs Into Videos for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/deciphering-and-defeating-phasmophobias-90-loading-hurdle-for-a-smooth-gameplay-experience/"><u>Deciphering and Defeating Phasmophobia's 90% Loading Hurdle for a Smooth Gameplay Experience</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-drama-to-film-shaping-realistic-dialogue/"><u>From Drama to Film Shaping Realistic Dialogue</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-overcome-load-failures-in-football-manager-202n-a-step-by-step-guide/"><u>How to Overcome Load Failures in Football Manager 202N – A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/leading-8-sites-offering-free-access-to-3d-text-psdfiles/"><u>Leading 8 Sites Offering Free Access to 3D Text PSDFiles</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-vivo-y100i-power-5g-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Vivo Y100i Power 5G on Windows</u></a></li>
+</ul></div>
 

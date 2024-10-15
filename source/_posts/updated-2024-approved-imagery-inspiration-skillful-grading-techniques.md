@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Imagery Inspiration  Skillful Grading Techniques\""
-date: 2024-10-07T08:09:34.620Z
-updated: 2024-10-09T01:47:39.763Z
+date: 2024-10-09T17:10:24.520Z
+updated: 2024-10-15T16:48:40.234Z
 tags: 
   - screen-recording
   - ai video
@@ -75,9 +75,23 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
 
@@ -97,13 +111,6 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step2Select the specific video portion
 
 #####
@@ -111,6 +118,13 @@ Here, there are two options to select: The Color correction. It offers different
 First, you need to select the specific video portion you want to change the color. Just click the scissor icon or what we call split tool. In this case, I split the 2nd video when I zoom in on the subject.
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * And I selected the end portion of the video. After that, choose the part of the video.
 
@@ -121,10 +135,10 @@ First, you need to select the specific video portion you want to change the colo
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You will notice that the color changes depending on your selected preset.
@@ -145,31 +159,11 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 
 ![color panel windows filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-panel-windows-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step2Color grading with Wondershare Filmora
 
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -237,20 +231,17 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-advanced-zooming-practices-in-microsoft-teams/"><u>[New] 2024 Approved Advanced Zooming Practices in Microsoft Teams</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-best-cameras-for-pixel-art-animation/"><u>[New] Best Cameras for Pixel Art Animation</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-what-is-screencasting-and-how-to-choose-the-right-screencasting-software/"><u>[New] What Is Screencasting and How to Choose the Right Screencasting Software?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-beyond-the-screen-jaunt-vrs-spectacular-world/"><u>[Updated] In 2024, Beyond the Screen Jaunt VR's Spectacular World</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-immersive-adventures-await-top-10-innovative-pc-vr-streamers-reviewed/"><u>[Updated] In 2024, Immersive Adventures Await Top 10 Innovative PC VR Streamers Reviewed</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-joy-junction-for-tiny-gamers/"><u>[Updated] In 2024, The Joy Junction for Tiny Gamers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-depth-look-at-inshot-video-editing-powerhouse-in-2024/"><u>[Updated] In-Depth Look at InShot Video Editing Powerhouse, In 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-innovative-practices-for-instagram-video-narratives-and-captioning/"><u>[Updated] Innovative Practices for Instagram Video Narratives and Captioning</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-integrating-vimeo-to-instagram-posts-for-2024/"><u>[Updated] Integrating Vimeo to Instagram Posts for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-copyright-claims-and-how-to-deal-with-a-strike/"><u>2024 Approved YouTube Copyright Claims and How to Deal with a Strike?</u></a></li>
-<li><a href="https://win-blog.techidaily.com/beat-the-lag-advanced-fixes-for-improving-fallout-nuked-earths-quality-how-to-optimize-your-fps-now/"><u>Beat the Lag: Advanced Fixes for Improving Fallout Nuked Earth's Quality - How to Optimize Your FPS Now!</u></a></li>
-<li><a href="https://fox-links.techidaily.com/examining-vllos-user-driven-feedback/"><u>Examining VLLO's User-Driven Feedback</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-xiaomi-13t-pro-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Xiaomi 13T Pro to Outlook | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-brand-reflection-personalize-free-logo-templates-to-perfection/"><u>In 2024, Brand Reflection Personalize Free Logo Templates to Perfection</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-tickle-me-tech-iphone-memes/"><u>[New] In 2024, Tickle-Me-Tech IPhone Memes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-social-signals-and-their-role-in-youtube-popularity/"><u>[Updated] 2024 Approved Social Signals and Their Role in YouTube Popularity</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-science-behind-optimal-instagram-timings/"><u>[Updated] 2024 Approved The Science Behind Optimal Instagram Timings</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-cutting-through-hype-8-best-free-srt-tools-exposed/"><u>[Updated] Cutting Through Hype 8 Best Free SRT Tools Exposed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-visual-vocabulary-complimentary-youtube-art-tools-for-2024/"><u>[Updated] Visual Vocabulary Complimentary YouTube Art Tools for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ur-heavyweights-top-10-most-watched-on-yt/"><u>24 Hour Heavyweights Top 10 Most Watched on YT</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-visual-intelligence-with-chatgpt-eight-key-applications-for-professionals/"><u>Exploring Visual Intelligence with ChatGPT: Eight Key Applications for Professionals</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-motorola-defy-2-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Motorola Defy 2 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-immediate-gif-to-video-conversion-top-5-free-websites/"><u>In 2024, Immediate GIF-to-Video Conversion, Top 5 Free Websites</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-latest-in-interconnect-technology-introducing-copperlink-by-pci-sig-for-future-proof-pcie-5-and-6-links-with-gen7-on-the-horizon/"><u>The Latest in Interconnect Technology: Introducing CopperLink by PCI-SIG for Future-Proof PCIe 5 and 6 Links, with Gen7 on the Horizon</u></a></li>
+<li><a href="https://fox-links.techidaily.com/trending-pictures-life-stories-uncovered/"><u>Trending Pictures Life Stories Uncovered</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-the-future-can-we-expect-a-gpt-5-soon-launch-predictions-inside/"><u>Unveiling the Future: Can We Expect a GPT-5 Soon? Launch Predictions Inside</u></a></li>
 </ul></div>
 

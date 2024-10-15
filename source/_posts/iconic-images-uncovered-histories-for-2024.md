@@ -1,7 +1,7 @@
 ---
 title: "\"Iconic Images  Uncovered Histories for 2024\""
-date: 2024-09-20T04:18:45.359Z
-updated: 2024-09-21T23:07:08.507Z
+date: 2024-10-09T18:15:30.434Z
+updated: 2024-10-15T17:17:29.478Z
 tags: 
   - screen-recording
   - ai video
@@ -54,9 +54,23 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
@@ -71,11 +85,25 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
 ## Part3: I Bet He's Thinking About Other Women
 
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
 
@@ -99,16 +127,16 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
@@ -117,6 +145,13 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 * In this version, Bonjour Bear reacts to the discovery of a wound after using hand sanitizer. The post became popular during the COVID-19 pandemic when using hand sanitizer was at its peak.
 
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
 
@@ -127,25 +162,11 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 
 ## Part5: FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Can you use stock photos for memes?
 
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Does copyright law protect memes?
 
@@ -185,5 +206,24 @@ Therefore, always perform stock image reverse searches to verify the image permi
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unlock-a-new-dimension-with-these-must-try-iphone-apps/"><u>[New] 2024 Approved Unlock a New Dimension with These Must-Try iPhone Apps</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-resolving-bandwidth-issues-in-high-quality-obs/"><u>[New] In 2024, Resolving Bandwidth Issues in High Quality OBS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-thrifty-shoppers-guide-to-cameras/"><u>[New] Thrifty Shopper's Guide to Cameras</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-ultimate-list-top-18-high-def-camcorders/"><u>[New] Ultimate List Top 18 High-Def Camcorders</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-essentials-of-cinematic-dialogue-design-for-2024/"><u>[Updated] Essentials of Cinematic Dialogue Design for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-unleash-timeliness-iphone-slow-motion-filming/"><u>[Updated] In 2024, Unleash Timeliness IPhone Slow Motion Filming</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-uncover-sites-with-aggregated-ad-spots-on-youtube/"><u>2024 Approved Uncover Sites with Aggregated Ad Spots on YouTube</u></a></li>
+<li><a href="https://media-tips.techidaily.com/10/"><u>必見! トップセラーブルーレイアニメベスト10 - 家で楽しむ究極のリスト</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/dismiss-incompatible-prerequisite-message-in-win11/"><u>Dismiss Incompatible Prerequisite Message in Win11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/harmonyhub-combining-ios-and-macos-photo-videos/"><u>HarmonyHub Combining iOS & macOS Photo-Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/immersive-virtue-verse-selection-for-ar-vr-worlds/"><u>Immersive Virtue Verse Selection for AR-VR Worlds</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-from-srt-to-sub-masterful-conversion-methods-explored/"><u>In 2024, From SRT to SUB Masterful Conversion Methods Explored</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/interactive-learning-landscapes-with-vr-for-2024/"><u>Interactive Learning Landscapes with VR for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-complete-deletion-of-a-yahoo-email-address/"><u>Step-by-Step Guide: Complete Deletion of a Yahoo Email Address</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-history-of-ios-from-version-10-to-180/"><u>The History of iOS, From Version 1.0 to 18.0</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-recommended-asmrists-for-nighttime-calmness/"><u>Top Recommended ASMRists for Nighttime Calmness</u></a></li>
+</ul></div>
 

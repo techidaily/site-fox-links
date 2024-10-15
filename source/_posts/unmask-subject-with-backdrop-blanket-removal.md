@@ -1,7 +1,7 @@
 ---
 title: "Unmask Subject with Backdrop Blanket Removal"
-date: 2024-09-16T04:52:53.674Z
-updated: 2024-09-21T22:36:46.858Z
+date: 2024-10-10T16:03:07.410Z
+updated: 2024-10-15T19:31:51.609Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,13 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -41,9 +48,23 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
@@ -90,6 +111,13 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -99,10 +127,10 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -120,13 +148,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -194,5 +215,22 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-how-to-search-for-cool-photos-on-pexelscom/"><u>[New] 2024 Approved How to Search for Cool Photos on Pexels.com?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-drone-purchase-primer-the-beginners-guide-to-informed-buying/"><u>[New] Drone Purchase Primer The Beginner's Guide to Informed Buying</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-examining-the-best-is-picku-leading-photo-enhancement-for-android-users/"><u>[New] Examining the Best Is PickU Leading Photo Enhancement for Android Users?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-elevate-your-humor-a-compilation-of-high-quality-memes/"><u>[New] In 2024, Elevate Your Humor A Compilation of High-Quality Memes</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-essential-guide-to-blur-techniques-for-dynamic-artwork/"><u>[New] The Essential Guide to Blur Techniques for Dynamic Artwork</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-secrets-of-getting-up-close-in-roblox-environments-for-2024/"><u>[New] The Secrets of Getting Up Close in Roblox Environments for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-ultimate-dji-phantom-upgrade-kit/"><u>[New] The Ultimate DJI Phantom Upgrade Kit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-zen-journey-tracks-copyright-free-legally-downloaded-playlist-for-2024/"><u>[New] Zen Journey Tracks - Copyright-Free, Legally Downloaded Playlist for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-free-skype-recording-made-easy-mp3-edition/"><u>[Updated] In 2024, Free Skype Recording Made Easy - MP3 Edition</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-laptop-and-web-navigating-live-video-communication-in-whatsapp/"><u>[Updated] Laptop & Web Navigating Live Video Communication in WhatsApp</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-transformative-techniques-for-capturing-on-iphone/"><u>2024 Approved Transformative Techniques for Capturing on iPhone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-realme-11-pro-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Realme 11 Pro</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oneplus-11r-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from OnePlus 11R to New Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-depth-analysis-applying-luts-to-elevate-your-cinematography/"><u>In-Depth Analysis Applying LUTs to Elevate Your Cinematography</u></a></li>
+<li><a href="https://article-tips.techidaily.com/leveraging-azures-speech-to-text-for-enterprise-solutions-for-2024/"><u>Leveraging Azure's Speech-to-Text for Enterprise Solutions for 2024</u></a></li>
+</ul></div>
 

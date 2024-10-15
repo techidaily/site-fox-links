@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Premium Portfolio  Cutting-Edge Cardboard VR Game Listings\""
-date: 2024-10-04T10:50:04.584Z
-updated: 2024-10-08T19:21:46.567Z
+date: 2024-10-10T17:30:00.242Z
+updated: 2024-10-15T16:24:52.798Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,13 @@ Chair in a Room is a horror game for the Google Cardboard. You play a lawyer who
 
 If you want a good scare, then this is the VR game that you should play. You will feel your heart pounding as you progress through the game. It really feels like it was made for VR and not just a port. On the downside, you need a fast smartphone and good headphones to enjoy the game. It was designed for the Nexus 5 and above, and devices with lower specs might have trouble running the game.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2. BombSquad VR for Cardboard
 
 BombSquad VR for Cardboard is an arcade game where players must avoid getting hit by bombs, and at the same time capture flags. Up to eight players can play at the same time. To play the game, you need a gamepad or another Android device to act as a controller. While it costs $2.99, you also get the BombSquad Pro that allows you to play the non-VR version of the game. The game features networked multiplayer mode, advanced ragdoll face-plant physics, lots of explosions, pirates, barbarians, ninja, and chefs.
@@ -46,10 +53,10 @@ BombSquad VR for Cardboard is an arcade game where players must avoid getting hi
 It is a fun game that you can play with your friends. If you enjoy the normal BombSquad game, then you will definitely love the VR version. However, just like the other VR games, it requires a lot of power. There are some players that find the game too jumpy and glitch. They can’t hold a position.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3
@@ -60,13 +67,6 @@ BAMF VR is a simple game that only requires you to push a single button. The obj
 
 BAMF VR is one of the best VR games for the Google Cardboard. While it is simple, it has imaginative puzzles. There are no downsides to the game; except players want more levels because it is easy to beat the game.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4. Sisters
 
 VR is the best medium for horror games. You just need to seat back and look around as supernatural stuff happen around you. It is best to play with headphones to fully enjoy the experience.
@@ -76,16 +76,10 @@ It has simple look based controls that will allow players to pick up and play th
 If you want to be scared, then go play Sisters. It is best to prank your friends who think that VR games are not that scary. However, there are reports that it keeps on crashing on low-end Android phones.
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5. Waa! VR
@@ -116,10 +110,10 @@ Waa! is a VR game that kids will enjoy. The gameplay is simple and just right fo
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -147,22 +141,16 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-behind-the-screen-discovering-samsung-galaxy-s8s-4k-edge/"><u>[New] 2024 Approved Behind the Screen Discovering Samsung Galaxy S8's 4K Edge</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-connectivity-at-its-peak-usb-c-and-the-hp-envy-27-monitor/"><u>[New] Connectivity at Its Peak USB-C & the HP Envy 27 Monitor</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-a-deep-dive-into-the-world-of-youtubes-minis/"><u>[New] In 2024, A Deep Dive Into the World of Youtube's Minis</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-harmonious-hushes-softening-sounds-with-garageband/"><u>[New] In 2024, Harmonious Hushes Softening Sounds with Garageband</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-in-depth-study-androids-lightroom-app-functionality/"><u>[New] In 2024, In-Depth Study Android's Lightroom App Functionality</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-reviewing-the-powerhouse-of-magixs-photo-toolkit/"><u>[New] Reviewing the Powerhouse of MAGIX's Photo Toolkit</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-streamline-your-day-multitask-mastery-for-the-podcast-aficionado/"><u>[New] Streamline Your Day Multitask Mastery for the Podcast Aficionado</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-discover-the-joy-of-customized-messaging-downloading-and-tailoring-whatsapp-ringtones-on-mobile/"><u>[Updated] In 2024, Discover the Joy of Customized Messaging Downloading & Tailoring WhatsApp Ringtones on Mobile</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-transforming-images-with-the-best-color-adjustment-guides/"><u>[Updated] Transforming Images with the Best Color Adjustment Guides</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unleashing-brand-potential-with-essential-phrases/"><u>[Updated] Unleashing Brand Potential with Essential Phrases</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/cloud-based-vertical-video-editing-software-top-picks-2023-for-2024/"><u>Cloud-Based Vertical Video Editing Software Top Picks 2023 for 2024</u></a></li>
-<li><a href="https://discover-help.techidaily.com/experience-lightweight-videos-at-nearly-original-quality-cut-file-sizes-by-90/"><u>Experience Lightweight Videos at Nearly Original Quality – Cut File Sizes by 90%</u></a></li>
-<li><a href="https://win-blog.techidaily.com/gamers-rejoice-as-red-dead-redemption-2-pc-version-overcomes-crashing-glitches/"><u>Gamers Rejoice as Red Dead Redemption 2 PC Version Overcomes Crashing Glitches</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-tecno-spark-20-promirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Tecno Spark 20 ProMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-remove-iphone-xr-sim-lock-by-drfone-ios/"><u>How to Remove iPhone XR SIM Lock?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-composing-captivating-podcast-narratives/"><u>In 2024, Composing Captivating Podcast Narratives</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-xiaomi-redmi-note-13-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Xiaomi Redmi Note 13 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-exclusive-access-to-the-finest-ae-templates-all-free-for-2024/"><u>[New] Exclusive Access to The Finest AE Templates, All-Free for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-a-practical-guide-to-using-vsco-for-professionals/"><u>[New] In 2024, A Practical Guide to Using VSCO for Professionals</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-five-leading-pc-tools-for-sonys-ps1-experience-for-2024/"><u>[New] The Five Leading PC Tools for Sony's PS1 Experience for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-essence-of-dji-inspire-2-distilled/"><u>2024 Approved The Essence of DJI Inspire 2 Distilled</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-transformative-techniques-to-mute-background-noise/"><u>2024 Approved Transformative Techniques to Mute Background Noise</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-xiaomi-14-ultra-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Xiaomi 14 Ultra</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-top-tales-youtubes-best-narrative-channels-this-year/"><u>In 2024, The Top Tales YouTube’s Best Narrative Channels This Year</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-subnautica-below-zero-stability-glitches-for-enhanced-pc-gaming-experience/"><u>Overcoming 'Subnautica: Below Zero' Stability Glitches for Enhanced PC Gaming Experience</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/setting-up-success-the-ultimate-instream-ad-guide-for-fb-users-for-2024/"><u>Setting Up Success The Ultimate Instream Ad Guide for FB Users for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/virtual-cosmos-navigating-10-cinematic-worlds-in-science-fiction/"><u>Virtual Cosmos Navigating 10 Cinematic Worlds in Science Fiction</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/vmix-vs-wirecast-which-is-the-best-professional-live-streaming-software/"><u>VMix VS Wirecast Which Is the Best Professional Live Streaming Software?</u></a></li>
 </ul></div>
 
