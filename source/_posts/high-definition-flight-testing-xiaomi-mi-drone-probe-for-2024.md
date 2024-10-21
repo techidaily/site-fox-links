@@ -1,7 +1,7 @@
 ---
 title: "\"High-Definition Flight Testing - Xiaomi Mi Drone Probe for 2024\""
-date: 2024-10-14T19:46:03.272Z
-updated: 2024-10-15T17:29:34.002Z
+date: 2024-10-18T20:53:42.181Z
+updated: 2024-10-21T00:33:16.993Z
 tags: 
   - screen-recording
   - ai video
@@ -54,26 +54,26 @@ In the last few years, Xiaomi has developed remarkable performance in the market
 Even with a reasonable price tag, this advanced drone unit has several features to offer its users. The most impressive one is its 4K recording ability with higher stability whereas still shots are recorded with 1080p resolution level. The wireless transmitter is designed with 2.4GHz frequency range whereas the altitude range goes as high as up to 800m. Control distance offered by Xiaomi MI is 3000m and the overall flight time offered by this tiny drone unit is 27 min. It has 5199mAh rechargeable battery with 17.4 Volt rating that takes total 3 and half hours for complete charging.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Design
 
 Xiaomi Mi has impressive aesthetics and most of its features are comparable to DJI Phantom 4 Drone. The best part is that this drone unit is designed with light weight structure so you can easily carry it to your tour. Even, the propeller guards as well as the gimbal unit are detachable so that you can put this drone easily inside your backpack. The overall weight of Xiaomi Mi is only 149 grams due to carbon fiber and polycarbonate material.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Battery Life
 
 As already discussed, Xiaomi MI can spend 27 minutes in the air with one time full charging. But battery time can be depleted faster if you prefer to use the auto return to home and auto departure feature. The 17.4 Volt battery unit with 5199mAh capacity takes 3 ½ hours to full charge but if you want to extend battery life then prefer to carry a backup with you. As already discussed, Xiaomi MI can spend 27 minutes in the air with one time full charging. But battery time can be depleted faster if you prefer to use the auto return to home and auto departure feature. The 17.4 Volt battery unit with 5199mAh capacity takes 3 ½ hours to full charge but if you want to extend battery life then prefer to carry a backup with you.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Flight Performance
 
@@ -86,10 +86,16 @@ The most amazing feature of Xiaomi Mi is its ability to communicate via mobile p
 As we have discussed earlier that Xiaomi Mi is designed to work on 2.4GHz transmitter frequency range. It has left-hand throttle ability along with the handy built-in type phone clamp. In order to operate this drone from remote distance you simply need to configure its flight settings to Mode 2\. Note that MI is able to fly at a maximum height of 800m and it can go as far as up to 3000 meters from the operator.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Camera
@@ -97,10 +103,10 @@ As we have discussed earlier that Xiaomi Mi is designed to work on 2.4GHz transm
 Xiaomi Mi Drone unit comes with two different variants where the professional one carries 4K camera unit with it and another variant is able to handle 1080P resolution level. Note that the 4K camera comes with 12.4MP sensor from Sony and it works with the Ambarella image processor. You can set its frame rate up to 30fps. Another option is 1080p resolution setting that comes with 16.4 megapixel sensor from Sony along with Ambarella Image Processor. In this case frame rate can go as high as up to 60 fps. The 2.4GHz transmitter further ensures interference free recording in air.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -134,22 +140,14 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-optimizing-your-project-b-roll-utilization-tips/"><u>[Updated] In 2024, Optimizing Your Project B-Roll Utilization Tips</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-streamlined-ways-to-document-your-videos-for-2024/"><u>[Updated] Streamlined Ways to Document Your Videos for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-analyzing-peak-engagement-for-podcast-drops/"><u>2024 Approved Analyzing Peak Engagement for Podcast Drops</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-capturing-change-time-lapse-on-samsung-smartphones/"><u>2024 Approved Capturing Change Time-Lapse on Samsung Smartphones</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-choreographing-compelling-screen-trailers/"><u>2024 Approved Choreographing Compelling Screen Trailers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-how-to-activate-auto-hdr-setting-in-windows-11/"><u>2024 Approved How to Activate Auto HDR Setting in Windows 11</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-mastering-time-lapse-photography-on-samsung-phones/"><u>2024 Approved Mastering Time-Lapse Photography on Samsung Phones</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-narrative-basics-explanation/"><u>2024 Approved Narrative Basics Explanation</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-navigate-the-transfer-of-social-media-photos-to-hard-drive/"><u>2024 Approved Navigate the Transfer of Social Media Photos to Hard Drive</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-pc-virtual-reality-hits-top-10/"><u>2024 Approved PC Virtual Reality Hits Top 10</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-school-based-videography-crafting-quality-content/"><u>2024 Approved School-Based Videography Crafting Quality Content</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-premium-displays-the-ultimate-guide-for-xbox-s-series-x/"><u>2024 Approved Unveiling Premium Displays The Ultimate Guide for Xbox S Series X</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/effective-methods-to-fix-corrupted-or-lost-d3dx934dll-in-windows/"><u>Effective Methods to Fix Corrupted or Lost d3dx9_34.dll in Windows</u></a></li>
-<li><a href="https://media-tips.techidaily.com/experience-concerts-at-home-with-spotifys-latest-addition-of-artist-music-videos/"><u>Experience Concerts at Home with Spotify's Latest Addition of Artist Music Videos</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-xiaomi-redmi-note-12-4g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Xiaomi Redmi Note 12 4G</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/slash-clutter-a-fast-way-to-remove-bloatware-in-win11/"><u>Slash Clutter: A Fast Way to Remove Bloatware in Win11</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-solutions-for-correcting-opengl-errors-in-minecraft/"><u>Step-by-Step Solutions for Correcting OpenGL Errors in Minecraft</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-finding-the-right-sound-for-movie-previews/"><u>[New] 2024 Approved Finding the Right Sound for Movie Previews</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-a-straightforward-approach-to-image-distortion/"><u>[New] A Straightforward Approach to Image Distortion</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-advanced-methodologies-for-backdrop-purification-in-figma-design-for-2024/"><u>[New] Advanced Methodologies for Backdrop Purification in Figma Design for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-social-network-sites-for-youtube-growth/"><u>[New] Top Social Network Sites for YouTube Growth</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-ultimate-metrics-guide-to-monetize-and-mobilize-youtube-audiences/"><u>2024 Approved The Ultimate Metrics Guide to Monetize and Mobilize YouTube Audiences</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-honor-magic-6-pro-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Honor Magic 6 Pro Phone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-command-your-chats-with-flair-pinning-made-simple-in-discord/"><u>In 2024, Command Your Chats with Flair Pinning Made Simple in Discord</u></a></li>
+<li><a href="https://fox-info.techidaily.com/perfect-pick-kids-preferred-drones/"><u>Perfect Pick Kids' Preferred Drones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlock-full-media-potential-with-funimate-tools-for-2024/"><u>Unlock Full Media Potential with Funimate Tools for 2024</u></a></li>
 </ul></div>
 

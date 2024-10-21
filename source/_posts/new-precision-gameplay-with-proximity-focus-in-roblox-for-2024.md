@@ -1,7 +1,7 @@
 ---
 title: "[New] Precision Gameplay with Proximity Focus in Roblox for 2024"
-date: 2024-09-15T05:44:43.492Z
-updated: 2024-09-17T01:32:30.262Z
+date: 2024-10-13T19:29:38.072Z
+updated: 2024-10-21T06:02:27.018Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,19 @@ Step1Go to the Roblox website in your favourite web browser by opening it. Start
 
 ![start testing game session roblox](https://images.wondershare.com/filmora/article-images/2022/07/start-testing-game-session-roblox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2Once your gaming session has begun, you may zoom by using the wheel while moving ahead. Once again, if you scroll all the way down, this action will put you in first person perspective. Now all you have to do is use your cursor to scroll ahead to zoom in.
 
 ![zoom in with cursoe scroll](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-with-cursoe-scroll.jpg)
@@ -80,10 +93,10 @@ Step2Zoom in by pressing forward on the right thumbstick that has been clicked d
 Step3Pull rearward on the clicked-down right thumbstick to zoom out. The same joystick (right) must constantly be pulled rearward to zoom out.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Way 4\. Zoom in/out in Roblox on Tablet
@@ -100,24 +113,25 @@ Step2To zoom, just use two fingers and slide them apart (for zooming in) or toge
 
 ![zoom roblox with fingers](https://images.wondershare.com/filmora/article-images/2022/07/zoom-roblox-with-fingers.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3You will be given the best method using the touchpad: while holding down the right side, move the screen to view your character from the front and from behind!
 
 Step4The camera angle and/or your character will only move if one of your fingers, preferably the index, remains steady on the screen. This will prevent the zoom level from changing.
 
 ![zoom character on roblox](https://images.wondershare.com/filmora/article-images/2022/07/zoom-character-on-roblox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -151,5 +165,26 @@ You may wish to change your viewpoint when playing games on Roblox, the most cut
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-bargain-ball-games-free-recording-and-editing-techniques/"><u>[New] 2024 Approved Bargain Ball Games Free Recording & Editing Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-flaskful-formula-freaks/"><u>[New] 2024 Approved FLASKFUL FORMULA FREAKS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-step-by-step-path-to-smm-victory/"><u>[New] 2024 Approved Step-by-Step Path to SMM Victory</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-spectacular-visual-spaces-for-live-videos/"><u>[Updated] 2024 Approved Spectacular Visual Spaces for Live Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-up-to-date-tips-for-purchasing-top-360-imagers/"><u>[Updated] 2024 Approved Up-to-Date Tips for Purchasing Top 360 Imagers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-digital-artistry-creating-vibrant-gifs-for-social-media-for-2024/"><u>[Updated] Digital Artistry Creating Vibrant GIFs for Social Media for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-from-meetings-to-media-how-zoom-powers-fb-live-content/"><u>[Updated] From Meetings to Media How Zoom Powers FB Live Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-birds-eye-view-duel-dji-pro-max-against-gopro-hero6/"><u>[Updated] In 2024, Bird's Eye View Duel DJI Pro Max Against GoPro HERO6</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-diy-ig-videos-tips-and-template-inspirations/"><u>[Updated] In 2024, DIY IG Videos Tips & Template Inspirations</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-streamline-your-windows-11-photo-videos/"><u>[Updated] Streamline Your Windows 11 Photo Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-xiaomi-14-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-investing-in-the-future-top-7-metaverse-devices-you-cant-miss/"><u>2024 Approved Investing in the Future Top 7 Metaverse Devices You Can't Miss</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-lightning-fast-retrieval-of-vanished-reddit-discussions/"><u>2024 Approved Lightning-Fast Retrieval of Vanished Reddit Discussions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/beginners-guide-to-crafting-trendy-mac-video-content-for-2024/"><u>Beginner's Guide to Crafting Trendy Mac Video Content for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-from-your-iphone-8-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password From your iPhone 8</u></a></li>
+<li><a href="https://fox-links.techidaily.com/inside-secrets-to-stunning-photography-with-canva-for-2024/"><u>Inside Secrets to Stunning Photography with Canva for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/usb-stability-secured-for-win-users/"><u>USB Stability Secured for WIN Users</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/whatsapp-web-for-laptops-setting-up-remote-video-calls-step-by-step-for-2024/"><u>WhatsApp Web for Laptops Setting Up Remote Video Calls Step by Step for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Premium Memory Device for Sony A7S Cameras"
-date: 2024-09-10T22:21:47.835Z
-updated: 2024-09-16T18:52:22.634Z
+date: 2024-10-18T03:31:58.506Z
+updated: 2024-10-20T20:35:05.118Z
 tags: 
   - screen-recording
   - ai video
@@ -72,6 +72,19 @@ thumbnail: https://thmb.techidaily.com/0232d564f9edec1eb792bb4bc9c0ce9205dc45825
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -112,6 +125,13 @@ thumbnail: https://thmb.techidaily.com/0232d564f9edec1eb792bb4bc9c0ce9205dc45825
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -135,12 +155,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-iphone-solutions-for-reverse-playback/"><u>[New] 2024 Approved IPhone Solutions for Reverse Playback</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-big-sur-basics-for-system-and-hardware-enthusiasts-for-2024/"><u>[New] Big Sur Basics for System & Hardware Enthusiasts for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-choosing-pro-stream-vmix-vs-wirecast-battle-for-2024/"><u>[New] Choosing Pro Stream VMix Vs. Wirecast Battle for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-bebop-parrot-the-ultimate-feathered-performance-review/"><u>[New] In 2024, Bebop Parrot The Ultimate Feathered Performance Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-initiate-your-virtual-presence-with-ease-live-streaming-101/"><u>[New] In 2024, Initiate Your Virtual Presence with Ease Live Streaming 101</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-insiders-guide-to-streaming-events-seamlessly-with-zoom-and-youtube/"><u>[New] In 2024, The Insider's Guide to Streaming Events Seamlessly with Zoom and YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-premium-memory-device-for-sony-a7s-cameras-for-2024/"><u>[New] Premium Memory Device for Sony A7S Cameras for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-the-ultimate-compilation-4-websites-for-ringtone-hunt-for-2024/"><u>[New] The Ultimate Compilation 4 Websites for Ringtone Hunt for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-navigate-your-path-to-prominence-a-precise-guide-to-youtubes-featured-listings/"><u>[Updated] 2024 Approved Navigate Your Path to Prominence A Precise Guide to Youtube's Featured Listings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-investigative-image-searching-reverse-techniques-on-instagram-photos-for-2024/"><u>[Updated] Investigative Image Searching Reverse Techniques on Instagram Photos for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/essential-tips-to-create-impressive-auditory-openers/"><u>Essential Tips to Create Impressive Auditory Openers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirror-on-apple-iphone-se-drfone-by-drfone-ios/"><u>How to Screen Mirror on Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-the-pro-3-the-latest-in-action-cameras-from-ion/"><u>In 2024, Exploring the Pro 3 - The Latest in Action Cameras From ION</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-audio-playwright-craftsmanship/"><u>In 2024, Premium Audio Playwright Craftsmanship</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-transform-video-quality-on-tiktok-2-ways/"><u>In 2024, Transform Video Quality on TikTok (2 Ways)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/melodic-mute-mode-operating-system-steps/"><u>Melodic Mute Mode Operating System Steps</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steps-when-discord-keeps-failing-to-load/"><u>Troubleshooting Steps When Discord Keeps Failing to Load</u></a></li>
+</ul></div>
 

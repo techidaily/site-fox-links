@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How To Fade Audio In Lumafusion"
-date: 2024-09-12T23:57:56.046Z
-updated: 2024-09-16T18:50:17.779Z
+date: 2024-10-18T20:34:52.936Z
+updated: 2024-10-20T22:46:47.539Z
 tags: 
   - screen-recording
   - ai video
@@ -67,11 +67,31 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step4 Share and export
 
@@ -85,16 +105,16 @@ In that window, you can select the MP3 format in the format customization box to
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -114,6 +134,13 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
@@ -128,28 +155,15 @@ In that window, you can select the MP3 format in the format customization box to
 
 ## Part 3\. Related FAQs about LumaFusion
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
@@ -182,5 +196,26 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-enhancing-your-media-with-professional-voiceovers/"><u>[New] In 2024, Enhancing Your Media With Professional Voiceovers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-following-fades-track-losses-on-insta/"><u>[New] In 2024, Following Fades Track Losses on Insta</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-navigating-the-zoom-interface-like-a-pro-in-win11/"><u>[New] In 2024, Navigating the Zoom Interface Like a Pro in Win11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-transformative-techniques-mastering-lut-application-in-post-production/"><u>[New] In 2024, Transformative Techniques Mastering LUT Application in Post-Production</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-essential-iphone-handbook-for-gif-enthusiasts/"><u>[Updated] 2024 Approved The Essential iPhone Handbook for GIF Enthusiasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-direct-conversion-of-spotify-music-5-tools-for-youtube-streaming-for-2024/"><u>[Updated] Direct Conversion of Spotify Music 5 Tools for YouTube Streaming for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-eliminate-youtubes-automatic-preplay-buffer/"><u>[Updated] Eliminate YouTube's Automatic Preplay Buffer</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-cracking-the-code-personalized-tiktok-hash-hunt/"><u>[Updated] In 2024, Cracking the Code Personalized TikTok Hash Hunt</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-freefire-the-30-best-tag-strategies-to-increase-views/"><u>[Updated] In 2024, Mastering FreeFire The 30 Best Tag Strategies to Increase Views</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-top-gamers-guide-to-live-platforms-1-9/"><u>[Updated] In 2024, Top Gamer's Guide to Live Platforms #1-#9</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-preparing-to-engage-in-googles-video-meetings/"><u>2024 Approved Preparing to Engage in Google's Video Meetings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boost-your-mobile-reception-the-premier-signal-extenders/"><u>Boost Your Mobile Reception: The Premier Signal Extenders</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/content-platform-wars-direct-engagement-or-wider-distribution-twitch-vs-youtube-for-2024/"><u>Content Platform Wars Direct Engagement or Wider Distribution? – Twitch Vs YouTube for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-new-frontiers-in-contactless-interface-designs-for-2024/"><u>Exploring New Frontiers in Contactless Interface Designs for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/gear-360-vs-lgcam-determining-best-in-3d-capture/"><u>Gear 360 vs LGCam Determining Best in 3D Capture</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-add-transitions-in-kinemaster/"><u>In 2024, Add Transitions in Kinemaster</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-leading-places-to-download-high-quality-free-digital-images/"><u>In 2024, Leading Places to Download High-Quality, Free Digital Images</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-resolve-google-chrome-video-troubles-fb/"><u>In 2024, Resolve Google Chrome Video Troubles (FB)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/navigate-lifes-challenges-with-these-15-engaging-activities-while-listening-to-podcasts/"><u>Navigate Life's Challenges with These 15 Engaging Activities While Listening to Podcasts</u></a></li>
+</ul></div>
 

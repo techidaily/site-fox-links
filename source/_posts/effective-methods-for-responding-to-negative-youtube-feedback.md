@@ -1,7 +1,7 @@
 ---
 title: "Effective Methods for Responding to Negative YouTube Feedback"
-date: 2024-09-09T19:40:57.910Z
-updated: 2024-09-17T05:12:30.247Z
+date: 2024-10-15T03:46:24.777Z
+updated: 2024-10-20T22:11:21.359Z
 tags: 
   - screen-recording
   - ai video
@@ -79,9 +79,23 @@ Step1 Open your chosen browser, head to YouTube, then sign in to your Google/You
 
 ![sign in youtube account](https://images.wondershare.com/filmora/article-images/2022/11/sign-in-youtube-account.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 On the YouTube homepage, click on the three horizontal parallel lines in the top-left corner. A drop down menu appears, including the trending videos of the day, your subscriptions and your settings.
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 From the drop down menu, select “History”.
 
@@ -92,13 +106,6 @@ Step4 On the right side under the “Manage all history” section, click on “
 Step5 To edit your comment, click on the “vertical ellipsis” (three vertical dots) on the far right side of the listed video page.
 
 Step6 Make the necessary edits and choose “Save”.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Highlighted Comments and Replies on YouTube
 
@@ -127,16 +134,17 @@ Comments history also contains the link to the video where you've left the comme
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -173,5 +181,22 @@ One way you can encourage people to leave comments on your videos is to finish t
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-androidandios-the-best-free-overlay-imaging-tools-top-10/"><u>[New] 2024 Approved Android&iOS The Best FREE Overlay Imaging Tools (Top 10)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-finding-the-perfect-date-tracker-10-best-androidios-apps/"><u>[New] 2024 Approved Finding the Perfect Date Tracker 10 Best Android/iOS Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-spectrum-of-virtuality-from-meta-to-omniverse-explored/"><u>[New] In 2024, The Spectrum of Virtuality From Meta to Omniverse Explored</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-adding-words-to-pictures-easy-photo-text-editing-tips/"><u>[Updated] 2024 Approved Adding Words to Pictures Easy Photo Text Editing Tips</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-flash-video-insights-guide/"><u>[Updated] 2024 Approved Flash Video Insights Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ultimate-handbook-for-morphvox-transformers/"><u>[Updated] 2024 Approved Ultimate Handbook for MorphVOX Transformers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-essential-elements-creating-striking-podcast-covers-for-2024/"><u>[Updated] Essential Elements Creating Striking Podcast Covers for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-honor-90-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Honor 90.</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-f04withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy F04with/without a PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigate-the-future-of-digital-art-with-the-finest-tablet-pads-of-2024/"><u>Navigate the Future of Digital Art with the Finest Tablet Pads of 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/realme-12-proplus-5g-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme 12 Pro+ 5G Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/steps-for-integrating-soundtracks-into-mkv-format-mkv-v202-release-for-2024/"><u>Steps for Integrating Soundtracks Into MKV Format (MKV v2.0.2 Release) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-essential-checklist-purging-backdrops-with-affinity-photo-for-2024/"><u>The Essential Checklist Purging Backdrops with Affinity Photo for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-computing-comprehensive-tech-reviews-and-advice/"><u>Tom's Computing: Comprehensive Tech Reviews and Advice</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-8-superior-email-clients-the-ultimate-replacement-options-for-gmail/"><u>Top 8 Superior Email Clients: The Ultimate Replacement Options for Gmail</u></a></li>
+</ul></div>
 

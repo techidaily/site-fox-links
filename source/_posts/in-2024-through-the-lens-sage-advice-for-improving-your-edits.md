@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Through the Lens  Sage Advice for Improving Your Edits\""
-date: 2024-09-12T05:24:45.813Z
-updated: 2024-09-16T23:43:30.403Z
+date: 2024-10-20T08:23:33.206Z
+updated: 2024-10-20T17:10:59.139Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Luckily, every photography editing software offers the primary crop tool. You ca
 
 ![crop the image](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Presets are your Friends
 
 When processing multiple images at once, the editing process can be tiring and bothersome. To help you out, most photography editing software comes with a range of presets and tools you can apply to your photos. If all your images need similar changes, these presets can come in handy. You can also create the perfect combination of settings yourself and apply them instantly.
@@ -50,10 +57,10 @@ When processing multiple images at once, the editing process can be tiring and b
 Image alt: use presets for image editing
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Play With the Colors
@@ -63,6 +70,20 @@ If you look around closely, you can find that everything is associated with a sp
 If you train your eye to see these hidden colors, you can easily make your images pop. Under the right lighting, you can see the various shades underlying seemingly monochromatic things. You can play with these colors using simple color grading techniques to bring a more vibrant look to your image. Adjust the vibrancy, saturation, and tint until you get the look you want in your image.
 
 ![play with the image colors](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Adjust the Contrast
 
@@ -78,6 +99,13 @@ Overlays are also useful for creating double exposure effects in your image. If 
 
 ![apply overlays to image](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Straighten the Horizon
 
 Want to create a balanced and stable look for your image? You can easily achieve that by straightening the lines in your image. Although a simple trick, it is often overlooked and can impact the overall symmetry of your image.
@@ -86,13 +114,6 @@ You can choose a baseline in your image and then adjust it to straighten the ima
 
 ![straighten the horizon](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Split the Tone
 
 During the photography editing process, a little split-tone can go a long way. This means you can add specific colors to the shadows and highlights of your image. You can play with these colors to make your photos fall on the warm or cold end of the spectrum. Split tone can get out of hand pretty fast, so remember to keep it subtle.
@@ -100,10 +121,10 @@ During the photography editing process, a little split-tone can go a long way. T
 ![use split tone feature](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Know your White Balance
@@ -114,6 +135,13 @@ While JPEG images can somewhat bend to a specific color temperature, RAW files o
 
 ![adjust image white balance](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9\. Pay Attention to Details
 
 Being a photographer means having to keep a close eye on the details. No matter what type of photographs you are capturing, everything from nature to headshots requires keen attention to detail. One way of doing so is to remove spots or any background clutter from your picture.
@@ -121,20 +149,6 @@ Being a photographer means having to keep a close eye on the details. No matter 
 Most of the prime photography editing apps offer spot removal tools. You will often encounter images where some careful adjustments are inherent. You can remove blemishes, stains, or any other distracting element from your image. This will help bring a clean and focused look to your picture.
 
 ![remove the spots from image](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 10\. Don’t Take It Too Far
 
@@ -170,5 +184,18 @@ You can try the photography editing tips mentioned above to enhance your images 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-streamline-your-online-experience-blocking-youtube-channels-effectively/"><u>[New] 2024 Approved Streamline Your Online Experience Blocking Youtube Channels Effectively</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-zen-and-the-art-of-crystal-clear-zoom-video/"><u>[New] 2024 Approved Zen and the Art of Crystal-Clear Zoom Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-breakdown-of-popular-elements-in-youtube-shorts-for-2024/"><u>[New] Breakdown of Popular Elements in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-must-do-tasks-for-enhanced-podcast-experience/"><u>[New] In 2024, Must-Do Tasks for Enhanced Podcast Experience</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-sonic-visuals-on-the-move-a-deep-dive-into-sonys-xperia-xz/"><u>[New] In 2024, Sonic Visuals on the Move - A Deep Dive Into Sony's Xperia XZ</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-aurora-hdr-superior-or-subpar-imaging/"><u>[Updated] 2024 Approved Aurora HDR Superior or Subpar Imaging?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/full-guide-to-unlock-apple-iphone-15-with-itunes-by-drfone-ios/"><u>Full Guide to Unlock Apple iPhone 15 with iTunes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-se-2022-to-an-older-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone SE (2022) to an Older Version? | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-fix-memory-glitch-in-call-of-duty-modern-warfare-3-error-12707-explained/"><u>How to Fix Memory Glitch in Call of Duty: Modern Warfare 3 - Error 12707 Explained</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-honor-x9a-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Honor X9a to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Xiaomi 14 Pro | Dr.fone</u></a></li>
+</ul></div>
 

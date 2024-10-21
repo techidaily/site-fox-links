@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Get Windows Photo Viewer Running Smoothly on Win 11 for 2024"
-date: 2024-10-12T18:15:12.658Z
-updated: 2024-10-15T17:39:44.376Z
+date: 2024-10-16T17:30:42.394Z
+updated: 2024-10-21T09:11:04.540Z
 tags: 
   - screen-recording
   - ai video
@@ -62,13 +62,6 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -77,23 +70,9 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -109,9 +88,30 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -120,10 +120,10 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -153,16 +153,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-sharpening-digital-images-through-strategic-zooming/"><u>2024 Approved Sharpening Digital Images Through Strategic Zooming</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-ultimate-guide-to-applying-vhs-filters-on-computers/"><u>2024 Approved Ultimate Guide to Applying VHS Filters on Computers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-verdant-visualizations-compiling-30plus-free-screen-templates-for-videographers/"><u>2024 Approved Verdant Visualizations Compiling 30+ Free Screen Templates for Videographers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/authentic-praise-amplified-branding/"><u>Authentic Praise, Amplified Branding</u></a></li>
-<li><a href="https://fox-links.techidaily.com/best-image-safekeepers-online-for-2024/"><u>Best Image Safekeepers Online for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/fix-it-now-how-to-resolve-wacom-tablet-functionality-issues-quickly/"><u>Fix It Now: How To Resolve Wacom Tablet Functionality Issues Quickly</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/m-audio-fast-track-drivers-installer-pack-compatible-with-windows-operating-systems-7-to-11/"><u>M-Audio Fast Track Drivers Installer Pack - Compatible with Windows Operating Systems (7 to 11)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-youtubes-best-music-responses-for-2024/"><u>The Ultimate Guide to YouTube's Best Music Responses for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-5-apple-watch-sleep-tracking-applications-a-comprehensive-guide/"><u>Top 5 Apple Watch Sleep Tracking Applications: A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/unlocking-the-power-of-batched-video-extraction-from-tiktok/"><u>Unlocking the Power of Batched Video Extraction From TikTok</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/why-blackberry-shines-as-the-premier-choice-for-professionals/"><u>Why BlackBerry Shines as the Premier Choice for Professionals</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-forward-thinking-ios-for-ps2-emulation/"><u>[New] 2024 Approved Forward-Thinking iOS for PS2 Emulation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-kids-and-newbies-the-best-10-drones-out-there/"><u>[New] 2024 Approved Kids and Newbies The Best 10 Drones Out There</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-focus-on-the-essentials-the-compreenas-for-removing-youtube-channels-for-2024/"><u>[New] Focus on the Essentials The Compreenas for Removing Youtube Channels for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-experts-guide-to-recording-live-streaming-on-diverse-tech-gadgets/"><u>[New] In 2024, The Expert's Guide to Recording Live Streaming on Diverse Tech Gadgets</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamlining-video-calls-leveraging-zoom-on-windows-10-pcs/"><u>[New] Streamlining Video Calls Leveraging Zoom on Windows 10 PCs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-hp-envy-27-ultra-hd-usb-c-display-analysis/"><u>[Updated] 2024 Approved HP Envy 27 Ultra HD USB-C Display Analysis</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-discovering-the-power-of-youtubes-comment-system-for-2024/"><u>[Updated] Discovering the Power of YouTube's Comment System for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-nextv-networks-worldwide-streaming-with-your-locals/"><u>[Updated] NexTV Networks Worldwide Streaming With Your Locals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-toolwiz-evaluation-the-top-choice-in-mobile-editing-for-2024/"><u>[Updated] Toolwiz Evaluation The Top Choice in Mobile Editing for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-audiences-delighted-best-editors-to-transform-youtube-shorts/"><u>2024 Approved Audiences Delighted Best Editors to Transform Youtube Shorts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/capture-every-word-a-guide-to-recording-in-google-meet-for-2024/"><u>Capture Every Word A Guide to Recording in Google Meet for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-can-we-unlock-our-honor-x9b-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Honor X9b Phone Screen?</u></a></li>
 </ul></div>
 
