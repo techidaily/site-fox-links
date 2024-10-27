@@ -1,7 +1,7 @@
 ---
 title: "[New] What Is Mixed Reality?"
-date: 2024-10-18T03:55:05.017Z
-updated: 2024-10-20T21:48:50.852Z
+date: 2024-10-23T20:41:04.755Z
+updated: 2024-10-26T23:49:04.639Z
 tags: 
   - screen-recording
   - ai video
@@ -37,27 +37,20 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 
  In mixed reality, the user is given the ability to explore the virtual environment and the real world seamlessly at the same time. Through the use space and coordinates, the virtual objects will be positioned on the real world and whenever you move towards the virtual objects, they become larger while moving away from them makes them smaller. Moving around the virtual objects will also give you different angles and perspectives. Additionally, mixed reality will allow users to manipulate the virtual objects and interact with them as if they were with them in the same place.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How does Mixed Reality work
 
  With the development of the technology is shrouded in secrecy by the major players, all that is known on the operations of the technology is that it uses virtual reality and augmented reality as well as space and coordinates. Magic Leap is the company at the forefront in the development of mixed reality and they have remained tight lipped about the finer details of what they are doing or developing. The scanty details we know however, suggests that just like Hololens, mixed reality will use a projector for displaying images on semi transparent materials which will then be reflected to the eye with the help of beam-splitting technology.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Applications of Mixed Reality
 
  Due to the unique features and experiences offered by mixed reality, businesses, developers and the world in general is beginning to explore the various ways to utilize the technology for the best possible results. Currently, fields such as medicine, architecture and urban planning and education and training appear to be the greatest beneficiary of mixed reality technology.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mixed Reality for sharing real-world virtual workspaces
 
@@ -66,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  Sharing real world virtual spaces through mixed reality can be especially beneficial for sales team when making a pitch for a new offer. For instance, a pharmaceutical sales rep can carry along two mixed reality devices to an appointment with the doctor. The doctor and the sales rep can then both wear the devices and see a model of the new drug as explained by the sales rep. Through this, they can then visualize the chemical composition of the drug and also simulate how the drug will move in the body to fight diseases. Through such a shared experience, the sales rep will not only build deeper connections with the doctor, but also offer a more detailed explanation on the product being offered.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Mixed reality for remote experts – over the shoulder coaching
@@ -77,10 +70,10 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  Most enterprises usually find it difficult to address all the support requests from all the clients in need of expert advice. It is not only costly to fly in specialists to fix things in different locations, but also time consuming. Besides, it is never adequate to troubleshoot an issue over the phone and video conferencing in such situations also have its limitations. But all these can now be avoided through the application of mixed reality for offering over the shoulder coaching remotely. With mixed reality, access to experts can be done quickly and inexpensively. For example, doctors in the healthcare industry can offer guidance and decisions to students or other doctors without the need of being in the actual locations.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The future of mixed reality
@@ -92,6 +85,19 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  Also, since mixed reality experiences take place in the physical world, individuals are likely to react to them more emotionally than to a mere digital experience. As the technology develops, it is imperative for developers as well as the intended users to be aware of such issues and be ready to address them accordingly.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -118,20 +124,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-capturing-gameplay-moments-flawlessly-for-2024/"><u>[New] Capturing Gameplay Moments Flawlessly for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-experience-the-next-level-of-virtual-reality-with-htcs-vive-headset/"><u>[New] Experience the Next Level of Virtual Reality with HTC's Vive Headset</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-chuckle-inducing-snaps-applying-the-cartoon-face-effect-on-snapchat/"><u>[New] In 2024, Chuckle-Inducing Snaps Applying the Cartoon Face Effect on Snapchat</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-streamline-viewing-learn-to-insert-timestamps-on-videos/"><u>[New] In 2024, Streamline Viewing Learn to Insert Timestamps on Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-diminuendo-film-narrative-for-2024/"><u>[Updated] Diminuendo Film Narrative for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-leveraging-periscope-for-real-time-engagement-for-2024/"><u>[Updated] Leveraging Periscope for Real-Time Engagement for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-prolonged-sky-journeys-the-ultimate-drone-lineup-for-2024/"><u>[Updated] Prolonged Sky Journeys The Ultimate Drone Lineup for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-blueprint-for-gathering-free-pictorial-video-files/"><u>[Updated] The Blueprint for Gathering Free Pictorial Video Files</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/comprehensive-tutorial-adding-and-configuring-the-marauder-extension-for-kodi-users/"><u>Comprehensive Tutorial: Adding and Configuring the Marauder Extension for Kodi Users</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/freshly-compiled-list-of-standard-passwords-for-d-link-products-july-2024-edition/"><u>Freshly Compiled List of Standard Passwords for D-Link Products - July 2024 Edition</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-in-depth-look-at-vsco-photo-craftsmanship/"><u>In 2024, In-Depth Look at VSCO Photo Craftsmanship</u></a></li>
-<li><a href="https://fox-links.techidaily.com/pushing-visual-limits-in-depth-analysis-of-video-enhancer-22-for-2024/"><u>Pushing Visual Limits In-Depth Analysis of Video Enhancer 2.2 for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unleashing-the-power-of-creativity-increase-viewership-in-youtube-shorts/"><u>Unleashing the Power of Creativity Increase Viewership in YouTube Shorts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/visual-vanguard-cutting-edge-cinematographic-insights-year-of-24-for-2024/"><u>Visual Vanguard Cutting-Edge Cinematographic Insights - Year of '24 for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/win11-icons-how-to-ditch-the-focused-wallpaper-symbol/"><u>Win11 Icons: How to Ditch the Focused Wallpaper Symbol</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-building-buzz-strategies-for-shaping-your-unique-youtubing-image/"><u>[New] 2024 Approved Building Buzz Strategies for Shaping Your Unique YouTubing Image</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-mosaicmaker-elite-designing-with-digital-threads/"><u>[New] 2024 Approved MosaicMaker Elite Designing with Digital Threads</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-phantom-3-vs-phantom-4-complete-comparison/"><u>[New] 2024 Approved Phantom 3 Vs. Phantom 4 Complete Comparison</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-revolutionizing-gift-reveal-innovative-ideas/"><u>[New] 2024 Approved Revolutionizing Gift Reveal Innovative Ideas</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-shield-from-ai-crafted-youtube-video-selections/"><u>[New] 2024 Approved Shield From AI-Crafted YouTube Video Selections</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/1716183820559-new-in-2024-how-to-get-more-instagram-video-views/"><u>[New] In 2024, How to Get More Instagram Video Views?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-dark-side-of-digital-escapism/"><u>[New] In 2024, The Dark Side of Digital Escapism</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-iphone-video-clarity-in-premiere-pro-amidst-highlights-and-shadows-for-2024/"><u>[New] Mastering iPhone Video Clarity in Premiere Pro Amidst Highlights and Shadows for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unfailing-focus-top-tripods-for-iphone-and-android-cameras/"><u>[Updated] 2024 Approved Unfailing Focus Top Tripods for iPhone & Android Cameras</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-poco-c50-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Poco C50 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/leading-cloud-storage-vendors-a-comparative-pricing-analysis/"><u>Leading Cloud Storage Vendors A Comparative Pricing Analysis</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/meme-magic-iphone-edition-for-2024/"><u>Meme Magic IPhone Edition for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/smart-picklist-top-value-free-livestream-software-and-apps-reviewed-this-year-for-2024/"><u>Smart Picklist Top Value Free Livestream Software & Apps Reviewed This Year for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/superior-iphoneipad-gaming-awaits-the-four-best-emulator-picks/"><u>Superior iPhone/iPad Gaming Awaits: The Four Best Emulator Picks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/zooming-in-to-the-heart-of-roleplay-robloxs-close-up-guide/"><u>Zooming In to the Heart of Roleplay Roblox's Close-Up Guide</u></a></li>
 </ul></div>
 

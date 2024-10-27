@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Skyward Saga with GoPro Karma  A Comprehensive Review\""
-date: 2024-09-11T16:19:35.373Z
-updated: 2024-09-16T22:30:13.988Z
+date: 2024-10-19T18:12:39.295Z
+updated: 2024-10-26T16:56:16.963Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/e0931ca8ae70302ccf65495c157857813d9635f22
 
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Detailed review for GoPro Karma
 
 #### 1\.  Price
@@ -92,6 +99,13 @@ thumbnail: https://thmb.techidaily.com/e0931ca8ae70302ccf65495c157857813d9635f22
 
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
 
 #### Conclusion
@@ -99,6 +113,13 @@ thumbnail: https://thmb.techidaily.com/e0931ca8ae70302ccf65495c157857813d9635f22
 Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can be expensive when compared to the specifications on some of the other drones, if you do have some experience flying drones and you are looking for a great image quality, this could be the choice for you especially if you are looking for a portable drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -123,12 +144,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-identifying-ideal-pace-for-premium-slow-motion-cinematography/"><u>[New] Identifying Ideal Pace for Premium Slow Motion Cinematography</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-hdr-review-luminances-creation-capability/"><u>[New] In 2024, HDR Review Luminance's Creation Capability</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-guide-to-ions-pro-3-action-camera-capabilities/"><u>[New] The Ultimate Guide to ION's Pro 3 Action Camera Capabilities</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-crafting-comfortable-cinematography-amidst-the-chill/"><u>[Updated] Crafting Comfortable Cinematography Amidst the Chill</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-boosting-strategies-effortless-sponsorship-securing-tips/"><u>[Updated] In 2024, Channel Boosting Strategies Effortless Sponsorship Securing Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-master-guide-to-choosing-your-mp4-player-for-2024/"><u>[Updated] Master Guide to Choosing Your MP4 Player for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-multi-screen-browsing-effortlessly-in-google-chrome/"><u>[Updated] Navigating Multi-Screen Browsing Effortlessly in Google Chrome</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-premier-tips-for-capturing-the-excitement-of-online-cricket-matches-for-2024/"><u>[Updated] Premier Tips for Capturing the Excitement of Online Cricket Matches for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-redux-of-graphics-amd-radeon-update/"><u>[Updated] Redux of Graphics AMD Radeon Update</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unleash-potential-essential-windows-10-skills-review-for-2024/"><u>[Updated] Unleash Potential Essential Windows 10 Skills Review for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-upgrading-effortlessly-with-a-focus-on-key-lens-features/"><u>[Updated] Upgrading Effortlessly with a Focus on Key Lens Features</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-new-samsung-z-fold-4-pricing-specifications-and-availability/"><u>Discover the New Samsung Z Fold 4 - Pricing, Specifications & Availability</u></a></li>
+<li><a href="https://fox-links.techidaily.com/layering-youtube-vibes-on-video-canvases/"><u>Layering YouTube Vibes on Video Canvases</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/micromobility-chronicles-dates-to-remember-news-headlines-hearsay-and-expert-insights/"><u>Micromobility Chronicles: Dates to Remember, News Headlines, Hearsay & Expert Insights</u></a></li>
+<li><a href="https://article-files.techidaily.com/the-ultimate-iphone-x-handbook-for-users-for-2024/"><u>The Ultimate iPhone X Handbook for Users for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-ears-hi-res-earmuffs-review/"><u>Ultimate Ears Hi-Res Earmuffs Review</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/ultimate-guide-to-high-speed-pc-controller-extensions/"><u>Ultimate Guide to High-Speed PC Controller Extensions</u></a></li>
+</ul></div>
 

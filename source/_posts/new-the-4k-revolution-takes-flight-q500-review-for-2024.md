@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The 4K Revolution Takes Flight - Q500 Review for 2024\""
-date: 2024-10-18T02:59:12.307Z
-updated: 2024-10-20T20:54:37.266Z
+date: 2024-10-25T18:37:39.243Z
+updated: 2024-10-26T22:09:40.216Z
 tags: 
   - screen-recording
   - ai video
@@ -80,10 +80,10 @@ thumbnail: https://thmb.techidaily.com/5e5b9ce0dc07e3f4c01f086c082ef2c0bbdb4ea2b
 ![yuneec typhoon design](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-design.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This device is having big size that makes it difficult to carry on trips. But the design is sturdy with impressive appearance. At the same time, you are going to find one charger, two batteries and two sets of propellers with this package. Few other accessories are sunshield, neck strap, ST10+ controller, cable and a steady Grip mount. The design is almost good but demands little polish to appear attractive. Professionals love to work with its sturdy body and stable design that helps to keep videos shake free during flight hours.
@@ -100,26 +100,26 @@ thumbnail: https://thmb.techidaily.com/5e5b9ce0dc07e3f4c01f086c082ef2c0bbdb4ea2b
 
 ![yuneec typhoon controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-controller.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The transmitter as well as personal ground station of this system, both are combined together to form a single device that supports 10 channel functioning at 2.4GHz. Controller helps to make easy adjustments for flight modes and decisions about adventurous activities in air can be done easily. Roughly the control range is reported up to 800 meters. The dynamic return to home buttons offers fast response from drone to get back to its original position and it is very helpful if your device is running out of battery and it is required to make a safe landing as soon as possible. If you are able to understand the surroundings perfectly and learn all the control functions then it will become much easier to avoid crashes on the way and your device will surely work for years with great flight performances.
 
 #### 6\.  Camera
 
 ![yuneec typhoon q500 camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  As already discussed, it supports 4k recording abilities so users can expect breathtaking shoots in air. The camera is designed to offer 115 degree Field of View where 30 fps frame rate is supported for both 4K and 1080p resolution modes. Users can enjoy automatic settings at initial stage and once they are able to learn all advanced controls then it becomes much easier to shift towards classic flights with smart modes. You will be glad to know that this drone also has settings for slow motion videos with 1080p resolution and at frame rate of 120fps. It provides great flexibility to professional videographers for their advanced recording needs.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -129,10 +129,10 @@ thumbnail: https://thmb.techidaily.com/5e5b9ce0dc07e3f4c01f086c082ef2c0bbdb4ea2b
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -160,21 +160,16 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-best-6-value-proposition-affordable-4k-projectors/"><u>[New] Best 6 Value Proposition Affordable 4K Projectors</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-best-practices-aspect-ratio-in-twitters-videos-for-2024/"><u>[New] Best Practices Aspect Ratio in Twitters Videos for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-cinematic-closeness-a-kinemaster-expertise-for-close-up-craft-for-2024/"><u>[New] Cinematic Closeness A Kinemaster Expertise for Close-Up Craft for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-immersive-odyssey-the-most-exciting-psvr-games-on-the-way/"><u>[New] Immersive Odyssey The Most Exciting PSVR Games on the Way</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-ultimate-selection-of-zero-cost-online-terminal-access/"><u>[New] In 2024, Ultimate Selection of Zero-Cost Online Terminal Access</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fix-hidden-suggested-youtube-and-facebook-videos-explained/"><u>[Updated] Fix Hidden Suggested YouTube & Facebook Videos Explained</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-conversations-and-sharing-in-facebook-world/"><u>[Updated] Mastering Conversations and Sharing in Facebook World</u></a></li>
-<li><a href="https://fox-links.techidaily.com/discover-the-full-spectrum-of-yis-action-photography/"><u>Discover the Full Spectrum of Yi's Action Photography</u></a></li>
-<li><a href="https://fox-links.techidaily.com/elevate-yi-4k-shots-with-premium-add-ops-for-2024/"><u>Elevate YI 4K Shots with Premium Add-Ops for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-samsung-galaxy-f54-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Samsung Galaxy F54 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-discover-cost-free-vfx-wonders-on-the-net/"><u>In 2024, Discover Cost-Free VFX Wonders on the Net</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-unleashing-potential-a-deep-dive-into-intova-x/"><u>In 2024, Unleashing Potential A Deep Dive Into Intova X</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-unlock-zoom-broadcasting-potential-for-youtube-success/"><u>In 2024, Unlock Zoom Broadcasting Potential for YouTube Success</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/master-your-gadgets-with-expert-tips-from-toms-hardware/"><u>Master Your Gadgets with Expert Tips From Tom's Hardware</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/obs-101-youtube-live-stream-setup-tutorial-for-2024/"><u>OBS 101 Youtube Live Stream Setup Tutorial for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/shooting-in-the-dark-elevating-iphone-photos-with-shadows/"><u>Shooting in the Dark Elevating iPhone Photos with Shadows</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-premier-platforms-for-game-casting/"><u>[New] 2024 Approved Premier Platforms for Game Casting</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-circlesmiths-arsenal/"><u>[New] Circlesmith's Arsenal</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-10-emerging-youtube-channels-to-spark-motivation/"><u>[New] In 2024, Top 10 Emerging YouTube Channels to Spark Motivation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-best-practice-for-incorporating-gopro-clips-into-360-video-tapestries/"><u>[Updated] Best Practice for Incorporating GoPro Clips Into 360 Video Tapestries</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-social-media-collages-made-fast/"><u>[Updated] Innovative Social Media Collages Made Fast</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-list-of-different-video-camera-types-for-2024/"><u>[Updated] List of Different Video Camera Types for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discover-the-elite-eight-best-pc-and-laptop-brands-dominating-2024/"><u>Discover the Elite Eight: Best PC and Laptop Brands Dominating 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/find-the-best-value-top-6-budget-friendly-camera-options/"><u>Find the Best Value Top 6 Budget-Friendly Camera Options</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-untangling-the-video-jams-in-digital-portfolits/"><u>In 2024, Untangling the Video Jams in Digital Portfolits</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/ps5-worthiness-explored-here-are-4-factors-you-need/"><u>PS5 Worthiness Explored - Here Are 4 Factors You Need</u></a></li>
+<li><a href="https://win-answers.techidaily.com/top-techniques-to-ensure-smooth-play-in-red-dead-online-without-pc-interruptions/"><u>Top Techniques to Ensure Smooth Play in Red Dead Online Without PC Interruptions</u></a></li>
 </ul></div>
 

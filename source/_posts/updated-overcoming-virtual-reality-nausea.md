@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Overcoming Virtual Reality Nausea"
-date: 2024-09-15T22:34:45.958Z
-updated: 2024-09-16T18:27:54.070Z
+date: 2024-10-24T23:51:50.764Z
+updated: 2024-10-26T22:32:13.295Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/cc0866b80e38550ff25e3009719b526ea4484f9d3
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -62,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/cc0866b80e38550ff25e3009719b526ea4484f9d3
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -86,12 +100,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-focusfulness-selecting-online-video-augmenters/"><u>[New] 2024 Approved Focusfulness Selecting Online Video Augmenters</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-effective-approaches-to-downloading-hectic-tiktok-archives-for-2024/"><u>[New] Effective Approaches to Downloading Hectic TikTok Archives for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-unboxing-gurus-toolkit-amplifying-video-likes-on-tiktok/"><u>[New] The Unboxing Guru's Toolkit Amplifying Video Likes on TikTok</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-from-shadows-to-highlights-the-ultimate-lightroom-hdr-guide/"><u>[Updated] 2024 Approved From Shadows to Highlights The Ultimate Lightroom HDR Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-16-best-kickstart-videos-on-youtube-for-visibility-boost/"><u>[Updated] In 2024, 16 Best Kickstart Videos on YouTube for Visibility Boost</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-talking-head-techniques-diy-filming-made-simple/"><u>2024 Approved Talking Head Techniques DIY Filming Made Simple</u></a></li>
+<li><a href="https://techtrends.techidaily.com/code-28-explained-techniques-for-a-smooth-windows-experience/"><u>Code ^[[2]8 Explained: Techniques for a Smooth Windows Experience</u></a></li>
+<li><a href="https://fox-links.techidaily.com/disabling-suggested-podcast-episodes-on-spotify/"><u>Disabling Suggested Podcast Episodes on Spotify</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-hp-officejet-5740-printer-drivers-compatible-with-windows-11-10-and-8/"><u>Download HP OfficeJet 5740 Printer Drivers: Compatible with Windows 11, 10 & 8</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/get-started-now-comprehensive-action-guide-and-user-manual/"><u>Get Started Now: Comprehensive Action Guide & User Manual</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-3-tips-om-mkv-films-naar-dvd-format-te-zetten-op-windows-of-mac/"><u>Top 3 Tips Om MKV-Films Naar DVD-Format Te Zetten Op Windows of Mac</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-xiaomi-redmi-note-13-proplus-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Xiaomi Redmi Note 13 Pro+ 5G FRP Bypass</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-vivo-y78-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Vivo Y78 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+</ul></div>
 

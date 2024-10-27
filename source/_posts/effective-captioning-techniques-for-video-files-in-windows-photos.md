@@ -1,7 +1,7 @@
 ---
 title: "Effective Captioning Techniques for Video Files in Windows Photos"
-date: 2024-10-14T02:32:59.959Z
-updated: 2024-10-20T16:16:37.342Z
+date: 2024-10-24T19:40:16.998Z
+updated: 2024-10-26T19:27:34.985Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -74,28 +74,28 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
@@ -107,10 +107,10 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -138,20 +138,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-unlocking-earning-potential-with-youtube-shorts-crucial-elements-possible-returns/"><u>[New] 2024 Approved Unlocking Earning Potential with Youtube Shorts Crucial Elements, Possible Returns</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-singular-adventure-in-3dr-an-insightful-look-for-2024/"><u>[New] The Singular Adventure in '3DR' An Insightful Look for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-essential-iphone-handbook-for-gif-enthusiasts/"><u>[Updated] 2024 Approved The Essential iPhone Handbook for GIF Enthusiasts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-transforming-tones-techniques-in-free-fire/"><u>[Updated] 2024 Approved Transforming Tones Techniques in Free Fire</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-eliminate-youtubes-automatic-preplay-buffer/"><u>[Updated] Eliminate YouTube's Automatic Preplay Buffer</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-nostalgic-portraits-retold-transforming-old-prints-to-digital-for-2024/"><u>[Updated] Nostalgic Portraits Retold Transforming Old Prints to Digital for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-comprehensive-guide-to-crafting-impeccable-srt-files/"><u>[Updated] The Comprehensive Guide to Crafting Impeccable SRT Files</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-asus-rog-phone-8-frp-by-drfone-android/"><u>Full Guide to Bypass Asus ROG Phone 8 FRP</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Itel P55 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/inshots-counterparts-for-pc-video-editing/"><u>Inshot's Counterparts for PC Video Editing</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-xiaomi-redmi-note-12-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Xiaomi Redmi Note 12 5G? Fixed | Dr.fone</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/stealthy-threats-uncovering-and-defending-against-image-based-malware-infections/"><u>Stealthy Threats: Uncovering and Defending Against Image-Based Malware Infections</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-tecno-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Tecno</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-how-to-construct-your-own-home-made-google-cardboard-vr-device/"><u>[New] In 2024, How to Construct Your Own Home-Made Google Cardboard VR Device</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-time-warp-footage-with-phantom-lens-expertise/"><u>[New] In 2024, Time Warp Footage with Phantom Lens Expertise</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-perfect-your-iphone-photo-craftsmanship-with-top-10-design-tips-for-2024/"><u>[New] Perfect Your iPhone Photo Craftsmanship with Top 10 Design Tips for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-premium-fourteen-high-res-full-frame-selection-for-2024/"><u>[Updated] Premium Fourteen High Res Full Frame Selection for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/husqvarnas-sky-high-adventure-with-h501s-x4-review-for-2024/"><u>Husqvarna's Sky-High Adventure with H501S X4 Review for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-lava-agni-2-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Lava Agni 2 5G</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-elitemac-pro-the-best-in-high-quality-video-and-audio-recording/"><u>In 2024, EliteMac Pro The Best in High-Quality Video & Audio Recording</u></a></li>
+<li><a href="https://fox-links.techidaily.com/intro-to-drone-flying-check-out-the-syma-x5c-review-for-2024/"><u>Intro to Drone Flying? Check Out the Syma X5C Review for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/launching-into-the-spotlight-instagram-lives/"><u>Launching Into the Spotlight Instagram Lives</u></a></li>
+<li><a href="https://fox-links.techidaily.com/maximize-space-with-iphone-images-scaling/"><u>Maximize Space with iPhone Images Scaling</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-the-wait-is-over-filmora-x-unveils-arm-support/"><u>New 2024 Approved The Wait Is Over Filmora X Unveils ARM Support</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshoot-your-google-meet-mic-for-windows-11-and-10-a-step-by-step-guide-to-reconnect-sound/"><u>Troubleshoot Your Google Meet Mic for Windows 11 & 10 - A Step-by-Step Guide to Reconnect Sound</u></a></li>
 </ul></div>
 

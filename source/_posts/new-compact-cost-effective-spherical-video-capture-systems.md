@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Compact, Cost-Effective Spherical Video Capture Systems\""
-date: 2024-10-16T20:17:52.524Z
-updated: 2024-10-20T17:44:25.552Z
+date: 2024-10-22T16:02:08.641Z
+updated: 2024-10-27T05:44:24.708Z
 tags: 
   - screen-recording
   - ai video
@@ -55,13 +55,6 @@ Giroptic also makes a 360-degree camera, simply named the Giroptic 360cam, that 
 
 Have a quick review on Giroptic from this video:
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. [Kodak PixPro SP360 4K](https://kodakpixpro.com/Americas/cameras/vrcamera/sp3604k/)
 
 Kodak, one of the older names in photography, offers the Kodak PixPro SP360 4K Action Cam. It relies on a dome-shaped, fixed focus 235-degree lens to capture 360-degree video. Starting at $449 from Kodak, this camera isn't excessively expensive, though it's also not the cheapest offering. It shoots 2880x2880 video at 30 fps. It can also shoot stills at resolutions up to 8MP. While not the best image quality among the camera offerings, Kodak's camera is tough – resistant to water, dust, and shocks – making it a good choice if you find yourself on adventures where being careful with your precious camera isn't always your first priority.
@@ -73,6 +66,13 @@ A wonderful day with PixPro SP360 4K:
 The LG360 cam retails for around $200, making it one of the cheapest phones on the market, and was designed to work with the company's G5 smartphone, though it also works with an iPhone. It captures 2K, 360-degree video, and 5.1 channel surround sound, as well as allowing you to use only one of its two lenses for 180-degree image capture. It's a small camera with no built-in display, but the companion app acts as a remote control and lets you view your recording in real-time.
 
 Check a detailed review about LG360 Cam from this video
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. [ALLie Camera](https://allie.camera/)
 
@@ -86,13 +86,6 @@ Panono, a spherical camera retailing for around $549 is unique in using 36 lense
 
 Check this video to see how to take 360 pictures with Panono:
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. [Centr](https://www.centr.org/)
 
 Centr, a 360-degree cam funded on Kickstarter, retails for $399 and uses 4 110-degree lenses to capture its video. It has built-in image stitching technology, meaning that users don't need to use a desktop app or a cloud service to view the final video. It takes 20 MP photos and 4K video at 60 fps.
@@ -100,10 +93,10 @@ Centr, a 360-degree cam funded on Kickstarter, retails for $399 and uses 4 110-d
 Check a detailed review about Centr 360 camera:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 9\. [Bublcam](https://www.bublcam.com/)
@@ -114,6 +107,13 @@ One of the most expensive cameras in this line-up at around $800, Bublcam uses 4
 
 Bublcam's unboxing review:
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 10\. [Nikon Key Mission 360](https://www.nikonusa.com/en/nikon-products/action-cameras/index.page)
 
 Finally, Nikon's upcoming Key Mission 360 camera is built for action. It's a pocket-sized device with dual lenses, and it's meant to be rugged. Nikon advertises that it will be waterproof to 100 feet, and stand up to dust, shock, and cold. The app uses a simple swipe interface to let you get a panoramic view of everything you recorded. The expected retail price is $499.
@@ -121,10 +121,10 @@ Finally, Nikon's upcoming Key Mission 360 camera is built for action. It's a poc
 See more details about Nikon Key Mission 360 camera from this video:
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -158,22 +158,19 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-step-by-step-to-stunning-timelapses-a-comprehensive-guide-using-gopro/"><u>[New] 2024 Approved Step-By-Step to Stunning Timelapses A Comprehensive Guide Using GoPro</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-framed-in-perfection-the-1-10-camera-lens-list-for-stunning-photography/"><u>[New] Framed in Perfection The #1-10 Camera Lens List for Stunning Photography</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-premiere-pro-vanishing-art/"><u>[New] Premiere Pro Vanishing Art</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-collection-premium-dj-visuals-available-for-download/"><u>[New] Ultimate Collection Premium DJ Visuals Available for Download</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ace-the-hd-audiovideo-experience-in-android/"><u>[Updated] 2024 Approved Ace the HD Audio/Video Experience in Android</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-subtle-sound-level-lowering-in-fl-studio/"><u>[Updated] 2024 Approved Subtle Sound Level Lowering in FL Studio</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-video-trimming-for-maximum-instagram-impact-mac/"><u>[Updated] In 2024, Mastering Video Trimming for Maximum Instagram Impact (Mac)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-layers-of-a-great-humorous-poster-for-2024/"><u>[Updated] The Layers of a Great Humorous Poster for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unbeatable-accessories-elevating-vr-games-for-2024/"><u>[Updated] Unbeatable Accessories Elevating VR Games for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-unveiling-simplicity-in-ipad-screen-saving-tactics-for-2024/"><u>[Updated] Unveiling Simplicity in iPad Screen Saving Tactics for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/elevating-your-audacity-to-professional-levels/"><u>Elevating Your Audacity to Professional Levels</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-asmr-magic-made-simple-high-performance-at-economic-prices/"><u>In 2024, ASMR Magic Made Simple High Performance at Economic Prices</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-honor-x50i-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Honor X50i FRP In 3 Different Ways</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-screen-to-file-high-quality-professional-record/"><u>In 2024, Screen to File High-Quality Professional Record</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/movavi-free-pcx-converter-fast-and-easy-image-format-changes/"><u>Movavi Free PCX Converter: Fast and Easy Image Format Changes</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/youtube-captioning-for-clearer-communication-for-2024/"><u>YouTube Captioning for Clearer Communication for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-decoding-the-best-free-video-apps-for-os-multiplicity/"><u>[New] Decoding the Best Free Video Apps for OS Multiplicity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-premium-rate-free-discovering-the-elite-10-luts/"><u>[New] In 2024, Premium-Rate Free Discovering the Elite 10 LUTs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-future-awaits-equipping-yourself-for-metaverse-life-top-7/"><u>[New] The Future Awaits Equipping Yourself for Metaverse Life (Top 7)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-understanding-and-applying-auto-hdr-a-windows-11-tutorial/"><u>[New] Understanding and Applying Auto HDR A Windows 11 Tutorial</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-the-world-of-aspect-ratios-in-youtube-content/"><u>[Updated] 2024 Approved Exploring the World of ASPECT RATIOS in YOUTUBE Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-capturing-panoramic-views-fisheye-techniques/"><u>[Updated] In 2024, Capturing Panoramic Views Fisheye Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-regain-control-recovering-after-a-facebook-breach-for-2024/"><u>[Updated] Regain Control Recovering After a Facebook Breach for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-a-roadmap-to-crafting-popular-vlogging-narratives/"><u>2024 Approved A Roadmap to Crafting Popular Vlogging Narratives</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-building-bonds-before-buying-subscription-strategies/"><u>2024 Approved Building Bonds Before Buying Subscription Strategies</u></a></li>
+<li><a href="https://win-answers.techidaily.com/avoid-setbacks-with-vanguard-meet-the-new-minimal-specs-for-seamless-performance/"><u>Avoid Setbacks with Vanguard - Meet the New Minimal Specs for Seamless Performance</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-galaxy-s23-tactical-edition-support-mkv-video-files-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Galaxy S23 Tactical Edition support MKV video files?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Vivo V30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-revolutionize-gaming-sounds-ps5ps4-edition/"><u>In 2024, Revolutionize Gaming Sounds PS5/PS4 Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ultimate-guide-to-iphones-video-length-tailoring/"><u>Ultimate Guide to iPhone's Video Length Tailoring</u></a></li>
 </ul></div>
 
