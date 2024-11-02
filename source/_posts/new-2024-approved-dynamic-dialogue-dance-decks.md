@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Dynamic Dialogue Dance Decks\""
-date: 2024-09-11T02:54:38.130Z
-updated: 2024-09-12T02:54:38.130Z
+date: 2024-10-29T01:24:56.121Z
+updated: 2024-11-01T20:29:17.569Z
 tags: 
   - screen-recording
   - ai video
@@ -22,59 +22,24 @@ Adobe After Effects is an extremely popular video editor and its popularity is m
 
 After Effects have a wide range of text presets to make the texts and titles in your video look attractive with effects as well as animations. Apart from the pre-loaded presets, you can import external text animation presets and apply them to the texts. Here are the top 8 best text presets for animation composer that you can use on After Effects.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 1\. Glitch Text Effect Toolkit
 
 Glitch text effect is a trendy effect that gets the viewers’ attention immediately. In this pack, you get 30 glitch text effects that you can apply to the text in your video to make them stand out. These effects are highly adjustable and you can time them in and out of your text as per your preference. Along with glitch text effects, you get glitch sound effects to make the animation impactful. You can experiment with Random seed as well as Glitch maps you get in the pack.
 
 ![glitch text effect toolkit ae](https://images.wondershare.com/filmora/article-images/2022/07/glitch-text-effect-toolkit-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Liquid Text Animation
 
 You get 110 animated elements that you can apply to the text in your video. The effects are perfectly suitable for videos where comedy is the main theme. The liquid text effect looks organic and natural, and the colors are eye-catching to grab everyone’s attention. There are 8 text scenes and one text preset present, along with 110 animated presets. The effects are HD in resolution, and they are modular and adjustable. It is time to download and use them to make your video dynamic.
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 3\. Dynamic Text Animations
 
@@ -88,31 +53,18 @@ If you want to add texts and titles in your video that looks like the games mean
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 5\. CounterPro Preset
 
 In this pack, you will find unique text effects, and you can animate text with keyframe. You can animate numbers as well as characters, and it is mostly used to animate numbers to show counting. You can change different parameters of the animations and effects as per your preference. Furthermore, you can use it as a timer on your video to countdown. There are different styles available to apply to your texts and numbers.
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Text Library
 
@@ -120,19 +72,19 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
 
@@ -140,59 +92,18 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 8\. Text Animation Lower Third
 
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The Bottom Line
 
@@ -226,4 +137,20 @@ As the saying goes, the more the merrier and the more presets you have, the more
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-10-shopping-powerhouses-where-to-buy-personalized-present-wrappers/"><u>[Updated] 2024 Approved 10 Shopping Powerhouses Where to Buy Personalized Present Wrappers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-quick-guide-youtube-soundtracks-to-mp3-for-macos-2shift-for-2024/"><u>[Updated] Quick Guide YouTube Soundtracks to MP3 for MacOS 2Shift for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-showcase-a-dialogue-in-one-instagram-post/"><u>[Updated] Showcase a Dialogue in One Instagram Post</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unprecedented-engagement-reaching-for-a-million-audience/"><u>2024 Approved Unprecedented Engagement Reaching for a Million Audience</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-zenith-zephyrs-elite-notebooks-for-uhd-content-creation/"><u>2024 Approved Zenith Zephyrs Elite Notebooks for UHD Content Creation</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/nsv-mpeg-movavi/"><u>網路直接無條件 NSV 到 MPEG 轉換 - Movavi 工具</u></a></li>
+<li><a href="https://fox-links.techidaily.com/breathtaking-judgment-and-variant-proposals/"><u>Breathtaking Judgment & Variant Proposals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/capturing-motion-canon-camera-time-lapse-basics/"><u>Capturing Motion Canon Camera Time-Lapse Basics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/charismatic-captions-instagrams-animated-text-guide-for-2024/"><u>Charismatic Captions Instagram's Animated Text Guide for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/guide-to-quick-unwinding-files-forced-deletion-techniques-for-windows-11-users-leveraging-revouninstaller/"><u>Guide to Quick Unwinding Files: Forced Deletion Techniques for Windows 11 Users Leveraging RevoUninstaller</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/movavimp3vob/"><u>MOVAVIの無料スタイル：オンラインMP3とVOBデコード機能をご紹介！</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/the-ultimate-guide-to-the-ideal-apple-band-selection-comprehensive-reviews-by-tech-gurus-zdnet/"><u>The Ultimate Guide to the Ideal Apple Band Selection – Comprehensive Reviews by Tech Gurus | ZDNET</u></a></li>
+</ul></div>
 

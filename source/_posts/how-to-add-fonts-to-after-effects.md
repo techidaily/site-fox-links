@@ -1,7 +1,7 @@
 ---
 title: "How to Add Fonts to After Effects"
-date: 2024-09-10T02:50:13.733Z
-updated: 2024-09-16T21:48:25.126Z
+date: 2024-10-29T17:14:14.179Z
+updated: 2024-11-01T20:39:09.807Z
 tags: 
   - screen-recording
   - ai video
@@ -48,11 +48,25 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. Types of Fonts in After Effects
 
 Adobe After Effects provides a ton of families of fonts that can be added and used in video projects. These fonts are available on the Create Cloud application and also on the official website of adobe. Also, these fonts are categorized according to their height, weight, contrast as well as other attributes. And each of these fonts is shown with a preview saying "Typography" which can be selected instantly.
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
 
@@ -83,10 +97,10 @@ These features also include adding texts and changing the fonts of those texts o
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -95,13 +109,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -113,22 +120,16 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -163,5 +164,22 @@ The article discussed the detailed process of **how to add font to Adobe After E
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-optimize-haul-content-for-social-media-growth/"><u>[New] In 2024, How to Optimize Haul Content for Social Media Growth</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-kinemaster-unveiled-the-best-game-on-your-android-device/"><u>[Updated] 2024 Approved KineMaster Unveiled The Best Game on Your Android Device</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-hdmi-display-showdown-the-creme-de-la-creme-monitors/"><u>[Updated] HDMI Display Showdown The Crème De La Crème Monitors</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-editorsuite-ultimate-guide-in-depth-analysis-of-androvid/"><u>[Updated] In 2024, EditorSuite Ultimate Guide – In-Depth Analysis of AndroVid</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-notch-tricks-to-nail-every-green-screen-shot/"><u>[Updated] In 2024, Top-Notch Tricks to Nail Every Green Screen Shot</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-online-audio-video-fusion-platform-for-2024/"><u>[Updated] Online Audio Video Fusion Platform for 2024</u></a></li>
+<li><a href="https://solve-help.techidaily.com/dvdwinx-dvd-copy-software/"><u>安上がりで賢いDVDコピー方法：WinX DVD Copy Softwareの正しい使用とライセンスキー入手術!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/explore-virtual-worlds-pcs-1-list-of-vr-360-game-streamers-for-2024/"><u>Explore Virtual Worlds PC's #1 List of VR 360 Game Streamers for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/get-started-with-kmplayer-kmp-comprehensive-downloads-for-both-desktop-and-mobile-platforms/"><u>Get Started with KMPlayer KMP: Comprehensive Downloads for Both Desktop and Mobile Platforms</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-update-or-download-ds-530-printer-drivers-for-windows-10-x8664-step-by-step-guide/"><u>How to Update or Download DS-^530 Printer Drivers for Windows 10 (X86_64) - Step by Step Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-samsung-galaxy-a24-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Samsung Galaxy A24 to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/infinix-note-30-vip-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Infinix Note 30 VIP ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/starting-with-green-magic-an-in-depth-guide-to-the-filmmakers-color-technique-for-2024/"><u>Starting with Green Magic An In-Depth Guide to the Filmmaker’s Color Technique for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/1723010917603-troubleshooting-rocket-league-overcoming-launch-obstacles-easily/"><u>Troubleshooting Rocket League: Overcoming Launch Obstacles Easily!</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-translate-live-videos-with-the-best-video-translator/"><u>Updated In 2024, Translate Live Videos With The Best Video Translator</u></a></li>
+</ul></div>
 

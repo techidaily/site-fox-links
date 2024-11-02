@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Close-Up Power in VideoLeap  Zooming Made Easy\""
-date: 2024-09-11T02:54:38.669Z
-updated: 2024-09-12T02:54:38.669Z
+date: 2024-10-29T01:46:24.844Z
+updated: 2024-11-01T23:30:12.567Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,13 @@ Videoleap is famous for providing the best video editing features to its users a
 * Now play the video after zooming in by clicking on the "play" button and check whether the zoom effect has been added to your video project or not.
 * After you are satisfied, save the project and export it at your preference to your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Animate the Zoom effect in Videoleap
 
 Sometimes the video contents need a dramatic zoom effect that should take place while the video is still playing. And this is called an animated zoom in the Videoleap application. In other words, using the animated zoom effect in Videoleap, you will be able to zoom into your footage. And a major way to apply this effect is by considering the keyframes of the raw footage. These keyframes help the users by animating a zoom effect while there is a movement taking place in the video. And if you also want to animate the zoom effect in Videoleap, here is how you can do it:
@@ -55,50 +62,17 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 
 ![preview timeline videoleap](https://images.wondershare.com/filmora/article-images/2022/07/preview-timeline-videoleap.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 * Then select the "keyframes" tool from the toolbar at the bottom of your screen.
 * Add the keyframes to the desired portion of the video and then navigate the timecode to the place on the timeline where you want to stop it. After that add another keyframe at that point and pinch in to zoom the video.
 
 ![add keyframes videoleap](https://images.wondershare.com/filmora/article-images/2022/07/add-keyframes-videoleap.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 * Now head to the second time code where you want to focus the subject and then click on it. Then click on the "Preview" icon and see whether it needs further changes.
 * When you are satisfied, simply export the project and your animated zoom video will be saved successfully.
@@ -117,38 +91,17 @@ If for some reason you are not able to install and use Videoleap on your system 
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -164,38 +117,23 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -227,4 +165,19 @@ Videoleap is one of the leading video editing platforms available out there. The
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-fixed-youtube-shorts-not-showing-up/"><u>[New] Fixed YouTube Shorts Not Showing Up</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-rise-above-the-crowd-in-instagram-world-with-these-9-must-try-strategies/"><u>[Updated] 2024 Approved Rise Above the Crowd in Instagram World with These 9 Must-Try Strategies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-which-streaming-application-leads-the-race-wirecast-or-obs/"><u>2024 Approved Which Streaming Application Leads the Race, Wirecast or OBS?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/a-detailed-tutorial-on-how-to-use-green-screen-in-kinemaster-for-2024/"><u>A Detailed Tutorial On How To Use Green Screen In Kinemaster for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/bridging-the-gap-with-magix-music-maker-for-beginners-for-2024/"><u>Bridging the Gap with Magix Music Maker for Beginners for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/captivating-displays-for-expert-image-processors-2024-guide/"><u>Captivating Displays for Expert Image Processors, 2024 Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-cyberspace-30-the-metaverse-reality/"><u>Decoding Cyberspace 3.0: The Metaverse Reality</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-the-five-main-reasons-companies-limit-employee-use-of-chatgpt/"><u>Exploring the Five Main Reasons Companies Limit Employee Use of ChatGPT</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-everything-from-apple-iphone-6s-plus-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Everything from Apple iPhone 6s Plus to iPhone 8/X/11 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-from-apple-iphone-xs-max-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 From Apple iPhone XS Max</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-resolving-fps-confusion-30vs60-for-high-quality-recordings/"><u>In 2024, Resolving FPS Confusion 30Vs.60 For High-Quality Recordings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/zte-blade-a3y-review-competent-performance-from-a-budget-handset/"><u>ZTE Blade A3Y Review: Competent Performance From a Budget Handset</u></a></li>
+</ul></div>
 

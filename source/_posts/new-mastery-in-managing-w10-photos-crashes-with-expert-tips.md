@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastery in Managing W10 Photos Crashes with Expert Tips"
-date: 2024-09-11T02:55:39.792Z
-updated: 2024-09-12T02:55:39.792Z
+date: 2024-10-30T00:55:01.851Z
+updated: 2024-11-01T22:13:50.907Z
 tags: 
   - screen-recording
   - ai video
@@ -40,43 +40,12 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 **You may also like:** [How to Solve Windows 10 Photos App Crashes Effectively >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to fix Windows 10 Photos app crashes
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Solution 1: Use the Troubleshooter
 
@@ -92,19 +61,12 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Solution 2: Restore Default Libraries
 
@@ -117,21 +79,14 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-
-
-
+1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 ### Solution 3: Reset it
 
@@ -154,20 +109,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -179,6 +120,13 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -187,19 +135,12 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Shanoon Cox
 
@@ -224,12 +165,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-from-scene-to-video-canons-pathway-to-timelapse-excellence/"><u>[New] 2024 Approved From Scene to Video Canon's Pathway to Timelapse Excellence</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-customizing-youtube-viewing-policies-for-your-content/"><u>[Updated] 2024 Approved Customizing YouTube Viewing Policies for Your Content</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-ultra-screen-recorder-how-to-use/"><u>[Updated] 2024 Approved Ultra Screen Recorder - How to Use</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-capturing-footage-from-above-drone-filming-tips/"><u>[Updated] In 2024, Capturing Footage From Above Drone Filming Tips</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-ultimate-strategy-for-organizing-a-zoom-event-on-your-phonetablet/"><u>[Updated] In 2024, The Ultimate Strategy for Organizing a Zoom Event on Your Phone/Tablet</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-iphones-role-in-creating-immersive-vr-content/"><u>[Updated] IPhone's Role in Creating Immersive VR Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhance-ppts-appeal-through-soundtracks-for-2024/"><u>Enhance PPT's Appeal Through Soundtracks for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/free-conversion-of-mp4-to-mpeg-ts-streams-movavi-video-editor/"><u>Free Conversion of MP4 to MPEG-TS Streams - Movavi Video Editor</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-essential-cheat-sheet-for-first-time-final-cut-users/"><u>In 2024, The Essential Cheat Sheet for First Time Final Cut Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/maximizing-gopros-charged-time-span-for-2024/"><u>Maximizing GoPro's Charged Time Span for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/minecraft-critique-the-definitive-age-appropriate-creators-platform/"><u>Minecraft Critique: The Definitive, Age-Appropriate Creator's Platform</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-into-the-future-with-these-7-premier-live-streaming-apps-iphoneandroid/"><u>Step Into the Future with These 7 Premier LIVE Streaming Apps (iPhone/Android)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/twitch-vs-youtube-an-in-depth-comparative-analysis/"><u>Twitch Vs. YouTube An In-Depth Comparative Analysis</u></a></li>
+</ul></div>
 

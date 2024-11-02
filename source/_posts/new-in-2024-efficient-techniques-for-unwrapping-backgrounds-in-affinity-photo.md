@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Efficient Techniques for Unwrapping Backgrounds in Affinity Photo"
-date: 2024-10-25T20:56:27.078Z
-updated: 2024-10-27T01:45:33.079Z
+date: 2024-10-30T21:20:26.230Z
+updated: 2024-11-01T21:07:19.414Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,13 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -41,20 +48,27 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -63,6 +77,13 @@ Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, 
 Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** menu. A red mask will be applied to your subject, giving you an idea of how your image will look once you remove the background. Zoom in and if any details are excluded, paint them over. Once you are satisfied, click **"Apply"** to save your changes.
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
@@ -96,20 +117,13 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -135,19 +149,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -165,13 +166,6 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -223,14 +217,20 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-5-ways-to-record-league-of-legends-lol-games/"><u>[New] 5 Ways to Record League of Legends (LOL) Games</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-top-18-high-resolution-cameras-for-professionals-for-2024/"><u>[New] Top 18 High-Resolution Cameras for Professionals for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-a-lifetime-love-affair-with-top-15-classic-stop-motion-movies/"><u>2024 Approved A Lifetime Love Affair with Top 15 Classic Stop-Motion Movies</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-expanding-your-audience-on-youtube-step-by-step/"><u>2024 Approved Expanding Your Audience on Youtube Step by Step</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-jest-engineer-online/"><u>2024 Approved Jest Engineer Online</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-snapshot-surge-pro-high-quality-mobile-images-with-zero-cost/"><u>2024 Approved Snapshot Surge Pro High-Quality Mobile Images with Zero Cost</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlock-instagram-speed-mastering-video-and-likes/"><u>2024 Approved Unlock Instagram Speed - Mastering Video and Likes</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-vcs-quickcapture-critique-full-review-and-guide/"><u>2024 Approved VCS QuickCapture Critique Full Review & Guide</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/optimizing-pitch-alteration-in-audacity-a-guide-to-quality-retention/"><u>Optimizing Pitch Alteration in Audacity A Guide to Quality Retention</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-elevate-your-footage-comprehensive-review-of-sj-cam-s6/"><u>[New] Elevate Your Footage Comprehensive Review of SJ-CAM S6</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-everything-you-need-to-know-about-3d-lut-creator/"><u>[New] In 2024, Everything You Need to Know About 3D LUT Creator</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-hd-lenses-for-youtube-creators/"><u>[New] In 2024, Top HD Lenses for YouTube Creators</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-inside-the-world-of-xmedia-workshop-a-thorough-examination/"><u>[Updated] 2024 Approved Inside the World of XMedia Workshop A Thorough Examination</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-augmenting-flight-top-11-must-have-drone-accessories/"><u>[Updated] Augmenting Flight Top 11 Must-Have Drone Accessories</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-focus-on-essentials-affinity-method/"><u>[Updated] In 2024, Focus on Essentials - Affinity Method</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-key-steps-to-accurate-and-effective-market-research-analysis/"><u>[Updated] In 2024, Key Steps to Accurate and Effective Market Research Analysis</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unlocking-the-potential-of-videoleaps-zoom-functionality-for-2024/"><u>[Updated] Unlocking the Potential of VideoLeap's Zoom Functionality for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-budget-friendly-video-grabber-selections/"><u>2024 Approved Budget-Friendly Video Grabber Selections</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-joining-the-party-your-guide-to-tiktok-livestreams/"><u>2024 Approved Joining the Party Your Guide to TikTok Livestreams</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-asus-zenwifi-xt8-ax6600-wireless-router-test-and-evaluation/"><u>Comprehensive ASUS ZenWiFi XT8 AX6600 Wireless Router Test & Evaluation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-rank-the-best-fb-video-downloaders-heres-how/"><u>In 2024, Rank the Best FB Video Downloaders - Here's How</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mobile-live-streaming-on-yt-without-thousands-in-followers-for-2024/"><u>Mobile Live Streaming on YT Without Thousands in Followers for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-electronics-expertise-in-depth-gadget-analysis/"><u>Tom's Electronics Expertise: In-Depth Gadget Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tune-into-your-rhythm-while-working-out-with-garmin-vivoactive-3s-music-feature/"><u>Tune Into Your Rhythm While Working Out with Garmin Vivoactive 3'S Music Feature</u></a></li>
 </ul></div>
 

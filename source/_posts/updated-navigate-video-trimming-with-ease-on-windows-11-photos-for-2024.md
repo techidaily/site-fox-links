@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Navigate Video Trimming with Ease on Windows 11 Photos for 2024"
-date: 2024-09-11T02:56:21.409Z
-updated: 2024-09-12T02:56:21.409Z
+date: 2024-10-30T19:47:56.463Z
+updated: 2024-11-01T21:06:29.429Z
 tags: 
   - screen-recording
   - ai video
@@ -33,27 +33,10 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 * [**Part1: How to trim video in Windows 10 Photos**](#part1)
 * [**Part2: How to trim video in Windows 10 with VLC**](#part2)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 1: How to trim video in Windows 10 Photos
 
@@ -67,45 +50,18 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -125,19 +81,12 @@ Here comes the step by step guide to trim video in VLC –
 
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -145,35 +94,21 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Shanoon Cox
 
@@ -198,12 +133,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-enhancing-zoom-with-a-chrome-os-device/"><u>[New] 2024 Approved Enhancing Zoom with a Chrome OS Device</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-formulating-fascinating-film-moments/"><u>[New] 2024 Approved Formulating Fascinating Film Moments</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-expert-techniques-for-capturing-minute-details-on-video/"><u>[New] Expert Techniques for Capturing Minute Details on Video</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-a-diy-approach-downloading-and-personalizing-your-whatsapp-ringtone/"><u>[New] In 2024, A DIY Approach Downloading & Personalizing Your WhatsApp Ringtone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-transform-your-visuals-instagram-video-borders/"><u>[New] In 2024, Transform Your Visuals Instagram Video Borders</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-prime-7-fps-titles-you-cant-miss-for-2024/"><u>[Updated] Prime 7 FPS Titles You Can't Miss for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-seamless-art-of-game-recording-on-sonys-playstation-4-for-2024/"><u>[Updated] The Seamless Art of Game Recording on Sony's PlayStation 4 for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-soar-high-and-stream-straight-dji-drone-techniques-for-facebook-live/"><u>2024 Approved Soar High & Stream Straight - DJI Drone Techniques for Facebook Live</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-auditing-initiatives-boosted-by-ab-inbevs-backing-of-forhumanity/"><u>AI Auditing Initiatives Boosted by AB InBev's Backing of ForHumanity</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-oppo-reno-10-proplus-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Oppo Reno 10 Pro+ 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-rotate-your-iphone-videos-without-spending-a-dime-top-free-options-for-2024/"><u>New Rotate Your iPhone Videos Without Spending a Dime Top Free Options for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ultimate-guide-resolving-horizon-forbidden-west-full-game-crashes-in-pc/"><u>Ultimate Guide: Resolving 'Horizon Forbidden West' Full Game Crashes in PC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlocking-the-full-potential-of-vlc-media-player-on-mac/"><u>Unlocking the Full Potential of VLC Media Player on Mac</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/1728467602248-windows/"><u>Windows上网络克隆多台电脑的最有效技巧</u></a></li>
+</ul></div>
 

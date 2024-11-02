@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Revolutionary Q500  The Ultimate 4K Bird\""
-date: 2024-10-19T21:27:16.754Z
-updated: 2024-10-26T22:19:47.742Z
+date: 2024-10-30T01:41:47.473Z
+updated: 2024-11-01T16:05:15.457Z
 tags: 
   - screen-recording
   - ai video
@@ -59,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/0be5a94dd3d4589909d5a9db46fde9f5e7dc17aa8
 
  Yuneec has launched this camera unit with so many advanced features that make it highly suitable for professional [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/) or videography needs. It is one of the easy to operate and fast to adjust drone unit with little higher price range. Users can capture impressive footage with this camera whether you begin with ground or in air shooting.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review for Yuneec Typhoon Q500 4K
 
 #### 1\.  Basic Specs Info
@@ -79,13 +86,6 @@ thumbnail: https://thmb.techidaily.com/0be5a94dd3d4589909d5a9db46fde9f5e7dc17aa8
 
 ![yuneec typhoon design](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-design.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  This device is having big size that makes it difficult to carry on trips. But the design is sturdy with impressive appearance. At the same time, you are going to find one charger, two batteries and two sets of propellers with this package. Few other accessories are sunshield, neck strap, ST10+ controller, cable and a steady Grip mount. The design is almost good but demands little polish to appear attractive. Professionals love to work with its sturdy body and stable design that helps to keep videos shake free during flight hours.
 
 #### 3\.  Battery Life
@@ -101,10 +101,10 @@ thumbnail: https://thmb.techidaily.com/0be5a94dd3d4589909d5a9db46fde9f5e7dc17aa8
 ![yuneec typhoon controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The transmitter as well as personal ground station of this system, both are combined together to form a single device that supports 10 channel functioning at 2.4GHz. Controller helps to make easy adjustments for flight modes and decisions about adventurous activities in air can be done easily. Roughly the control range is reported up to 800 meters. The dynamic return to home buttons offers fast response from drone to get back to its original position and it is very helpful if your device is running out of battery and it is required to make a safe landing as soon as possible. If you are able to understand the surroundings perfectly and learn all the control functions then it will become much easier to avoid crashes on the way and your device will surely work for years with great flight performances.
@@ -113,14 +113,14 @@ thumbnail: https://thmb.techidaily.com/0be5a94dd3d4589909d5a9db46fde9f5e7dc17aa8
 
 ![yuneec typhoon q500 camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-camera.jpg)
 
- As already discussed, it supports 4k recording abilities so users can expect breathtaking shoots in air. The camera is designed to offer 115 degree Field of View where 30 fps frame rate is supported for both 4K and 1080p resolution modes. Users can enjoy automatic settings at initial stage and once they are able to learn all advanced controls then it becomes much easier to shift towards classic flights with smart modes. You will be glad to know that this drone also has settings for slow motion videos with 1080p resolution and at frame rate of 120fps. It provides great flexibility to professional videographers for their advanced recording needs.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ As already discussed, it supports 4k recording abilities so users can expect breathtaking shoots in air. The camera is designed to offer 115 degree Field of View where 30 fps frame rate is supported for both 4K and 1080p resolution modes. Users can enjoy automatic settings at initial stage and once they are able to learn all advanced controls then it becomes much easier to shift towards classic flights with smart modes. You will be glad to know that this drone also has settings for slow motion videos with 1080p resolution and at frame rate of 120fps. It provides great flexibility to professional videographers for their advanced recording needs.
 
 ## Conclusion
 
@@ -129,10 +129,10 @@ thumbnail: https://thmb.techidaily.com/0be5a94dd3d4589909d5a9db46fde9f5e7dc17aa8
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -160,19 +160,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-architectural-marvels-for-vr-display/"><u>[New] Architectural Marvels for VR Display</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-top-5-driving-and-race-replicas-for-2024/"><u>[New] Top 5 Driving & Race Replicas for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-comparing-youtube-and-dailymotion-notable-contrasts/"><u>[Updated] 2024 Approved Comparing YouTube and Dailymotion Notable Contrasts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-deconstructing-the-fisheye-effect-in-your-gopro-videos/"><u>[Updated] 2024 Approved Deconstructing the Fisheye Effect in Your GoPro Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-elite-editing-experience-ranked-top-6-tools-for-macos-big-surs-videos/"><u>[Updated] In 2024, Elite Editing Experience Ranked Top 6 Tools for macOS Big Sur's Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-podcast-live-the-straightforward-fix/"><u>[Updated] In 2024, Podcast Live The Straightforward Fix</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-effortlessly-traverse-facebooks-past-posts/"><u>2024 Approved Effortlessly Traverse Facebook’s Past Posts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-enhance-your-skills-with-the-top-10-drawing-apps-on-android-platform/"><u>2024 Approved Enhance Your Skills with the Top 10 Drawing Apps on Android Platform</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-the-most-efficient-analytics-instruments-for-your-tiktok-success/"><u>2024 Approved The Most Efficient Analytics Instruments for Your TikTok Success</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/compatibility-query-can-winx-software-play-videos-on-the-latest-windows-11-os/"><u>Compatibility Query: Can WinX Software Play Videos on the Latest Windows 11 OS?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/enhance-your-printing-experience-download-updated-epson-wf-3620-drivers-for-windows-os-1087/"><u>Enhance Your Printing Experience: Download Updated Epson WF-3620 Drivers for Windows OS 10/8/7</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Samsung Galaxy F04 | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/how-to-enjoy-every-goal-the-free-football-broadcast-guide-for-2024/"><u>How to Enjoy Every Goal The FREE Football Broadcast Guide for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-poco-m6-pro-4g-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Poco M6 Pro 4G</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-becoming-an-instagram-video-conversation-guru-your-ultimate-guide/"><u>[New] Becoming an Instagram Video Conversation Guru Your Ultimate Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-unbeatable-8-webcams-for-clear-smooth-live-streaming/"><u>[New] In 2024, Unbeatable 8 Webcams For Clear, Smooth Live Streaming</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-guardianship-against-oculus-induced-discomfort-for-2024/"><u>[Updated] Guardianship Against Oculus-Induced Discomfort for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ideal-choices-our-exclusive-top-10-gopro-case-picks-for-2024/"><u>[Updated] Ideal Choices Our Exclusive Top 10 GoPro Case Picks for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-innovative-strategies-for-effective-live-webcam-recording/"><u>[Updated] Innovative Strategies for Effective Live Webcam Recording</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-small-shop-success-through-social-video-content/"><u>[Updated] Small Shop Success Through Social Video Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-ultimate-kids-camera-guide-top-11-easy-waterproof-options/"><u>[Updated] The Ultimate Kids' Camera Guide - Top 11 Easy, Waterproof Options</u></a></li>
+<li><a href="https://fox-links.techidaily.com/cutting-edge-software-transform-and-tweet-videos-for-2024/"><u>Cutting-Edge Software Transform and Tweet Videos for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-inject-narratives-into-your-videography-windows-photos-title-addition-for-2024/"><u>How to Inject Narratives Into Your Videography Windows Photos Title Addition for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/launch-last-epoch-successfully-overcoming-pc-hurdles-with-our-2024-error-free-guide/"><u>Launch Last Epoch Successfully: Overcoming PC Hurdles with Our 2024 Error-Free Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/leading-8-tools-for-subtitle-srt-format-switching-for-2024/"><u>Leading 8 Tools for Subtitle-SRT Format Switching for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/overcoming-startup-stalls-on-macos-how-to-get-your-apps-running-again/"><u>Overcoming Startup Stalls on macOS: How to Get Your Apps Running Again</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-rhythm-revelations-audio-and-actors-dance/"><u>Rapid Rhythm Revelations Audio and Actors' Dance</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-reverse-trick-in-android-filmmaking/"><u>The Reverse Trick in Android Filmmaking</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-logitech-rx250-mouse-drivers-supported-by-windows-7-8-and-10-easy-driver-downloads/"><u>Update Logitech RX250 Mouse Drivers: Supported by Windows 7, 8 & 10 - Easy Driver Downloads</u></a></li>
 </ul></div>
 

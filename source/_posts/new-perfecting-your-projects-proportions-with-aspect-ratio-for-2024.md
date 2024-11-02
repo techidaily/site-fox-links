@@ -1,7 +1,7 @@
 ---
 title: "[New] Perfecting Your Project's Proportions with Aspect Ratio for 2024"
-date: 2024-10-24T21:52:58.067Z
-updated: 2024-10-27T05:36:44.289Z
+date: 2024-10-26T17:44:32.050Z
+updated: 2024-11-01T18:44:15.752Z
 tags: 
   - screen-recording
   - ai video
@@ -34,10 +34,10 @@ With that said, let's dive right into it!
 Aspect ratio is a digital image projection attribute describing the distance between the width and the height of an image. The dimensions are also defined as shapes such as a square which is 4:3\. A rectangle represents the 16:9 standard high definition aspect ratio, and inverted what you see on phones, that will be 9:16\. 9 refers to the width and 16 to the height.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Commonly used aspect ratios
@@ -52,16 +52,16 @@ This aspect ratio is recognized as the worldwide reference format for film, mobi
 
 This resolution is originally used in older television screens, which transformed into mobile use as this aspect ratio works really well for Instagram and Facebook videos, referring to the 9:16 phone resolution making a square video more pleasant to watch and to be featured in in-feed videos.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9:16 Vertical
 
 The 9:16 aspect ratio has become the mainstream resolution for smartphones for easier viewing of videos. This resolution allows for the vertical display of videos on tablets and phones, meaning that it allows videos to play while the device is being held in its upright position. This works ideally for Facebook, Instagram, Snapchat, YouTube Shorts, and more.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 21:9 Cinematic Widescreen
 
@@ -70,6 +70,13 @@ The 21:9 resolution is designed for filming ultra-wide screen movies that gives 
 ## 3\. Which aspect ratio should I choose?
 
 Depending on your project, broadcast location and filming options, here you can find an overview of which platforms are using which resolutions and how you can use that to improve your filming and viewer experience.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Facebook
 
@@ -82,13 +89,6 @@ Facebook is one of the most used website across the world on both computer and t
 9:16 for Facebook live videos
 
 9:16 for Facebook stories
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### YouTube
 
@@ -120,6 +120,13 @@ When talking about Instagram, which is very similar to Facebook, use these aspec
 
 9:16 for IGTV
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### TikTok
 
 Before Musical.ly users were migrated to a new platform called TikTok in 2018, it has been the leader on the board for a long time, and here are the recommended resolutions we think give the best results. Tik Tok allows you to share short videos, and is used by young people as an outlet to show their talents whether it's dancing, singing, cooking, comedy or any other form of entertainment they can express and use on the platform. There's also a feature to work together and collaborate with other Tik Tok creators across the globe.
@@ -130,13 +137,6 @@ Before Musical.ly users were migrated to a new platform called TikTok in 2018, i
 
 1:1; 16:9 or 9:16 for TikTok advertisements
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. How to adjust the aspect ratio of a video?
 
 A very important point we'd like to mention is that we don't recommend changing the aspect ratio after filming, because it could harm the video quality and we think it's best to choose the aspect ratio on your phone or camera before filming, besides that we have some great tips for optimizing your video for the watching experience below.
@@ -145,16 +145,16 @@ A very important point we'd like to mention is that we don't recommend changing 
 
 When editing your video, adding black bars is not changing the aspect ratio as you are just adding black bars to the screen. What we do recommend is cropping the video until you get the desired result. Adding black bars won't automatically make the platform adjust the video and it will affect the viewer experience.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Cropping
 
 Cropping your video will allow you to remove a section from your video, which works perfect for unwanted objects or people. While cropping the video, you are forced to pick the essential part of your video and disregard the rest of the video and to remove distraction from the frame.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -190,20 +190,17 @@ Having your video tested on multiple devices will allow you to see a preview of 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-easy-to-use-games-recorders-ranked-no-1-10/"><u>[New] In 2024, Easy-to-Use Games Recorders Ranked No. 1-10</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-how-to-polish-your-tiktok-edits-advanced-strategies-for-success/"><u>[New] In 2024, How to Polish Your TikTok Edits Advanced Strategies for Success</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-maximize-browser-functionality-chromes-full-screen-video-playback/"><u>[New] In 2024, Maximize Browser Functionality Chrome's Full-Screen Video Playback</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-inside-the-world-of-haul-video-production/"><u>[Updated] 2024 Approved Inside the World of Haul Video Production</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-high-definition-horizons-the-intricacies-of-dell-p2715q-screening-for-2024/"><u>[Updated] High-Definition Horizons The Intricacies of Dell P2715Q Screening for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-acoustic-bridge-to-captivating-trailers/"><u>[Updated] In 2024, The Acoustic Bridge to Captivating Trailers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-videography-subtitle-designer/"><u>[Updated] Videography Subtitle Designer</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-breathing-life-into-your-phone-the-complete-guide-to-android-audio-customization/"><u>2024 Approved Breathing Life Into Your Phone The Complete Guide to Android Audio Customization</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-the-finest-free-luts-of-the-year/"><u>2024 Approved Explore the Finest FREE LUTs of the Year</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-guffaw-gazette-twitters-funniest-threads/"><u>2024 Approved Guffaw Gazette Twitter's Funniest Threads</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-5-goggles-for-optimal-drone-pilot-viewing/"><u>2024 Approved Leading 5 Goggles for Optimal Drone Pilot Viewing</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/beyond-gaming-10-mind-blowing-alternatives-where-doom-thrives/"><u>Beyond Gaming: 10 Mind-Blowing Alternatives Where DOOM Thrives</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-or-disabled-on-iphone-6-7-mehtods-you-cant-miss-by-drfone-ios/"><u>In 2024, Apple ID Locked or Disabled On iPhone 6? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://fox-links.techidaily.com/step-into-professional-photoshop-mastering-luts-in-cs6cc/"><u>Step Into Professional Photoshop Mastering LUTs in CS6/CC</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-acid-pro-effect-exploring-similar-tools-for-2024/"><u>The ACID Pro Effect Exploring Similar Tools for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-step-by-step-guide-to-saving-google-meet-interactions/"><u>[New] In 2024, Step-by-Step Guide to Saving Google Meet Interactions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-essential-blueprint-to-compiling-youtube-soundscape/"><u>[Updated] 2024 Approved The Essential Blueprint to Compiling YouTube Soundscape</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-understanding-key-aspects-of-gif-animation/"><u>[Updated] 2024 Approved Understanding Key Aspects of GIF Animation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-transform-your-virtual-space-with-google-meet-tools/"><u>[Updated] In 2024, Transform Your Virtual Space with Google Meet Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-optimal-methods-for-controlling-video-pace-on-snapchat-for-2024/"><u>[Updated] Optimal Methods for Controlling Video Pace on Snapchat for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/discover-the-7-premier-tools-to-convert-digital-work-as-nfts-for-2024/"><u>Discover the 7 Premier Tools to Convert Digital Work as NFTs for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/harness-the-power-of-picture-in-progressive-screen-with-chrome/"><u>Harness the Power of Picture in Progressive Screen with Chrome</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-how-to-add-logowatermark-to-youtube-video/"><u>In 2024, How to Add Logo/Watermark to YouTube Video</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-essential-guide-to-low-cost-cloud-storage-plans/"><u>In 2024, The Essential Guide to Low-Cost Cloud Storage Plans</u></a></li>
+<li><a href="https://win-able.techidaily.com/smooth-gaming-solve-baldurs-gate-performance-problems-top-6-failsafes/"><u>Smooth Gaming: Solve Baldur's Gate Performance Problems - Top 6 Failsafes!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/solved-missing-images-on-your-iphone-quick-fix-guide/"><u>Solved: Missing Images on Your iPhone - Quick Fix Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/top-five-protocols-for-documenting-youtube-live-broadcasts-for-2024/"><u>Top Five Protocols for Documenting YouTube LIVE Broadcasts for 2024</u></a></li>
 </ul></div>
 

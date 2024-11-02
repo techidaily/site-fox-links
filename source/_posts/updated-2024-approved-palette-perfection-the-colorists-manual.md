@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Palette Perfection  The Colorist's Manual\""
-date: 2024-09-11T02:54:41.298Z
-updated: 2024-09-12T02:54:41.298Z
+date: 2024-10-29T22:34:05.065Z
+updated: 2024-11-01T16:02:09.242Z
 tags: 
   - screen-recording
   - ai video
@@ -22,45 +22,18 @@ So, you've heard about color theory but don't know what it is or how to use it a
 
 If you are more selective with your colors in your videos or imagery the viewer will find this aesthetically pleasing and may be more engaged in your content. This includes anything from logo design all the way to props for your shot. When creating your videos within Filmora it is good practice to think about your composition in all aspects including color theory and with the guide hopefully you will have a better understanding of how you can influence your color palette.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## What Is Color Theory
 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## The Color Wheel
 
@@ -70,25 +43,12 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Color Harmony
 
@@ -104,19 +64,12 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## But How Do I Use This
 
@@ -124,45 +77,24 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
@@ -198,4 +130,23 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unseen-video-on-sony-a6400-whats-going-wrong/"><u>[New] 2024 Approved Unseen Video on Sony A6400 What's Going Wrong?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-enthralling-narratives-discover-the-top-8-story-centric-universities/"><u>[New] In 2024, Enthralling Narratives Discover the Top 8 Story-Centric Universities</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-mastering-screen-capture-for-google-meet-talks/"><u>[Updated] 2024 Approved Mastering Screen Capture for GooGle Meet Talks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-unlock-social-potential-sharing-panoramic-content-with-facebook/"><u>[Updated] 2024 Approved Unlock Social Potential Sharing Panoramic Content with Facebook</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-become-a-video-quality-guru-with-vce-22-knowledge-for-2024/"><u>[Updated] Become a Video Quality Guru with VCE 2.2 Knowledge for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-best-4k-gaming-laptops-for-2024/"><u>[Updated] Best 4K Gaming Laptops for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-construct-humor-memes-via-adobe/"><u>[Updated] Construct Humor Memes via Adobe</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-professional-level-edits-made-simple-10-pixlr-strategies/"><u>[Updated] In 2024, Professional-Level Edits Made Simple 10 Pixlr Strategies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-leveraging-xml-and-ttml-for-cutting-edge-srt-creation-processes-for-2024/"><u>[Updated] Leveraging XML & TTML for Cutting-Edge SRT Creation Processes for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-vivo-v30-lite-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Vivo V30 Lite 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-comprehensive-manual-on-morphvox-sound-alteration/"><u>2024 Approved Comprehensive Manual on MorphVOX Sound Alteration</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/conveniently-keep-your-linkedin-videos-with-these-6-apps/"><u>Conveniently Keep Your LinkedIn Videos with These 6 Apps</u></a></li>
+<li><a href="https://win-answers.techidaily.com/final-verdict-on-mafia-definitive-edition-launch-puzzle-solved/"><u>Final Verdict on Mafia: Definitive Edition Launch Puzzle Solved!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722976884869-latest-firmware-for-tp-link-usb400-bluetooth-get-your-free-driver-here/"><u>Latest Firmware for TP-Link USB400 Bluetooth: Get Your Free Driver Here</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-driver-mismatches-in-the-ftdi-interface-for-secured-memory-functionality/"><u>Overcoming Driver Mismatches in the FTDI Interface for Secured Memory Functionality</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/00-earnest-creators-online-for-2024/"><u>Top 100 Earnest Creators Online for 2024</u></a></li>
+</ul></div>
 

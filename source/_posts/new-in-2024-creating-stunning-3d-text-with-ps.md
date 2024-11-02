@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Creating Stunning 3D Text with PS"
-date: 2024-10-24T04:38:12.196Z
-updated: 2024-10-26T21:58:13.372Z
+date: 2024-10-31T00:38:57.951Z
+updated: 2024-11-02T01:12:17.867Z
 tags: 
   - screen-recording
   - ai video
@@ -83,6 +83,13 @@ There is. It's called [Filmora](https://tools.techidaily.com/wondershare/filmora
 
 Compared to Photoshop, Filmora is not only easier to use, but it's significantly more affordable as well. With that said, let's find out how you can create a 3D text effect in Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Make a 3D Text Effect in Filmora
 
 The steps are extremely simple. Just follow each exactly as you see it here and you will be done in no more than 5 minutes.
@@ -96,10 +103,10 @@ Step2 Import a background video or image by going to **My Media** and selecting 
 ![import media files filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Next, head over to **Titles** and search for "3D". Select any option you like and drag it to the Timeline, above your background clip.
@@ -107,15 +114,22 @@ Step3 Next, head over to **Titles** and search for "3D". Select any option you l
 ![title option filmora](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its settings. Type in your custom text, change its font, color, and other features.
 
 ![3d titles filmora](https://images.wondershare.com/filmora/guide/3d-title.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 That's it! Congratulations!. You've created a 3D text effect with Filmora in just four simple steps.
 
@@ -135,22 +149,15 @@ Step1 First, you should download Filmora and install the program on your compute
 
 ![open new project filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Import a background video or image by going to **My Media** and selecting **Import Media.** From here, select any clip or image you want and hit **Open.** When it's imported, simply drag the clip to the Timeline below.
 
 ![import media files filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Next, head over to **Titles** and search for "3D". Select any option you like and drag it to the Timeline, above your background clip.
@@ -162,13 +169,6 @@ Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its set
 ![3d titles filmora](https://images.wondershare.com/filmora/guide/3d-title.png)
 
 That's it! Congratulations!. You've created a 3D text effect with Filmora in just four simple steps.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -198,17 +198,17 @@ Creating 3D text with Photoshop is a good idea if you already know how to use th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-budget-friendly-skydrive-solution-for-bulk-files/"><u>[New] 2024 Approved Budget-Friendly SkyDrive Solution for Bulk Files</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/roadview-networks-navigating-mcn-choices/"><u>[New] Broadview Networks Navigating MCN Choices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-unlocking-obs-potential-incorporating-luts-seamlessly/"><u>[New] Unlocking OBS' Potential Incorporating LUTs Seamlessly</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-ranking-the-best-free-passport-picture-services-worldwide/"><u>[Updated] In 2024, Ranking the Best Free Passport Picture Services Worldwide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-comparative-guide-to-the-metaverse-and-multiplemetaverse-platforms-insightful-analysis/"><u>2024 Approved Comparative Guide to the Metaverse & MultipleMetaverse Platforms (Insightful Analysis)</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-best-video-capture-for-iphoneipad-users/"><u>2024 Approved The Best Video Capture for iPhone/iPad Users</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-top-5-budget-friendly-video-effect-tools/"><u>2024 Approved Top 5 Budget-Friendly Video Effect Tools</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-vivo-y28-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Vivo Y28 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Tecno Spark 20C | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-swift-solution-for-clownfish-vocal-alteration-on-pc-systems/"><u>In 2024, Swift Solution for Clownfish Vocal Alteration on PC Systems</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-tele-loop-triumph-youtube-videos-endlessly-enjoyable-on-tv/"><u>In 2024, Tele-Loop Triumph YouTube Videos, Endlessly Enjoyable on Tv</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-imac-with-m1-review-discovering-enhanced-performance-and-graphics/"><u>In-Depth iMac with M1 Review: Discovering Enhanced Performance & Graphics</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-innovate-with-windows-10s-newest-apps-and-games/"><u>[New] Innovate with Windows 10'S Newest Apps and Games</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-iphone-videography-8-tips-of-recording-pro-videos/"><u>[New] IPhone Videography 8 Tips of Recording Pro Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-media-streamlining-is-a-podcast-or-youtube-better-for-you-in-2024/"><u>[New] Media Streamlining Is a Podcast or YouTube Better for You, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-e-shops-for-unique-tailored-boxed-gifts-and-packages-for-2024/"><u>[New] Top E-Shops for Unique, Tailored Boxed Gifts & Packages for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-engage-learn-and-multitask-top-ideas-for-making-most-of-your-podcasts/"><u>[Updated] 2024 Approved Engage, Learn & Multitask Top Ideas for Making Most of Your Podcasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-the-process-essential-techniques-and-strategies-for-green-screen-filmmaking/"><u>[Updated] Mastering the Process Essential Techniques & Strategies for Green Screen Filmmaking</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/detailed-breakdown-straightforward-hdr-imaging/"><u>Detailed Breakdown Straightforward HDR Imaging</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-capturing-every-moment-an-overview-of-apowersofts-screenshot-tool/"><u>In 2024, Capturing Every Moment An Overview of Apowersoft's Screenshot Tool</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-lava-storm-5g-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Lava Storm 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-note-30-vip-racing-edition-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Infinix Note 30 VIP Racing Edition Phone Without Password?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/initiating-meetings-on-the-move-tech-advice/"><u>Initiating Meetings on the Move Tech Advice</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-studio-excellence-the-revolutionary-audio-capabilities-of-apples-latest-iphone-model-as-reviewed-by-zdnet/"><u>Unlocking Studio Excellence: The Revolutionary Audio Capabilities of Apple's Latest iPhone Model, as Reviewed by ZDNET</u></a></li>
 </ul></div>
 

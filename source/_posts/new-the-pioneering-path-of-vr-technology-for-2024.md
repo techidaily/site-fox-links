@@ -1,7 +1,7 @@
 ---
 title: "[New] The Pioneering Path of VR Technology for 2024"
-date: 2024-10-23T04:21:38.691Z
-updated: 2024-10-26T22:28:37.641Z
+date: 2024-10-26T22:17:19.113Z
+updated: 2024-11-02T00:47:32.311Z
 tags: 
   - screen-recording
   - ai video
@@ -40,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/ef542613ecfd778273a563914315ea95552a0c901
 ![google-cardbaorad-1]( https://images.wondershare.com/filmora/resource/google-cardbaorad-1.jpg
  )
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The VR gaming development is truly rising then
 
  Is it really the right time to make comment like virtual reality is really uprising as a gaming platform? If you take the year of year survey report, yes the result shows a significant uptick for the interest of this platform. If we look back at the last year’s survey, it revealed that only 33.4 percent of the developers were interested to develop games for VR platforms. If you consider in terms of interest, VR was placed behind the PC/Mac, PlayStation 4, smartphones or tablets. But, considering this year’s data, we can see more advancement in the interest for the VR platform! More and more European developers are now getting interested to develop games for VR platforms that the smartphones or tablets.
@@ -54,21 +47,22 @@ thumbnail: https://thmb.techidaily.com/ef542613ecfd778273a563914315ea95552a0c901
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
 
@@ -77,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/ef542613ecfd778273a563914315ea95552a0c901
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -90,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/ef542613ecfd778273a563914315ea95552a0c901
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -121,19 +115,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/2024-approved-excellence-in-editing-merging-storyremix-with-windows-photos-for-professional-results/"><u>2024 Approved Excellence in Editing Merging StoryRemix with Windows Photos for Professional Results</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-get-creative-streamline-your-movies-with-one-clicks-on-windows-10/"><u>2024 Approved Get Creative Streamline Your Movies with One Clicks on Windows 10</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-maximizing-b-roll-effective-techniques/"><u>2024 Approved Maximizing B-Roll Effective Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-pursuing-prolonged-iphone-night-sky-captures/"><u>2024 Approved Pursuing Prolonged iPhone Night Sky Captures</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-revolutionizing-your-viewing-the-zoom-effectiveness/"><u>2024 Approved Revolutionizing Your Viewing The Zoom Effectiveness</u></a></li>
-<li><a href="https://fox-access.techidaily.com/essential-tips-for-writing-accurate-slug-lines-for-2024/"><u>Essential Tips for Writing Accurate Slug Lines for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-honor-play-40c-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Honor Play 40C FRP In 3 Different Ways</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-system-of-apple-iphone-8-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System of Apple iPhone 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-honor-play-40c-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/the-speedy-way-to-new-and-improved-scansnap-s110-groove-with-effortless-driver-updates/"><u>The Speedy Way to New and Improved ScanSnap S110 Groove with Effortless Driver Updates</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-tactics-podcast-recording-on-ios-devices-for-voice-broadcasts/"><u>Top Tactics Podcast Recording on iOS Devices for Voice Broadcasts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/video-dominance-on-instagram-designing-a-pro-marketing-approach/"><u>Video Dominance on Instagram Designing a Pro-Marketing Approach</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-auditory-adaptability-for-ace-gamers-for-2024/"><u>[New] Auditory Adaptability for Ace Gamers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-whirling-installer-range/"><u>[New] In 2024, Whirling Installer Range</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pioneering-color-grading-with-3d-luts/"><u>[New] Pioneering Color Grading with 3D LUTs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-picture-in-picture-settings-for-iphone-and-ipad/"><u>[Updated] Navigating Picture-in-Picture Settings for iPhone & iPad</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-crystaleye-high-res-captures-wx/"><u>2024 Approved CrystalEye High-Res Captures WX</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-realme-c53-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-exploring-high-definition-chroma-blade-photography/"><u>In 2024, Exploring High-Definition Chroma Blade Photography</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-precision-in-motion-select-smartphones-that-enhance-videography-effortlessly/"><u>In 2024, Precision in Motion Select Smartphones that Enhance Videography Effortlessly</u></a></li>
+<li><a href="https://fox-links.techidaily.com/lg-virtual-reality-innovation-a-detailed-review/"><u>LG Virtual Reality Innovation A Detailed Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/revolutionary-process-to-blend-gopro-videos-into-360-degree-panoramas-for-2024/"><u>Revolutionary Process to Blend GoPro Videos Into 360-Degree Panoramas for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-rated-protective-covers-for-the-samsung-galaxy-z-fold-4-a-comprehensive-guide/"><u>Top-Rated Protective Covers for the Samsung Galaxy Z Fold 4 : A Comprehensive Guide</u></a></li>
 </ul></div>
 

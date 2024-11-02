@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Instant Guide  Restoring the Old-School Windows Photo Viewer on Win 11\""
-date: 2024-10-20T06:39:03.249Z
-updated: 2024-10-27T06:26:24.321Z
+date: 2024-10-26T16:38:42.577Z
+updated: 2024-11-01T16:57:05.136Z
 tags: 
   - screen-recording
   - ai video
@@ -63,10 +63,10 @@ Here is why they want to restore Windows Photo Viewer –
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
@@ -77,16 +77,16 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -102,16 +102,22 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -119,14 +125,14 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -153,19 +159,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-future-fables-top-30-quotes-on-tomorrows-realities/"><u>[New] 2024 Approved Future Fables Top 30 Quotes on Tomorrow's Realities</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-personalizing-your-ig-experience-blocking-tactics/"><u>[New] In 2024, Personalizing Your IG Experience Blocking Tactics</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-4-ultimate-strategies-for-creating-softened-iphone-pics/"><u>[Updated] 2024 Approved The 4 Ultimate Strategies for Creating Softened iPhone Pics</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-building-your-dream-4k-video-editing-studio-a-diy-blueprint-for-2024/"><u>[Updated] Building Your Dream 4K Video Editing Studio A DIY Blueprint for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-evaluating-radiant-qualities-of-hd-lighting/"><u>[Updated] Evaluating Radiant Qualities of HD Lighting</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-exploring-imovies-default-crop-settings-for-2024/"><u>[Updated] Exploring iMovie's Default Crop Settings for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/expert-advice-successfully-installing-the-ryzen-master-software-without-hitches/"><u>Expert Advice: Successfully Installing the Ryzen Master Software Without Hitches</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-realme-narzo-60x-5g-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Realme Narzo 60x 5G Phone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on Apple iPhone 6s Plus</u></a></li>
-<li><a href="https://fox-links.techidaily.com/mastering-online-tale-creation-fundamentals/"><u>Mastering Online Tale Creation Fundamentals</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Oppo Find X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-11-screen-makeover-tailored-wallpapers-per-monitor/"><u>Windows 11 Screen Makeover: Tailored Wallpapers Per Monitor</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-color-dynamics-bringing-artistic-vision-to-life/"><u>[New] 2024 Approved Color Dynamics Bringing Artistic Vision to Life</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-masterful-video-text-techniques-ranked/"><u>[New] 2024 Approved Masterful Video Text Techniques - Ranked</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-best-practices-for-reading-youtube-comments/"><u>[New] In 2024, Best Practices for Reading YouTube Comments</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-fifa-footage-analysis-trendy-video-patterns/"><u>[New] In 2024, FIFA Footage Analysis Trendy Video Patterns</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-prohero-gopro-vs-nikkor-keymission-camera-faceoff-for-2024/"><u>[New] ProHero GoPro VS Nikkor Keymission Camera Faceoff for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-yis-4k-capability-in-action-capture/"><u>[New] Yi's 4K Capability in Action Capture</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-samsungs-rival-the-leading-cameras-to-match-your-gear-360-needs/"><u>[Updated] 2024 Approved Samsung’s Rival The Leading Cameras to Match Your Gear 360 Needs</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-campaign-tactics-for-enhancing-health-awareness-for-2024/"><u>[Updated] Campaign Tactics for Enhancing Health Awareness for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-must-have-settings-for-online-broadcasting/"><u>2024 Approved Must-Have Settings for Online Broadcasting</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-xiaomi-civi-3-disney-100th-anniversary-edition-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Xiaomi Civi 3 Disney 100th Anniversary Edition Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-all-about-kinemaster-androids-ultimate-gaming-companion/"><u>In 2024, All About KineMaster Android's Ultimate Gaming Companion</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-engaging-podcast-openers-captivating-intro-lines/"><u>In 2024, Engaging Podcast Openers Captivating Intro Lines</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-integrative-motion-analysis-compendium/"><u>In 2024, Integrative Motion Analysis Compendium</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-stutter-and-lag-issues-in-overwatch-a-comprehensive-guide/"><u>Overcoming Stutter & Lag Issues in Overwatch - A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-solution-to-restoring-wi-fi-functionality-on-vizio-displays/"><u>Step-by-Step Solution to Restoring Wi-Fi Functionality on Vizio Displays</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-elevating-your-youtube-presence-with-these-20-hacks-for-2024/"><u>The Ultimate Guide to Elevating Your YouTube Presence with These 20 Hacks for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-honor-magic-vs-2-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Honor Magic Vs 2 Location | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-infinix-hot-30-5g-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of Infinix Hot 30 5G?</u></a></li>
 </ul></div>
 

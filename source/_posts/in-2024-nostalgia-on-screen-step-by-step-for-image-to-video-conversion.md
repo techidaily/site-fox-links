@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Nostalgia on Screen  Step-by-Step for Image to Video Conversion\""
-date: 2024-09-11T02:54:39.117Z
-updated: 2024-09-12T02:54:39.117Z
+date: 2024-10-27T19:23:58.051Z
+updated: 2024-11-01T18:15:05.982Z
 tags: 
   - screen-recording
   - ai video
@@ -36,20 +36,6 @@ Therefore, it is highly recommended to digitize photos to make them lasting. In 
 * [Part 2: How to Convert Old Photos into a Video with Ease?](#part2)
 * [Part 3: More Editing Tips for Creating Memorable Videos](#part3)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 4 Smart Ways to Digitize Your Memorable Old Photos
 
 With time, the way we capture moments has also been changed. These days, Polaroid cameras have been replaced by various smartphones and [4K DSLR cameras](https://tools.techidaily.com/wondershare/filmora/download/). Nevertheless, you can digitize your photos in either of the following ways so that you can convert them into softcopy and easily move them around.
@@ -78,6 +64,13 @@ Some popular photo scanners that you can consider using are Scanner Pro, PhotoSc
 
 In case you have a lot of pictures that you wish to scan and little time, then you can also get in touch with some professionals. There are tons of photo digitization services that you can explore in almost every major city to get dedicated assistance.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Convert Old Photos into a Video Effortlessly?
 
 By now, you would be able to digitize photos and have a soft copy of your old photographs. Apart from that, a lot of people would also like to make a video collage of their favorite pictures as well. If you have old pictures of a loved one and a special occasion is coming, then a video collage of their photos would be one of the best gifts.
@@ -100,25 +93,18 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #### 3\. Edit the video
 
@@ -126,19 +112,18 @@ Just above the timeline, you can find all kinds of tools to edit your video. For
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -156,55 +141,20 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 #### 5\. Export your video
 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Find more fancy ways to make the best photo and video slideshow with Filmora!
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## More Editing Tips for Creating Memorable Videos
 
@@ -234,20 +184,6 @@ Most importantly, pick a user-friendly and effective video editor like Filmora. 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
@@ -275,4 +211,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-ace-the-art-of-tiktok-unboxing-more-likes-less-effort/"><u>[New] Ace the Art of TikTok Unboxing More Likes, Less Effort</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-xsplit-guidebook-in-depth-splits-analysis/"><u>[New] In 2024, XSplit Guidebook In-Depth Splits Analysis</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-safekeeping-sensitive-visuals-from-public-eyes-for-2024/"><u>[New] Safekeeping Sensitive Visuals From Public Eyes for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-fast-guide-mastering-instagram-live-conversations/"><u>[Updated] 2024 Approved Fast Guide Mastering Instagram Live Conversations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-slow-how-to-slow-down-youtube-videos-3-ways/"><u>[Updated] YouTube Slow How to Slow Down YouTube Videos [3 Ways]</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-adding-closed-captioning-to-instagram-live-and-igtv/"><u>2024 Approved Adding Closed Captioning to Instagram Live and IGTV</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-the-art-of-creating-impactful-ae-titles/"><u>2024 Approved The Art of Creating Impactful AE Titles</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-timeless-trove-of-freely-shared-works/"><u>2024 Approved The Timeless Trove of Freely Shared Works</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-ultimate-showdown-vlc-versus-mpc-in-video-viewing/"><u>2024 Approved The Ultimate Showdown VLC Versus MPC in Video Viewing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-top-budget-friendly-sites-for-stunning-fx-on-videos/"><u>2024 Approved Top Budget-Friendly Sites For Stunning FX on Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unparalleled-background-music-compilation/"><u>2024 Approved Unparalleled Background Music Compilation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-zoom-edge-advantage-essential-insights-for-format-alteration/"><u>2024 Approved Zoom Edge Advantage Essential Insights for Format Alteration</u></a></li>
+<li><a href="https://fox-links.techidaily.com/advanced-tips-to-create-and-blend-hdr-images-using-lightroom-for-2024/"><u>Advanced Tips to Create & Blend HDR Images Using Lightroom for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/bargain-cameras-that-dont-skimp-on-quality-for-2024/"><u>Bargain Cameras That Don't Skimp On Quality for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/beam-me-up-optimal-webcam-choices-for-podcasts/"><u>Beam Me Up Optimal Webcam Choices for Podcasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/best-in-class-slideshow-maker-xi-to-x-series-iphones-for-2024/"><u>Best-in-Class Slideshow Maker XI to X Series iPhones for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/core-skills-in-video-and-film-creation-for-2024/"><u>Core Skills in Video and Film Creation for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://extra-information.techidaily.com/juxtaposing-flight-with-flair-a-bebop-parrot-analysis/"><u>Juxtaposing Flight with Flair – A Bebop Parrot Analysis</u></a></li>
+</ul></div>
 

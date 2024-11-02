@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Achieving Professional Colors with Central Luts"
-date: 2024-10-21T01:06:55.556Z
-updated: 2024-10-27T04:59:56.195Z
+date: 2024-10-27T00:03:30.867Z
+updated: 2024-11-01T16:55:28.540Z
 tags: 
   - screen-recording
   - ai video
@@ -35,9 +35,29 @@ LUTs or Look Up Tables are nothing more than a table of numbers that apply a col
 
 The Color Grading Central LUTs effect is stylish and cinematic.
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. How to use Luts from color grading central to color grading for movies?
 
 ![color grading for movies](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Color grading is one way to enhance the look of your shots and serve your narrative vision. That's why many filmmakers, editors, and colorists working on film use Look Up Tables, or LUTs, to store color grades as templates to help speed up the process.
 
@@ -53,19 +73,6 @@ The other two types of LUTs can be either 1D or 3D LUTs, but these days they are
 
 ![luts in movies](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-3.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 An input or camera LUT used at the beginning of the color correction process adjusts the footage so that the color correction tools work correctly. Color corrected recordings that require an input or camera LUT without one can lead to unexpected and unsatisfactory results.
 
 Conversely, you typically apply a LUT look after you've done color correction and moved on to the color grading phase. Use it to dial in the exact artistic look you want. The Look LUT contains instructions to create a predetermined desired look for your shots, which can be an incredible time saver in the color grading process.
@@ -77,10 +84,10 @@ LUTs are specially designed for different recording types – LOG, RAW, Rec.709,
 Many camera manufacturers, software companies, and independent producers offer downloadable LUTs or LUT packs. They often design these skins for specific purposes, such as color correcting footage captured by their cameras or to mimic signature skins seen in movies and TV shows. These skins can give you exactly the color class you want, or you can use them and keep tweaking and tweaking to get the perfect look.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Free LUTs sources
@@ -89,13 +96,6 @@ Cinematic LUTs are pre-saved settings that make color grading easy and efficient
 
 LUTs are shared in the .cube file format, which is supported by the most popular video editors, such as DaVinci Resolve, Premiere Pro CC, After Effects CC, and Sony Vegas.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. [Ground Control Color: 13 Free LUTs](https://www.groundcontrolcolor.com/free-luts.html)
 
 Ground Control Color specializes in creating color LUTs for different cameras and recording formats. In addition to having an impressive line of products, they also give away a great selection of thirteen free LUTs for video editors.
@@ -103,6 +103,20 @@ Ground Control Color specializes in creating color LUTs for different cameras an
 From the "Free LUTs" page, users can download ten free conversion LUTs and three stylistic color LUTs.
 
 ![ground control color](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. [Color Grading Central: 7 Free LUTs, Color Presets, and Grains](http://www.colorgradingcentral.com/)
 
@@ -124,13 +138,6 @@ If you want to add a dramatic and cinematic feel to your footage, use this free 
 
 ![smallhd](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. [Frank Glencairn: Free Vintage LUT](https://frankglencairn.wordpress.com/2014/01/15/everything-looks-better-on-kodachrome-k-tone-lut/)
 
 Despite having the latest filmmaking technology at our fingertips, there is something about the old film look that looks amazing.
@@ -142,10 +149,10 @@ Now you can replicate the look with retro-looking reds, blues, and yellows with 
 ![frank glencairn](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. [Lutify.me: 7 Free Luts](https://lutify.me/free-luts/)
@@ -169,17 +176,10 @@ Of course, if you're still dissatisfied with the result you may select **"Advanc
 ![preset](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-central-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -222,20 +222,24 @@ In summary, we've seen some different color grading LUTs that simplify the color
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-how-to-combine-videos-into-one-on-iphone/"><u>[New] 2024 Approved How to Combine Videos Into One on iPhone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-sj6-mastery-showdown-sjcam-vs-xiaomis-yi-pro-4k/"><u>[New] 2024 Approved SJ6 Mastery Showdown SJCam Vs. Xiaomi's Yi Pro 4K</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-navigating-the-maze-to-find-your-ideal-4k-screen/"><u>[New] In 2024, Navigating the Maze to Find Your Ideal 4K Screen</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-mastering-the-darkened-skies-with-iphones/"><u>[New] Mastering the Darkened Skies with iPhones</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-playlist-embedding-on-sites-using-youtube/"><u>[New] Playlist Embedding on Sites Using YouTube</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-extensive-audit-unveiling-the-dji-inspire-1-drone/"><u>[Updated] 2024 Approved Extensive Audit Unveiling the DJI Inspire 1 Drone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-building-an-instagram-empire-in-just-nine-simple-steps-for-2024/"><u>[Updated] Building an Instagram Empire in Just Nine Simple Steps for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-finding-a-way-to-download-fcp-free-of-charge/"><u>[Updated] In 2024, Finding a Way to Download FCP Free-Of-Charge</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-skyrocket-views-essential-youtube-seo-enhancements-uncovered/"><u>[Updated] In 2024, Skyrocket Views Essential YouTube SEO Enhancements Uncovered</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-ultimate-hd-screensnap-equipment/"><u>[Updated] In 2024, Ultimate HD Screensnap Equipment</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-speech-clarity-achieved-by-googles-advanced-conversion-for-2024/"><u>[Updated] Speech Clarity Achieved by Google's Advanced Conversion for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unlock-the-potential-of-your-podcast-covers-now/"><u>[Updated] Unlock the Potential of Your Podcast Covers Now</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-discover-the-elite-online-stores-where-gifts-meet-individuality/"><u>In 2024, Discover the Elite Online Stores Where Gifts Meet Individuality</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-poco-x6-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Poco X6 Pro Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/navigating-the-world-of-social-media-facebook-twitter-instagram-and-youtube-unveiled/"><u>Navigating the World of Social Media - Facebook, Twitter, Instagram & YouTube Unveiled</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-update-lenovo-t520-drivers-quick-and-easy/"><u>[How-To] Update Lenovo T520 Drivers | Quick & Easy</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-asian-themed-mini-mansions-for-creative-builders/"><u>[New] 2024 Approved Asian Themed Mini Mansions for Creative Builders</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-creative-cache-premium-free-after-effects-tools/"><u>[New] 2024 Approved Creative Cache Premium, Free After Effects Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-motivating-moments-on-the-silver-screen/"><u>[New] 2024 Approved Motivating Moments on the Silver Screen</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-crafting-captivating-unboxing-reels-top-tips-for-success-on-instagram-for-2024/"><u>[New] Crafting Captivating Unboxing Reels Top Tips for Success on Instagram for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-rotated-video-conundrum-in-instagrams-feed/"><u>[New] The Rotated Video Conundrum in Instagram's Feed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-virtual-adventure-unlocked-mastering-kinemaster-and-top-alternatives-reviewed/"><u>[New] Virtual Adventure Unlocked Mastering KineMaster and Top Alternatives Reviewed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-highlighting-the-top-10-budget-friendly-video-communication-platforms-for-industry-and-academia/"><u>[Updated] 2024 Approved Highlighting the Top 10 Budget-Friendly Video Communication Platforms For Industry & Academia</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unleash-your-vision-the-best-360-livestimation-devices/"><u>[Updated] 2024 Approved Unleash Your Vision The Best 360° Livestimation Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-digital-photo-management-incorporating-dates-seamlessly/"><u>[Updated] In 2024, Digital Photo Management Incorporating Dates Seamlessly</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-maximizing-visual-storytelling-with-b-roll-integration/"><u>[Updated] In 2024, Maximizing Visual Storytelling with B Roll Integration</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-your-step-by-step-guide-to-previewing-your-off-facebook-life-for-2024/"><u>[Updated] Your Step by Step Guide to Previewing Your Off-Facebook Life for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/einfach-und-effektiv-sichern-ihr-outlook-adressbuch-perfekt-organisieren/"><u>Einfach Und Effektiv Sichern: Ihr Outlook Adressbuch Perfekt Organisieren</u></a></li>
+<li><a href="https://fox-links.techidaily.com/how-to-join-an-existing-zoom-call-effortlessly-android-style/"><u>How to Join an Existing Zoom Call Effortlessly (Android Style)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-samsung-galaxy-f14-5g-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Samsung Galaxy F14 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/paving-the-way-to-success-with-professional-insights-into-youtube-banners-for-2024/"><u>Paving the Way to Success with Professional Insights Into YouTube Banners for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/pinnacle-audio-dramatic-works/"><u>Pinnacle Audio-Dramatic Works</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-fix-for-your-hp-envy-5660-installing-drivers-made-simple/"><u>Quick Fix for Your HP Envy 5660: Installing Drivers Made Simple</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Samsung Galaxy A34 5G? | Dr.fone</u></a></li>
 </ul></div>
 
