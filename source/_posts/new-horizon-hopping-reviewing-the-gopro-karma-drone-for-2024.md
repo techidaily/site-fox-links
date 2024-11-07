@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Horizon Hopping  Reviewing the GoPro Karma Drone for 2024\""
-date: 2024-09-01T13:09:18.709Z
-updated: 2024-09-02T13:09:18.709Z
+date: 2024-11-03T20:20:39.101Z
+updated: 2024-11-07T18:55:32.175Z
 tags: 
   - screen-recording
   - ai video
@@ -51,6 +51,13 @@ thumbnail: https://thmb.techidaily.com/4c64599e932018a17c352685488bbe982ee82f5fc
 
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Detailed review for GoPro Karma
 
 #### 1\.  Price
@@ -87,6 +94,13 @@ thumbnail: https://thmb.techidaily.com/4c64599e932018a17c352685488bbe982ee82f5fc
 
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
 
 #### Conclusion
@@ -94,6 +108,13 @@ thumbnail: https://thmb.techidaily.com/4c64599e932018a17c352685488bbe982ee82f5fc
 Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can be expensive when compared to the specifications on some of the other drones, if you do have some experience flying drones and you are looking for a great image quality, this could be the choice for you especially if you are looking for a portable drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -118,8 +139,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-beyond-the-screen-arvr-infused-inspirational-sayings/"><u>[New] 2024 Approved Beyond the Screen AR/VR-Infused Inspirational Sayings</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-arctic-athleticism-revealed-the-top-of-the-line-in-olympic-snowboard-cross-for-2024/"><u>[New] Arctic Athleticism Revealed The Top of the Line in Olympic Snowboard Cross for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-building-blocks-of-graphic-animation-for-2024/"><u>[New] The Building Blocks of Graphic Animation for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-elevate-your-talk-the-leading-web-based-speech-conversion-services/"><u>[Updated] Elevate Your Talk The Leading Web-Based Speech Conversion Services</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-ultimate-list-for-aspiring-filmmakers-must-have-gear/"><u>[Updated] In 2024, The Ultimate List for Aspiring Filmmakers' Must-Have Gear</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unlock-android-games-funimate-pro-apk-deep-dive-for-2024/"><u>[Updated] Unlock Android Games - Funimate Pro APK Deep Dive for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-premier-mp4-to-fb-video-transforming-tools/"><u>2024 Approved Premier MP4 to FB Video Transforming Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-viewership-responsibly-strategies-that-work-for-2024/"><u>Boosting Viewership Responsibly Strategies That Work for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/common-fixes-for-a-malfunctioning-samsung-blu-ray-device/"><u>Common Fixes for a Malfunctioning Samsung Blu-Ray Device</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-top-5-ai-applications-vital-for-business-success/"><u>Discover the Top 5 AI Applications Vital for Business Success</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-speech-to-text-magic-free-edition/"><u>In 2024, Speech-to-Text Magic Free Edition</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-honor-magic-5-lite-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Honor Magic 5 Lite? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://win-data.techidaily.com/uncover-the-secrets-of-finding-windows-server-2019s-license-key-via-powershell-commands/"><u>Uncover the Secrets of Finding Windows Server 2019'S License Key via PowerShell Commands</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

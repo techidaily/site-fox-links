@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Tips  Labeling Footage with Text via Photos App (Win 11)\""
-date: 2024-10-29T21:11:37.077Z
-updated: 2024-11-01T17:40:05.896Z
+date: 2024-11-01T18:23:50.002Z
+updated: 2024-11-07T18:27:25.643Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -68,10 +75,10 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -80,38 +87,31 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,21 +138,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-boost-brand-awareness-with-selective-marketing-vernacular/"><u>[New] Boost Brand Awareness with Selective Marketing Vernacular</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-gopro-versus-polaroid-editing-faces-vs-cameras-that-shoot-them-for-2024/"><u>[New] GoPro Versus Polaroid Editing Faces Vs. Cameras That Shoot Them for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-high-income-content-makers/"><u>[New] In 2024, High-Income Content Makers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-action-cam-showdown-2022-hero5-black-vs-ultra-30-streaming/"><u>[Updated] 2024 Approved Action Cam Showdown 2022 Hero5 Black Vs. Ultra 30 Streaming</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-from-overflowed-drafters-to-ordered-files-learn-to-edit-hefty-tiktok-content/"><u>[Updated] 2024 Approved From Overflowed Drafters to Ordered Files Learn to Edit Hefty TikTok Content</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-best-screen-capture-alternatives-for-the-cost-conscious-user/"><u>[Updated] In 2024, Best Screen Capture Alternatives for the Cost-Conscious User</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-art-of-upward-landscapes-with-phones/"><u>[Updated] The Art of Upward Landscapes with Phones</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-composers-toolkit-for-flawless-image-finishing-for-2024/"><u>[Updated] The Composer's Toolkit for Flawless Image Finishing for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-toggle-pip-for-streaming-youtube-videos-more-conveniently-with-iphone/"><u>[Updated] Toggle PIP for Streaming Youtube Videos More Conveniently with iPhone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/10-best-flash-and-fly-player-for-pc-and-mobile-for-2024/"><u>10 Best Flash and Fly Player for PC and Mobile for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/como-subir-tu-fotografia-al-siguiente-nivel-las-5-mas-efectivas-soluciones-de-2luz-a-hiperresolucion-en-el-ano-nuevo/"><u>Cómo Subir Tu Fotografía Al Siguiente Nivel: Las 5 Más Efectivas Soluciones De 2Luz a Hiperresolución en El Año Nuevo</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-essential-names-to-follow-in-vr-industry/"><u>In 2024, Essential Names to Follow in VR Industry</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-vivo-y100-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Vivo Y100 5G Data? | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/prime-flight-tech-ready-to-buy/"><u>Prime Flight Tech Ready to Buy</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unlock-immediate-access-to-ai-power-navigating-the-use-of-gpt-4-on-chatgpt/"><u>Unlock Immediate Access to AI Power: Navigating the Use of GPT-4 on ChatGPT</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-gopro-studio-secrets-building-professional-time-lapses/"><u>[New] 2024 Approved GoPro Studio Secrets Building Professional Time Lapses</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-delicious-directives-the-7-secrets-of-epic-food-vids/"><u>[New] Delicious Directives The 7 Secrets of Epic Food Vids</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-pushing-the-limits-with-text-warping-effects/"><u>[New] In 2024, Pushing the Limits with Text Warping Effects</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-photographers-manual-how-to-crop-images-seamlessly-online-for-2024/"><u>[New] The Photographer's Manual How To Crop Images Seamlessly Online for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unveiling-the-hidden-accessing-youtube-video-comments/"><u>[New] Unveiling the Hidden Accessing YouTube Video Comments</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-discovering-if-criticism-is-monetized-in-vids-for-2024/"><u>[Updated] Discovering If Criticism Is Monetized in Vids for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-mastery-over-moments-jake-pauls-youtube-saga/"><u>[Updated] In 2024, Mastery Over Moments Jake Paul's YouTube Saga</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-superior-animation-pack-for-text/"><u>[Updated] In 2024, Superior Animation Pack for Text</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-timecodes-and-text-in-srt-with-macos-for-2024/"><u>[Updated] Navigating Timecodes and Text in SRT with macOS for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-harmonious-guidelines-instagram-and-intellectual-property/"><u>2024 Approved Harmonious Guidelines Instagram & Intellectual Property</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/comprehensive-guide-the-end-user-licensing-contract-for-digiartys-winxdvd-application/"><u>Comprehensive Guide: The End-User Licensing Contract for Digiarty's WinXDVD Application</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-our-choice-of-five-premium-worldwide-calls-applications-free/"><u>Discover Our Choice of Five Premium Worldwide Calls Applications (Free)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/466034-9780307574596-emmanuels-book-iii/"><u>Emmanuel's Book III | Free Book</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-network-settings-enabledisable-options-for-discovery-on-windows-11/"><u>Mastering Network Settings: Enable/Disable Options for Discovery on Windows 11</u></a></li>
+<li><a href="https://win11.techidaily.com/mastery-guide-skipping-pin-on-windows-win11-cast/"><u>Mastery Guide: Skipping PIN on Window's Win11 Cast</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/origami-like-folded-havens-in-mc-for-2024/"><u>Origami-Like Folded Havens in MC for 2024</u></a></li>
 </ul></div>
 
