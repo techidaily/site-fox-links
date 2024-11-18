@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Composition and Tints  Mastering Color Usage for 2024\""
-date: 2024-11-01T20:00:53.574Z
-updated: 2024-11-07T19:56:05.114Z
+date: 2024-11-10T19:18:24.347Z
+updated: 2024-11-17T23:11:58.486Z
 tags: 
   - screen-recording
   - ai video
@@ -39,13 +39,20 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Color Harmony
@@ -53,19 +60,6 @@ As you can see, we have every color available in this wheel and they are arrange
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -75,13 +69,6 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
@@ -89,16 +76,10 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -108,6 +89,19 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -143,24 +137,18 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-a-hands-on-manual-to-easily-navigate-trending-youtube-comments-for-2024/"><u>[New] A Hands-On Manual to Easily Navigate Trending YouTube Comments for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-demystifying-screen-record-snapchat-a-beginners-handbook/"><u>[New] In 2024, Demystifying Screen Record Snapchat A Beginner's Handbook</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-list-of-leading-sites-for-buying-youtube-tones/"><u>[New] In 2024, List of Leading Sites for Buying YouTube Tones</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-sharpening-digital-images-through-strategic-zooming/"><u>[New] In 2024, Sharpening Digital Images Through Strategic Zooming</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-top-10-sketch-tools-ideal-for-chromebook-users/"><u>[New] Top 10 Sketch Tools Ideal for Chromebook Users</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-elevating-your-video-game-choosing-a-gimbal-for-drones/"><u>[Updated] 2024 Approved Elevating Your Video Game Choosing a Gimbal for Drones</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-optimize-your-audio-content-expert-tips-for-editing-in-garageband/"><u>[Updated] 2024 Approved Optimize Your Audio Content Expert Tips for Editing in GarageBand</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-instant-guide-obtaining-safe-free-vlc-media-player-on-a-mac-for-2024/"><u>[Updated] Instant Guide Obtaining Safe, Free VLC Media Player on a Mac for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/advanced-tips-and-tricks-for-speech-transcription-with-gdoc/"><u>Advanced Tips and Tricks for Speech Transcription with GDoc</u></a></li>
-<li><a href="https://fox-links.techidaily.com/breezy-blogging-quick-video-concept-ideas/"><u>Breezy Blogging Quick Video Concept Ideas</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/re-the-essence-of-your-favorite-series-with-these-extractors/"><u>Capture the Essence of Your Favorite Series with These Extractors</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/essential-tips-for-game-recording-on-windows-11/"><u>Essential Tips for Game-Recording on Windows 11</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-hp-deskjet-ink-advantage-letez-3050a-drivers-on-windows-free-download-and-upgrade/"><u>Get Your HP DeskJet Ink Advantage Letez 3050A Drivers on Windows: Free Download & Upgrade</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-xs-drfone-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-vivo-x90s-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Vivo X90S Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/solve-these-4-issues-to-regain-access-to-your-blocked-chatgpt-account/"><u>Solve These 4 Issues to Regain Access to Your Blocked ChatGPT Account</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-samsung-galaxy-s24-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Samsung Galaxy S24 to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-breakdown-of-cloud-storage-pricing-expert-analysis-and-top-deals/"><u>2024 Approved Breakdown of Cloud Storage Pricing Expert Analysis & Top Deals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-comprehensive-breakdown-of-theta-s-specifications/"><u>2024 Approved Comprehensive Breakdown of Theta S Specifications</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-fifa-visuals-key-youtube-video-trends/"><u>2024 Approved FIFA Visuals Key YouTube Video Trends</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-from-doodles-to-dollars-the-graphic-artists-guide/"><u>2024 Approved From Doodles to Dollars The Graphic Artist's Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-high-octane-comparison-gopro-hero-4-vs-drift-ghost-s/"><u>2024 Approved High Octane Comparison GoPro Hero 4 Vs. Drift Ghost-S</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-instantaneous-infiltration-of-lost-reddit-threads/"><u>2024 Approved Instantaneous Infiltration of Lost Reddit Threads</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/improve-gaming-and-music-playback-secure-free-sound-blaster-audigy-drivers-here/"><u>Improve Gaming and Music Playback - Secure Free Sound Blaster Audigy Drivers Here!</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-on-iphone-12-pro-max-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account On iPhone 12 Pro Max without Password?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210710264-9781642504484-let-go-now/"><u>Let Go Now | Free Book</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-portable-driver-easy-a-step-by-step-guide/"><u>Mastering Portable Driver Easy: A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/perfect-your-content-discover-these-top-8-mobile-editors/"><u>Perfect Your Content Discover These Top 8 Mobile Editors</u></a></li>
+<li><a href="https://driver-install.techidaily.com/refresh-windows-graphics-focus-on-acer-drivers/"><u>Refresh Windows Graphics, Focus on Acer Drivers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/topos-6-mas-eficaces-para-ampliar-la-calidad-de-video-mediante-inteligencia-artificial/"><u>Topos 6 Más Eficaces Para Ampliar La Calidad De Video Mediante Inteligencia Artificial</u></a></li>
 </ul></div>
 

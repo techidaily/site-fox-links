@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Setting Up Your Microphone on Windows 11"
-date: 2024-11-06T20:21:40.667Z
-updated: 2024-11-07T17:58:41.337Z
+date: 2024-11-16T00:31:13.181Z
+updated: 2024-11-17T16:06:56.962Z
 tags: 
   - screen-recording
   - ai video
@@ -48,10 +48,10 @@ Even though there are limited features available in comparison to other audio re
 The recorded audio will be saved automatically in Documents under Sound Recordings folder.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Audacity
@@ -66,16 +66,35 @@ Audacity is a completely free audio recording software for Windows 10\. Audacity
 
 ![red record button to start recording](https://images.wondershare.com/filmora/article-images/red-record-button-to-start-recording.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ****Step 4:** To stop recording, click on Black Stop button. Go to File > Export As to save the file in desired file format.
 
 ![black stop button](https://images.wondershare.com/filmora/article-images/black-stop-button.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Quick Sound Recorder Free
 
@@ -86,13 +105,6 @@ Step 1: Go to Microsoft Store and install Quick Sound Recorder Free app.
 Step 2: Open the app and click on Microphone icon to start recording instantly. You will see the timer showing the recording time.
 
 ![the recording time](https://images.wondershare.com/filmora/article-images/the-recording-time.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step 3: To stop recording, click on Stop button and save the recording in MP3 file.
 
@@ -108,9 +120,29 @@ Step 2: Click on R icon to arm all the tracks.
 
 ![click on r icon](https://images.wondershare.com/filmora/article-images/click-on-r-icon.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3: and then click on Recording button on the Record panel to start recording.
 
 Step 4: To stop recording, click on Stop button on the Record panel.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. [Filmora Recorder](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -130,29 +162,11 @@ Step 2: From Record menu, go to Record Voiceover option.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
-
-Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
-
-## Conclusion
-
-We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-Step 1: Launch Filmora and select New Project option.
-
-Step 2: From Record menu, go to Record Voiceover option.
-
-![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
@@ -173,13 +187,6 @@ Step 2: From Record menu, go to Record Voiceover option.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
 
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
@@ -198,12 +205,23 @@ Step 2: From Record menu, go to Record Voiceover option.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
+
+Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+## Conclusion
+
+We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and select New Project option.
+
+Step 2: From Record menu, go to Record Voiceover option.
+
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
 
@@ -237,24 +255,20 @@ We have how to record audio on Windows 10 using free as well as premium software
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-trailblazers-in-the-world-of-virtual-reality/"><u>[New] 2024 Approved Trailblazers in the World of Virtual Reality</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-elevating-your-docu-script-professional-tips-and-tricks-for-2024/"><u>[New] Elevating Your Docu-Script Professional Tips and Tricks for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-exploring-samsung-galaxy-s8s-4k-superiority/"><u>[New] Exploring Samsung Galaxy S8's 4K Superiority</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-insightful-evaluation-androids-photography-tool-lightroom/"><u>[New] Insightful Evaluation Android's Photography Tool, Lightroom</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-intro-magic-crafting-irresistible-podcast-openers/"><u>[New] Intro Magic Crafting Irresistible Podcast Openers</u></a></li>
-<li><a href="https://network-issues.techidaily.com/repaired-overcoming-disconnect-issues-with-cod-cold-war/"><u>[REPAIRED]: Overcoming Disconnect Issues with CoD Cold War</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unlocking-your-understanding-of-copyright-on-instagram/"><u>[Updated] 2024 Approved Unlocking Your Understanding of Copyright on Instagram</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-digital-photography-incorporating-accurate-dates/"><u>[Updated] In 2024, Digital Photography Incorporating Accurate Dates</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-spectacular-screen-showdown-sj6-vs-the-4k-innovators-of-xiaomi/"><u>[Updated] Spectacular Screen Showdown SJ6 Vs. The 4K Innovators of Xiaomi</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-ultimate-guide-to-environmentally-safe-tech/"><u>2024 Approved Ultimate Guide to Environmentally Safe Tech</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ing-youtube-productions-best-mac-mp4-editors-guide/"><u>Boosting YouTube Productions Best Mac MP4 Editors Guide</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/detailed-insights-into-lg-watch-style-a-deep-dive-into-established-wear-os-technology/"><u>Detailed Insights Into LG Watch Style – A Deep Dive Into Established Wear OS Technology</u></a></li>
-<li><a href="https://fox-links.techidaily.com/exposing-effective-promotions/"><u>Exposing Effective Promotions</u></a></li>
-<li><a href="https://fox-links.techidaily.com/how-to-personalize-videos-adding-captions-in-the-photos-app-for-2024/"><u>How to Personalize Videos Adding Captions in the Photos App for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-apple-iphone-15-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Apple iPhone 15 Without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-6-properly-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone 6 Properly</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/the-key-to-spreading-online-jokes-fast/"><u>The Key to Spreading Online Jokes Fast</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-path-to-your-first-tweet-signing-up-for-twitter-for-2024/"><u>The Path to Your First Tweet Signing Up for Twitter for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/tinting-truths-crafting-perfect-imagery-for-2024/"><u>Tinting Truths Crafting Perfect Imagery for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-decoding-the-language-of-asmr-videos/"><u>[New] In 2024, Decoding the Language of ASMR Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-minds-on-fire-best-gk-quiz-videos-online/"><u>[New] In 2024, Minds on Fire Best GK Quiz Videos Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-essential-tips-for-smooth-youtube-content-trimming/"><u>[Updated] 2024 Approved Essential Tips for Smooth YouTube Content Trimming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-guide-to-top-12-free-and-paid-gaming-introduction-creators/"><u>[Updated] In 2024, Essential Guide to Top 12 Free and Paid Gaming Introduction Creators</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-achieving-a-natural-sound-curve-dimming-audio-smoothly/"><u>2024 Approved Achieving a Natural Sound Curve Dimming Audio Smoothly</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-comprehensive-lookup-experience-the-world-in-virtual-reality/"><u>2024 Approved Comprehensive Lookup Experience the World in Virtual Reality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-gamers-pot-review-a-deep-dive/"><u>2024 Approved GAMER'S POT REVIEW A Deep Dive</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-perfect-your-video-pacing-with-these-snapchat-tips/"><u>2024 Approved Perfect Your Video Pacing with These Snapchat Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-pro-cameras-who-wins-gopro-and-garmin-virb-comparison/"><u>2024 Approved Pro Cameras, Who Wins? GoPro & Garmin VIRB Comparison</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-step-by-step-vsco-image-enhancement/"><u>2024 Approved Step-by-Step VSCO Image Enhancement</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-nokia-c32-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Nokia C32 Screen | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-itel-a60-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Itel A60 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/pinterestpc/"><u>PinterestでPC/スマホ向けの動画が保存できない？この方法ですぐに解決。</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/rapidly-rise-as-a-social-media-star-on-instagram-for-2024/"><u>Rapidly Rise as a Social Media Star on Instagram for 2024</u></a></li>
 </ul></div>
 

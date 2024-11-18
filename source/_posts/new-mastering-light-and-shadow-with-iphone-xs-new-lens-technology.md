@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering Light & Shadow with iPhone X's New Lens Technology"
-date: 2024-09-01T13:04:53.834Z
-updated: 2024-09-02T13:04:53.834Z
+date: 2024-11-15T17:37:33.198Z
+updated: 2024-11-18T05:01:50.025Z
 tags: 
   - screen-recording
   - ai video
@@ -44,8 +44,12 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to use portrait mode
 
  Portrait mode uses your iPhone X’s telephoto lens kit to create images with “bokeh”-esque backgrounds and foregrounds. Portrait Lighting also comes as part of the Portrait Mode with the iPhone X, utilising both machine learning and the depth map of Portrait mode to add exceptional lighting effects to your photos in real time. When you shoot in Portrait mode, the wide-angle measures the difference between what it and the telephoto can see to offer a multi-point depth map. The depth map itself creates artificial depth of field.
@@ -65,11 +69,12 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
@@ -77,14 +82,21 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  There are many great reasons for investing in the iPhone X if you are interested in carrying a high-end camera around in your pocket. The phone is the smallest yet to feature two 12MP rear-facing cameras, with the updated telephoto lens also being a big draw for many. The lens has been optically stabilised and had its aperture boosted to f/2.4 from f/2.8\. The phone is now able to offer vastly superior performance in low-light conditions, with the sensor having been completely rebuilt and a brand new image signal processor offering stunning colours and textures. In fact, the phone is able to perform convincingly in low-light conditions even when there are multiple light sources competing.
@@ -93,9 +105,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -119,4 +128,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-navigate-age-confirmation-swiftly-on-tiktok/"><u>[New] 2024 Approved Navigate Age Confirmation Swiftly on TikTok</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-from-ephemeral-to-everlasting-the-art-of-saving-social-media-snaps-for-2024/"><u>[New] From Ephemeral to Everlasting The Art of Saving Social Media Snaps for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-lighten-up-your-digital-presence-kapwing-maker/"><u>[New] In 2024, Lighten Up Your Digital Presence - Kapwing Maker</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-guide-to-earning-money-on-reddit-for-beginners/"><u>[New] In 2024, The Ultimate Guide to Earning Money on Reddit for Beginners</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-seamless-speech-to-text-translation-in-microsoft-office-suite-word/"><u>[New] Seamless Speech-to-Text Translation in Microsoft Office Suite (Word)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-speaking-and-listening-to-create-better-decks/"><u>[New] Speaking and Listening to Create Better Decks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-vanguard-of-virtual-storage-top-choices-for-2024/"><u>[New] The Vanguard of Virtual Storage Top Choices for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-brand-reflection-personalize-free-logo-templates-to-perfection/"><u>[Updated] 2024 Approved Brand Reflection Personalize Free Logo Templates to Perfection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-embrace-the-pause-button-3-techniques-for-decelerating-youtube-video-playback-59-chars-slight-overage-with-rich-content-justification-for-2024/"><u>[Updated] Embrace the Pause Button 3 Techniques for Decelerating YouTube Video Playback (59 Chars, Slight Overage with Rich Content Justification) for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-base-to-pro-gopro-hero5-blacks-clash-with-hero4-silver/"><u>[Updated] From Base to Pro GoPro Hero5 Black's Clash with Hero4 Silver</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-image-illumination-incor-writings-on-visual-canvases-online-for-2024/"><u>[Updated] Image Illumination Incor Writings on Visual Canvases Online for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-mastering-3d-text-illustration-in-adobe-illustrator/"><u>2024 Approved Mastering 3D Text Illustration in Adobe Illustrator</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-beta-unleashed-enabling-and-using-web-browsing-features-and-plugins-for-enhanced-interaction/"><u>ChatGPT Beta Unleashed: Enabling and Using Web Browsing Features and Plugins for Enhanced Interaction</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/get-your-game-on-with-nzxts-exclusive-monthly-deals-core-i5-and-rtx-4060-gaming-pc-for-a-steal-at-59-or-level-up-to-core-i7-plus-rtx-4070-ti-premium-build-a118/"><u>Get Your Game On with NZXT's Exclusive Monthly Deals: Core I5 & RTX 4060 Gaming PC for a Steal at $59 or Level Up to Core I7 + RTX 4070 Ti Premium Build at Just $169!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-12-herramientas-de-edicion-de-videoblog-ideales-para-crear-contenido-impactante/"><u>Top 12 Herramientas De Edición De Videoblog Ideales Para Crear Contenido Impactante</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Image Isolation Pro  Eliminate Backgrounds in Affinity\""
-date: 2024-11-02T16:16:38.054Z
-updated: 2024-11-07T16:05:41.181Z
+date: 2024-11-11T19:52:22.674Z
+updated: 2024-11-17T20:12:08.323Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,13 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -45,16 +52,16 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -65,10 +72,10 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
@@ -76,10 +83,10 @@ Step5 In the last step, press the **"Delete"** key on your keyboard to remove th
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
@@ -119,13 +126,6 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -161,10 +161,10 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -217,22 +217,19 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-bridging-images-and-words-step-by-step-text-integration-guide/"><u>[New] 2024 Approved Bridging Images & Words Step-by-Step Text Integration Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-sky-high-explorations-made-simple-a-compreenasive-review-of-dji-sparks-miniature-drone-design/"><u>[New] 2024 Approved Sky High Explorations Made Simple A Compreenasive Review of DJI Spark's Miniature Drone Design</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-crafting-audio-identity-the-art-of-adding-your-own-tones-to-android/"><u>[New] In 2024, Crafting Audio Identity The Art of Adding Your Own Tones to Android</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-lg-bp350-monitor-reviews-expert-opinions-and-ratings/"><u>[New] In 2024, The Ultimate LG BP350 Monitor Reviews Expert Opinions & Ratings</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-simplified-guide-to-mobile-video-capture-for-2024/"><u>[Updated] Simplified Guide to Mobile Video Capture for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-toongems-detailed-analysis-24-summary/"><u>[Updated] ToonGems Detailed Analysis '24 Summary</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-best-of-the-best-10-timeless-family-vacation-films/"><u>2024 Approved Best of the Best 10 Timeless Family Vacation Films</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-seamless-transition-from-fb-videos-to-polished-mp3-tracks/"><u>2024 Approved Seamless Transition From FB Videos to Polished MP3 Tracks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/creating-striking-channel-imagery-best-practices-for-success-for-2024/"><u>Creating Striking Channel Imagery Best Practices for Success for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/expert-advice-on-addressing-and-correcting-radeon-wattman-configuration-failures/"><u>Expert Advice on Addressing and Correcting Radeon WattMan Configuration Failures</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/exploring-the-future-with-av1-over-vp9/"><u>Exploring the Future with AV1 over VP9</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-step-by-step-process-to-craft-memorable-gifs-from-any-youtube-video-on-devices/"><u>In 2024, Step-by-Step Process to Craft Memorable GIFs From Any YouTube Video on Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-tucked-into-narratives-a-review-of-evening-storytelling-videos/"><u>In 2024, Tucked Into Narratives A Review of Evening Storytelling Videos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-pixel-slate-examined-confronting-the-disarray-within-chromeos/"><u>The Pixel Slate Examined: Confronting the Disarray Within ChromeOS</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/top-7-free-audio-editing-software-mp3-splitter-and-merger-tools/"><u>Top 7 Free Audio Editing Software: MP3 Splitter & Merger Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/unearthing-vivas-video-capabilities-for-2024/"><u>Unearthing Viva's Video Capabilities for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/update-faulty-keyboard-issue-resolved-functionality-restored/"><u>Update: Faulty Keyboard Issue Resolved - Functionality Restored</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-basic-tactics-to-archive-webcam-chats-for-2024/"><u>[New] Basic Tactics to Archive Webcam Chats for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-free-srt-tools-the-most-reliable-high-quality-apps-listed/"><u>[Updated] Free SRT Tools The Most Reliable, High-Quality Apps Listed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlocking-the-power-of-cross-platform-social-media-with-youtube-and-instagram-stories/"><u>[Updated] Unlocking the Power of Cross-Platform Social Media with YouTube & Instagram Stories</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-video-selfie-mastery-tips-from-top-youtubers/"><u>[Updated] Video Selfie Mastery Tips From Top YouTubers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-leading-5-digital-recording-devices/"><u>2024 Approved Leading 5 Digital Recording Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-textual-transformations-discovering-the-best-video-effects/"><u>2024 Approved Textual Transformations - Discovering the Best Video Effects</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-essential-manual-for-srt-conversion-techniques/"><u>2024 Approved The Essential Manual for SRT Conversion Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/a-comprehensible-guide-to-adding-images-on-instagram-for-2024/"><u>A Comprehensible Guide to Adding Images on Instagram for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/aif-to-ogg-file-transformation-no-cost-do-it-here/"><u>AIF to Ogg File Transformation - No Cost, Do It Here!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/average-podcast-income-whats-the-payoff-in-2024/"><u>Average Podcast Income What's the Payoff, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/boosting-videos-the-best-5-tech-aids/"><u>Boosting Videos The Best 5 Tech Aids</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-tutorial-on-eliminating-windows-boot-repair-section/"><u>Comprehensive Tutorial on Eliminating Windows Boot Repair Section</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/enhancing-outreach-sending-twitters-videos-to-facebooks/"><u>Enhancing Outreach Sending Twitters' Videos to Facebooks</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Vivo Y78 5G | Dr.fone</u></a></li>
 </ul></div>
 

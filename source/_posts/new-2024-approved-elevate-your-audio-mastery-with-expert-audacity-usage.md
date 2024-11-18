@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Elevate Your Audio Mastery with Expert Audacity Usage\""
-date: 2024-11-04T17:13:50.418Z
-updated: 2024-11-07T18:31:06.125Z
+date: 2024-11-10T23:24:18.277Z
+updated: 2024-11-17T18:50:14.420Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Recording using Mac
@@ -61,16 +61,10 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Export your audio
@@ -121,17 +115,24 @@ Simply select the necessary file format from the drop-down box that appears next
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-pure-serenity-in-the-air-top-asmr-microphones-at-low-costs/"><u>[New] 2024 Approved Pure Serenity in the Air - Top ASMR Microphones at Low Costs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-webm-transformation-from-tweeted-visuals/"><u>[New] 2024 Approved WebM Transformation From Tweeted Visuals</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-multi-lens-modifiers-for-creative-video-effects/"><u>[New] In 2024, Multi-Lens Modifiers for Creative Video Effects</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-post-production-pro-tailoring-video-content-to-instagram-standards-with-x/"><u>[New] Post-Production Pro Tailoring Video Content to Instagram Standards with X</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-behind-the-scenes-developing-vegaspro-19/"><u>[Updated] Behind-the-Scenes Developing VegasPro '19</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-gif-magic-transformations-without-extra-files-downloaded-for-2024/"><u>[Updated] GIF Magic Transformations Without Extra Files Downloaded for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-unveiling-the-virtual-matrix-current-landscape-and-future-challenges/"><u>[Updated] In 2024, Unveiling the Virtual Matrix Current Landscape & Future Challenges</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-launching-a-vlog-top-kit-and-applications/"><u>[Updated] Launching a Vlog Top Kit & Applications</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-vivo-v30-lite-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Vivo V30 Lite 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/best-webcams-for-streaming-elevate-your-viewer-experience-on-twitch-for-2024/"><u>Best Webcams for Streaming Elevate Your Viewer Experience on Twitch for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-webm-to-mp3-conversion-made-simple-top-tools/"><u>New In 2024, WebM to MP3 Conversion Made Simple Top Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/novices-navigate-for-speedy-snapchat-videos/"><u>Novice's Navigate for Speedy Snapchat Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-explore-google-meets-full-potential-free-edition-for-2024/"><u>[New] Explore Google Meet's Full Potential (Free Edition) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-highpoint-artist-toolkit-review-for-2024/"><u>[New] Highpoint Artist Toolkit Review for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mp3-mastery-guide-top-10-video-to-audio-picks/"><u>[Updated] MP3 Mastery Guide Top 10 Video-to-Audio Picks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-colorists-companion-top-11-tools-for-hue-harmony/"><u>2024 Approved The Colorist's Companion Top 11 Tools for Hue Harmony</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-ultimate-facetune-experience-enthusiasts/"><u>2024 Approved The Ultimate Facetune Experience Enthusiasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-top-10-must-knows-before-elevating-systems/"><u>2024 Approved Top 10 Must-Knows Before Elevating Systems</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unleashing-creativity-with-mobile-melodies-on-iphone/"><u>2024 Approved Unleashing Creativity with Mobile Melodies on iPhone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-windows-movie-maker-the-spectrum-of-releases/"><u>2024 Approved Windows Movie Maker The Spectrum of Releases</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-xmlssa-conversion-manual-for-professional-srt-production/"><u>2024 Approved XML/SSA Conversion Manual for Professional SRT Production</u></a></li>
+<li><a href="https://fox-links.techidaily.com/30plus-futuristic-metaverse-musings-arvr-for-2024/"><u>30+ Futuristic Metaverse Musings [AR/VR] for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/affordable-cameras-where-to-buy-economical-gopros/"><u>Affordable Cameras Where to Buy Economical GoPros</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/affordable-lenovo-chromebook-duet-assessment-the-ideal-cost-effective-convertible/"><u>Affordable Lenovo Chromebook Duet Assessment: The Ideal Cost-Effective Convertible</u></a></li>
+<li><a href="https://fox-links.techidaily.com/book-trailers-reviewed-top-5-picks-revealed/"><u>Book Trailers Reviewed Top 5 Picks Revealed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/budget-conscious-shooters-7-best-4k-cameras/"><u>Budget-Conscious Shooters' 7 Best 4K Cameras</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-drive-the-poweradd-pilot-pro2-ultimate-multi-device-charging-station/"><u>Comprehensive Test Drive: The POWERADD Pilot Pro2 - Ultimate Multi-Device Charging Station</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-itel-s23-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Itel S23 to iPad | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-top-5-web-based-or-extension-voice-changers-for-chromebook/"><u>In 2024, Top 5 Web-Based or Extension Voice Changers for Chromebook</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/mitigate-bad-drivers-restore-game-flow/"><u>Mitigate Bad Drivers, Restore Game Flow</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/pushing-creative-boundaries-with-these-top-7-film-color-techniques/"><u>Pushing Creative Boundaries with These Top 7 Film Color Techniques</u></a></li>
 </ul></div>
 

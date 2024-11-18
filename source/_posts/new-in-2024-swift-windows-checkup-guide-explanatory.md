@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Swift Windows Checkup Guide Explanatory"
-date: 2024-11-02T17:24:52.950Z
-updated: 2024-11-07T18:38:21.907Z
+date: 2024-11-10T17:46:06.241Z
+updated: 2024-11-17T20:49:15.130Z
 tags: 
   - screen-recording
   - ai video
@@ -60,16 +60,10 @@ Step2 Scroll down and download the .msi file. After downloading the installation
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
@@ -81,10 +75,10 @@ Step4 After a successful installation, find the file you want to preview and sel
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
@@ -96,16 +90,10 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Frequently Asked Questions
@@ -123,10 +111,10 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -163,16 +151,18 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-top-9-affordable-and-straightforward-video-editors/"><u>[New] 2024 Approved Top 9 Affordable & Straightforward Video Editors</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-master-youtube-management-a-detailed-plan-for-watch-later-and-playlists/"><u>[New] Master YouTube Management A Detailed Plan for Watch Later and Playlists</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-thorough-scrutiny-bublcams-panoramic-innovation/"><u>[New] Thorough Scrutiny Bublcam's Panoramic Innovation</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-navigating-backward-image-hunt-on-the-worlds-largest-social-site/"><u>[Updated] 2024 Approved Navigating Backward Image Hunt on the World's Largest Social Site</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-professionals-drone-guide-top-5-recommendations-inside/"><u>[Updated] 2024 Approved Professionals’ Drone Guide - Top 5 Recommendations Inside</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-stay-ahead-of-the-game-use-mematic/"><u>[Updated] 2024 Approved Stay Ahead of the Game - Use Mematic</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-harmonizing-services-uniting-your-musical-lists/"><u>[Updated] In 2024, Harmonizing Services Uniting Your Musical Lists</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-visual-harmony-integrating-dynamic-beats-into-your-filmic-expressions-for-2024/"><u>New Visual Harmony Integrating Dynamic Beats Into Your Filmic Expressions for 2024</u></a></li>
-<li><a href="https://win-guides.techidaily.com/professional-emeditor-alpha-1-update-next-gen-text-editor-software/"><u>Professional EmEditor Alpha 1 Update - Next-Gen Text Editor Software</u></a></li>
-<li><a href="https://extra-information.techidaily.com/revamp-srt-to-subc-3-effective-techniques-unpacked/"><u>Revamp SRT to SUBC 3 Effective Techniques Unpacked</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209873570-9780648527244-the-story-of-woman-the-mountain/"><u>The Story of Woman The Mountain | Free Book</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-proven-steps-to-conquer-hdr-images-in-ps/"><u>[New] In 2024, Proven Steps to Conquer HDR Images in PS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-secrets-to-maximizing-youtube-traffic-with-optimized-metadata/"><u>[New] In 2024, Secrets to Maximizing YouTube Traffic with Optimized Metadata</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-new-photogs-cameras-the-top-entry-level-picks-of-24/"><u>[New] New Photog's Cameras The Top Entry-Level Picks of '24</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-hot-takes-dailys-most-popular-video-tracks/"><u>[Updated] In 2024, Hot Takes Daily's Most Popular Video Tracks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-blur-background-of-your-youtube-video-2-easy-ways/"><u>[Updated] In 2024, How to Blur Background of Your YouTube Video - 2 Easy Ways</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-tapered-music-transitions-an-intuitive-premiere-pro-tutorial/"><u>2024 Approved Tapered Music Transitions An Intuitive Premiere Pro Tutorial</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-best-cloud-storage-for-your-photos-free-and-paid-included/"><u>2024 Approved The Best Cloud Storage for Your Photos Free and Paid Included</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unravel-multilingual-mysteries-with-these-top-35-video-translation-solutions/"><u>2024 Approved Unravel Multilingual Mysteries with These Top 35 Video Translation Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unraveling-the-magic-of-mixed-reality/"><u>2024 Approved Unraveling the Magic of Mixed Reality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/cloud-mastery-the-best-of-unlimited-space/"><u>Cloud Mastery The Best of Unlimited Space</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-and-reset-face-id-on-iphone-11-by-drfone-ios/"><u>In 2024, How to Remove and Reset Face ID on iPhone 11</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigate-secure-easy-mobile-payment-how-to-set-up-and-use-apple-pay-on-your-apple-wrist-device/"><u>Navigate Secure, Easy Mobile Payment: How To Set Up and Use Apple Pay on Your Apple Wrist Device</u></a></li>
 </ul></div>
 

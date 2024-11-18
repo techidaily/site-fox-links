@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastery in Managing W10 Photos Crashes with Expert Tips\""
-date: 2024-11-01T19:14:41.760Z
-updated: 2024-11-07T19:40:39.126Z
+date: 2024-11-16T21:37:59.277Z
+updated: 2024-11-17T16:53:48.739Z
 tags: 
   - screen-recording
   - ai video
@@ -47,13 +47,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -69,10 +62,10 @@ Here is how to troubleshoot –
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
@@ -88,6 +81,13 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -97,13 +97,6 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -115,6 +108,13 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 2. Key in the command followed by ‘Enter’: Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register “$($\_.InstallLocation)\\AppXManifest.xml”}
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
 
@@ -136,10 +136,16 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -167,20 +173,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-reimagine-video-narratives-with-windows-10s-story-remix-tool/"><u>[New] Reimagine Video Narratives with Windows 10'S Story Remix Tool</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-simplifying-color-grading-a-comprehensive-look-at-luts/"><u>[Updated] 2024 Approved Simplifying Color Grading A Comprehensive Look at LUTs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-best-free-premiere-pro-templates-2023-for-2024/"><u>[Updated] Best Free Premiere Pro Templates 2023 for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-efficiently-change-zip-to-srt-file-format-for-2024/"><u>[Updated] Efficiently Change ZIP to SRT File Format for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-unlocking-the-secrets-of-alluring-vlog-narratives/"><u>[Updated] In 2024, Unlocking the Secrets of Alluring Vlog Narratives</u></a></li>
-<li><a href="https://win-forum.techidaily.com/comprehensive-tutorial-eliminating-web-trackers-in-windows-10-and-android-os/"><u>Comprehensive Tutorial: Eliminating Web Trackers in Windows 10 and Android OS</u></a></li>
-<li><a href="https://app-tips.techidaily.com/hugging-face-community-advanced-text-to-video-transformation-techniques/"><u>Hugging Face Community: Advanced Text-to-Video Transformation Techniques</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y78t-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y78t to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-ways-to-disengage-music-elements-from-multimedia-projects/"><u>New In 2024, Ways to Disengage Music Elements From Multimedia Projects</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/premium-mobile-podcast-sources-for-2024/"><u>Premium Mobile Podcast Sources for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/proart-pa-329q-examining-a-premium-4k-monitor-for-professionals-for-2024/"><u>ProArt PA 329Q Examining a Premium 4K Monitor for Professionals for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-essential-guide-to-podcast-creation-in-garageband-for-2024/"><u>The Essential Guide to Podcast Creation in GarageBand for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210503030-9781633412293-the-ufo-hotspot-compendium/"><u>The UFO Hotspot Compendium | Free Book</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-do-you-want-to-download-slow-motion-apps-that-can-edit-video-professionally-this-article-will-discuss-some-slomo-makers-for-both-ios-a/"><u>Updated 2024 Approved Do You Want to Download Slow-Motion Apps that Can Edit Video Professionally? This Article Will Discuss some Slomo Makers for Both iOS and Android</u></a></li>
-<li><a href="https://article-posts.techidaily.com/zany-zooms-taking-your-selfies-to-a-whimsical-level-on-snapchat/"><u>Zany Zooms Taking Your Selfies to a Whimsical Level on Snapchat</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-strategies-for-selective-success-in-the-youtube-realm/"><u>[New] 2024 Approved Strategies for Selective Success in the YouTube Realm</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unleash-power-in-valorant-the-best-voice-modifier-without-payment/"><u>[New] 2024 Approved Unleash Power in Valorant The Best Voice Modifier Without Payment</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-prime-7-media-gatherers-on-fb/"><u>[New] Prime 7 Media Gatherers on FB</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-crucial-top-5-smallest-action-recorders-review/"><u>[Updated] Crucial Top 5 Smallest Action Recorders Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-asmr-and-you-understanding-its-healing-power/"><u>2024 Approved ASMR and You Understanding Its Healing Power</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-compact-player-showcase-the-very-best-portables/"><u>2024 Approved Compact Player Showcase The Very Best Portables</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-expert-insights-on-constructing-high-quality-srt-files/"><u>2024 Approved Expert Insights on Constructing High-Quality SRT Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-from-amateur-to-professional-iphone-filmmaking-8-key-tips/"><u>2024 Approved From Amateur to Professional iPhone Filmmaking (8 Key Tips)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-high-staking-homes-expert-snapshots/"><u>2024 Approved HIGH-STAKING HOMES Expert Snapshots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-how-to-record-internet-radio-a-simple-guide/"><u>2024 Approved How To Record Internet Radio - A Simple Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-innovative-stride-solutions-top-vr-treadmills-reviewed/"><u>2024 Approved Innovative Stride Solutions Top VR Treadmills Reviewed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/novice-to-expert-selecting-best-yt-cameras-for-2024/"><u>From Novice to Expert Selecting Best YT Cameras for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-tecno-spark-go-2023-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Tecno Spark Go (2023) Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-freesync-and-fs-unleashed-revealing-samsung-ue590-gaming-tv/"><u>In 2024, FreeSync & FS Unleashed Revealing Samsung UE590 Gaming TV</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-refining-shots-with-gopros-advanced-color-tools/"><u>In 2024, Refining Shots with GoPro's Advanced Color Tools</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/top-8-ultra-sharp-5k-display-choices-for-2024/"><u>Top 8 Ultra-Sharp 5K Display Choices for 2024</u></a></li>
 </ul></div>
 
