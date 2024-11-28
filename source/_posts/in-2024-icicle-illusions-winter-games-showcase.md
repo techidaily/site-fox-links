@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Icicle Illusions  Winter Games Showcase\""
-date: 2024-08-28T10:12:17.598Z
-updated: 2024-08-29T10:12:17.598Z
+date: 2024-11-20T22:12:46.733Z
+updated: 2024-11-28T00:07:13.058Z
 tags: 
   - screen-recording
   - ai video
@@ -30,13 +30,25 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
@@ -54,7 +66,15 @@ Russian Olympic Committee athletes won the gold medal at team event by a margin 
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
@@ -88,9 +108,6 @@ Step 5: Select individual or multiple slides and add Transitions, Effects, Title
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Figure skating is undoubtedly one of the most followed sport events in the Winter Olympics. Naturally, there is a huge demand for figure skating highlights across the Winter Olympics fans and followers. We have provided figure skating highlights 2022 and we have illustrated the steps to create a highlight video of figure skating easily.
@@ -112,4 +129,22 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-from-novices-to-pros-the-journey-of-picking-fpv-drone-blades/"><u>[New] 2024 Approved From Novices to Pros The Journey of Picking FPV Drone Blades</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-decoding-luts-the-secret-behind-enhanced-photography-for-2024/"><u>[New] Decoding LUTs The Secret Behind Enhanced Photography for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-laughlounge-beginner-friendly-content-creation-for-2024/"><u>[New] LaughLounge Beginner-Friendly Content Creation for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-art-of-imitation-crafting-parody-videos/"><u>[New] The Art of Imitation Crafting Parody Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-visualize-vibes-tips-and-techniques-for-iconic-gif-humor-for-2024/"><u>[New] Visualize Vibes Tips & Techniques for Iconic GIF Humor for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-videographers-packing-essentials-kit/"><u>[Updated] 2024 Approved The Videographer's Packing Essentials Kit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-bg-removal-in-figma-designs-for-2024/"><u>[Updated] Mastering BG Removal in Figma Designs for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/behind-the-scenes-of-booktoks-best-picks/"><u>Behind the Scenes of BookTok's Best Picks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/exclusive-listing-of-best-5-sd-cards-for-gopro-hero-cameras-for-2024/"><u>Exclusive Listing of Best 5 SD Cards for GoPro HERO Cameras for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-quiet-down-a-noisy-ps4-gaming-console/"><u>How to Quiet Down a Noisy PS4 Gaming Console</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-honor-80-pro-straight-screen-edition-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Honor 80 Pro Straight Screen Edition</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-honor-90-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Honor 90 Android SIM Unlock APK</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/is-investing-in-a-portable-display-device-wise-discover-the-top-benefits-and-choices-explained-by-tech-experts-at-zdnet/"><u>Is Investing in a Portable Display Device Wise? Discover the Top Benefits and Choices Explained by Tech Experts at ZDNet</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-oppo-a79-5g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Oppo A79 5G – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-picks-ultimate-comparison-of-the-best-azw4-e-reader-apps-for-windows-and-macos/"><u>Top Picks: Ultimate Comparison of the Best AZW4 E-Reader Apps for Windows & macOS</u></a></li>
+</ul></div>
 

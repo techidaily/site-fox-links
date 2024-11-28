@@ -1,7 +1,7 @@
 ---
 title: "Flipping Photo Lightness for an Alternate Look for 2024"
-date: 2024-08-28T10:09:36.103Z
-updated: 2024-08-29T10:09:36.103Z
+date: 2024-11-23T20:32:12.625Z
+updated: 2024-11-27T16:29:35.962Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/ccf5464afb4aa685619c7a259990847a57c5c05da
  Mar 27, 2024• Proven solutions
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Make Image Negative of a Digital Photo?
 
@@ -54,9 +58,17 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
 
@@ -77,6 +89,10 @@ The platform’s homepage contains a number of categories of tools such as **Col
 **Compatibility** **:** Online platform
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
 
@@ -122,6 +138,10 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -145,8 +165,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-avoiding-blur-on-instagram-with-smart-zooms-for-2024/"><u>[New] Avoiding Blur on Instagram with Smart Zooms for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-exclusive-free-player-list-for-windowsmac-users/"><u>[New] In 2024, Exclusive Free Player List for Windows/Mac Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-pro-video-cinematography-choosing-the-right-lenses-for-2024/"><u>[New] Pro Video Cinematography Choosing the Right Lenses for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-crafting-flawless-virtual-reality-gaming-archives/"><u>[Updated] 2024 Approved Crafting Flawless Virtual Reality Gaming Archives</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-maximizing-video-impact-with-zoom-in-tiktok/"><u>[Updated] 2024 Approved Maximizing Video Impact with Zoom in TikTok</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-awarded-top-12-camcorders-including-satellite-position-tracking/"><u>[Updated] Awarded Top 12 Camcorders Including Satellite Position Tracking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-gopros-new-era-a-detailed-max-360-vs-hero-11-analysis-for-2024/"><u>[Updated] GoPro's New Era A Detailed Max 360 vs Hero 11 Analysis for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-monetary-milestones-steps-to-unlock-your-true-youtube-income-value/"><u>[Updated] Monetary Milestones Steps to Unlock Your True YouTube Income Value</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-streamlining-your-youtube-music-journey/"><u>2024 Approved Streamlining Your YouTube Music Journey</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-oppo-a79-5g-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Oppo A79 5G</u></a></li>
+<li><a href="https://video-capture.techidaily.com/easy-conversion-process-from-hls-streams-m3u8-to-high-quality-mp4-videos/"><u>Easy Conversion Process From HLS Streams (M3U8) to High-Quality MP4 Videos</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-apple-iphone-8-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>How to Change Your Apple iPhone 8 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-google-pixel-fold-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Google Pixel Fold Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-top-10-exclusive-iphone-photo-editors-enhance-selfies-without-spending/"><u>In 2024, Top 10 Exclusive iPhone Photo Editors Enhance Selfies Without Spending</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/why-im-loyal-to-my-apple-watch-series-7-over-the-new-series-10-insights-from-a-tech-expert-on-zdnet/"><u>Why I'm Loyal to My Apple Watch Series 7 Over the New Series 10 - Insights From a Tech Expert on ZDNet</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->

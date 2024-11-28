@@ -1,7 +1,7 @@
 ---
 title: "[New] State of the VR Industry"
-date: 2024-08-28T10:11:31.348Z
-updated: 2024-08-29T10:11:31.348Z
+date: 2024-11-22T23:19:24.224Z
+updated: 2024-11-27T16:41:06.416Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What’s the popular VR platforms and what is developing fast?
 
  Well, the fourth Annual GDC European State of the Industry was held just about a month ago and as always, developers from various parts of this continent took part in it. It was very clear from the developers that they are still launching games keeping the PC and Smart Phones in mind. These are still the most popular platforms where 49 percent of the developers made their latest release on PC/Mac, around 41 percent chose smart phones and tablets to be the best medium.
@@ -41,13 +45,18 @@ thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545
 
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## About the European VR game makers and their funding
 
  Funding for the games has always remained one of the prime concerns for the game developers and publishers. You know that it takes large amounts to be invested for the games. When it comes to the funding policies for the European game developers, most of them are covering the entire expenses using their own funds. Take a look at what the survey report has to say about that. Asking about the sources of the fund for the games 57.8 percent said that their funds come from the company’s existing fund while contrary to this, 32.9 percent game developers said that they manage their own fund from their personal accounts.
@@ -55,8 +64,9 @@ thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
 
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
@@ -64,8 +74,9 @@ thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -89,4 +100,24 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-carryminati-the-youtube-money-trail-of-ajey-nagar/"><u>[New] 2024 Approved CarryMinati The YouTube Money Trail of Ajey Nagar</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-adapting-srt-to-sub-step-by-step-guide-and-tactics/"><u>[New] Adapting SRT to SUB Step-by-Step Guide & Tactics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-dynamic-panzoid-assembly-resources-for-2024/"><u>[New] Dynamic Panzoid Assembly Resources for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-breath-control-and-articulation-for-clear-ppt-speaking-for-2024/"><u>[Updated] Breath Control and Articulation for Clear PPT Speaking for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-video-journey-beginnings-start-with-windows-11s-movie-maker/"><u>[Updated] In 2024, Video Journey Beginnings Start with Windows 11'S Movie Maker</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-wildlife-documentary-showdown-gopro-hero5-vs-sjcam-star/"><u>[Updated] In 2024, Wildlife Documentary Showdown GoPro Hero5 vs SJCAM Star</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-laugh-out-loud-a-step-by-step-meme-building/"><u>[Updated] Laugh Out Loud A Step-by-Step Meme Building</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-tips-to-improve-zooms-facebook-live-functionality-for-2024/"><u>[Updated] Tips to Improve Zoom's Facebook Live Functionality for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-total-exploration-the-dji-phantom-4-experience-reviewed-for-2024/"><u>[Updated] Total Exploration The DJI Phantom 4 Experience Reviewed for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-from-live-to-legacy-preserving-facebook-events/"><u>2024 Approved From Live to Legacy Preserving Facebook Events</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-comprehensive-listing-of-best-zero-cost-broadcasting-tech-for-all-platforms/"><u>In 2024, Comprehensive Listing of Best Zero-Cost Broadcasting Tech for All Platforms</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-cutting-edge-drones-pairing-perfectly-with-gopros/"><u>In 2024, Cutting-Edge Drones Pairing Perfectly with GoPros</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-leading-screen-grabbers-top-picks-for-windows-11/"><u>In 2024, Leading Screen Grabbers Top Picks for Windows 11</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-evaluation-why-the-dji-mavic-2-pro-is-a-must-have-for-professional-photographers-and-videographers/"><u>In-Depth Evaluation: Why the DJI Mavic 2 Pro Is a Must-Have for Professional Photographers and Videographers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovations-for-elevating-your-gopro-filmmaking-skills-for-2024/"><u>Innovations for Elevating Your GoPro Filmmaking Skills for 2024</u></a></li>
+<li><a href="https://fox-within.techidaily.com/metodo-simple-y-paso-a-paso-para-reemplazar-su-unidad-principal-por-ssd-en-windows-novo/"><u>Método Simple Y Paso a Paso Para Reemplazar Su Unidad Principal Por SSD en Windows Novo</u></a></li>
+<li><a href="https://fox-links.techidaily.com/xstudio-procedures-reviewed-complete-overview/"><u>XStudio Procedures Reviewed Complete Overview</u></a></li>
+</ul></div>
 

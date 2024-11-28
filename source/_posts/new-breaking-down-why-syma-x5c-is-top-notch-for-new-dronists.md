@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Breaking Down  Why Syma X5C Is Top-Notch for New Dronists\""
-date: 2024-11-11T20:34:43.135Z
-updated: 2024-11-17T16:34:01.986Z
+date: 2024-11-21T21:51:55.030Z
+updated: 2024-11-27T18:12:27.814Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/43d04728eb067b27b181109747aeff382529cf3d8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and Cons of Syma X5C
 
 **Pros:**
@@ -64,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/43d04728eb067b27b181109747aeff382529cf3d8
 **Verdict:**
 
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Complete Review for Syma X5C
 
@@ -96,13 +104,6 @@ thumbnail: https://thmb.techidaily.com/43d04728eb067b27b181109747aeff382529cf3d8
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
@@ -110,25 +111,13 @@ thumbnail: https://thmb.techidaily.com/43d04728eb067b27b181109747aeff382529cf3d8
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -138,10 +127,7 @@ thumbnail: https://thmb.techidaily.com/43d04728eb067b27b181109747aeff382529cf3d8
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -169,18 +155,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-capture-creativity-best-plugins-and-websites-for-photoshopping-with-frames-for-2024/"><u>[New] Capture Creativity Best Plugins and Websites for Photoshopping with Frames for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-fixing-curved-video-gopros-fisheye-issue-for-2024/"><u>[New] Fixing Curved Video GoPro's Fisheye Issue for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/treamlined-design-integrating-gamers-banner-templates/"><u>[New] Streamlined Design Integrating Gamers' Banner Templates</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-anonymous-glimpse-into-fb-flashbacks/"><u>[Updated] Anonymous Glimpse Into FB Flashbacks</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-understanding-why-your-camera-stops-in-the-mid-action/"><u>[Updated] In 2024, Understanding Why Your Camera Stops in the Mid-Action</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-understanding-the-zip-to-srt-file-transition/"><u>[Updated] Understanding the Zip to Srt File Transition</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-high-end-picture-sources-at-zero-cost/"><u>2024 Approved Unveiling High-End Picture Sources at Zero Cost</u></a></li>
-<li><a href="https://extra-information.techidaily.com/breakthrough-tactics-for-improved-voice-identity-in-pubg-for-2024/"><u>Breakthrough Tactics for Improved Voice Identity in PUBG for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/bypass-the-hurdle-repairing-dead-usb-input-devices-in-windows-7-environments/"><u>Bypass the Hurdle: Repairing Dead USB Input Devices in Windows 7 Environments</u></a></li>
-<li><a href="https://review-topics.techidaily.com/iphone-xr-data-recovery-an-infographic-to-conquer-iphone-data-loss-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone XR Data Recovery – An Infographic to Conquer iPhone Data Loss | Stellar</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/mastering-windows-10-the-hidden-paths-for-importation-for-2024/"><u>Mastering Windows 10 The Hidden Paths for Importation for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/step-by-step-mastery-your-phone-as-a-personalized-vr-headset/"><u>Step-by-Step Mastery Your Phone as a Personalized VR Headset</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unveiling-the-strengths-of-asus-zenwifi-ax6600-mesh-router-expert-review-inside/"><u>Unveiling the Strengths of ASUS ZenWifi AX6600 Mesh Router - Expert Review Inside</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-experts-choice-best-hdmi-21-display-models-evaluated/"><u>[New] 2024 Approved Expert's Choice Best HDMI 2.1 Display Models Evaluated</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-effortless-lenovo-screen-casting/"><u>[New] In 2024, Effortless Lenovo Screen Casting</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-top-practices-in-producing-trustworthy-video-product-reviews/"><u>[New] In 2024, Top Practices in Producing Trustworthy Video Product Reviews</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-pushing-boundaries-with-film-color-grading-these-7/"><u>[Updated] 2024 Approved Pushing Boundaries with Film Color Grading (These 7)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-colors-unveiled-the-comprehensive-tutorial-for-2024/"><u>[Updated] Colors Unveiled The Comprehensive Tutorial for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-step-by-step-to-stardom-on-social-boost-your-instagram-fame-at-warp-speed-with-our-15-must-knows/"><u>[Updated] In 2024, Step-by-Step to Stardom on Social Boost Your Instagram Fame at Warp Speed with Our 15 Must-Knows</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-honor-x50-gt-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-20-best-practices-for-facebook-video-advertising/"><u>2024 Approved 20 Best Practices for Facebook Video Advertising</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-scouting-the-superior-18-video-recorders-for-seamless-streams/"><u>2024 Approved Scouting the Superior 18 Video Recorders for Seamless Streams</u></a></li>
+<li><a href="https://fox-links.techidaily.com/expert-advice-on-tailoring-game-sounds-to-stand-out-in-the-virtual-arena-of-free-fire-for-2024/"><u>Expert Advice on Tailoring Game Sounds to Stand Out in the Virtual Arena of Free Fire for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-apple-iphone-6-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For Apple iPhone 6?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-seamless-transition-into-the-world-of-zoom-meetings-for-your-android-device/"><u>In 2024, Seamless Transition Into the World of Zoom Meetings for Your Android Device</u></a></li>
+<li><a href="https://win11.techidaily.com/master-your-media-8-superior-windows-video-slicers/"><u>Master Your Media - 8 Superior Windows Video Slicers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamline-your-podcasts-effective-editing-tips-for-garageband-users-for-2024/"><u>Streamline Your Podcasts Effective Editing Tips for GarageBand Users for 2024</u></a></li>
 </ul></div>
 

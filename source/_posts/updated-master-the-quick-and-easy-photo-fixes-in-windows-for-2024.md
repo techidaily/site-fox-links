@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Master the Quick & Easy Photo Fixes in Windows for 2024"
-date: 2024-11-16T00:26:41.120Z
-updated: 2024-11-17T22:05:00.436Z
+date: 2024-11-20T20:34:21.914Z
+updated: 2024-11-27T22:04:20.649Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ The Photos app in Windows 10 is one of the best and with the addition of the dra
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Draw On Photos App in Windows 10
 
 When you can add a personal touch to your videos and photos, it becomes all the way more special. Many times, it becomes essential to add a note to explain a video in a better way. Here are the steps to draw on photos in Windows 10 –
@@ -45,10 +49,18 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/start-drawing-on-photos-in-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Draw on the images and videos effortlessly
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
@@ -67,16 +79,7 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Select the color from the range of palette available
@@ -85,27 +88,7 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
-
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -116,10 +99,7 @@ The Photos app has an interface that is restructured with dark theme options and
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -147,21 +127,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-master-the-art-of-picture-perfection-on-snapchat-apps/"><u>[New] 2024 Approved Master the Art of Picture Perfection on Snapchat Apps</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-curate-and-connect-videos-for-watchlist/"><u>[New] Curate and Connect Videos for Watchlist</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-expert-recommendations-for-limitless-data-holding/"><u>[New] Expert Recommendations for Limitless Data Holding</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-mastering-profits-a-comprehensive-vimeo-revenue-strategy/"><u>[New] Mastering Profits A Comprehensive Vimeo Revenue Strategy</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-easy-to-follow-tips-for-hassle-free-high-dynamic-range-imaging-for-2024/"><u>[Updated] Easy-to-Follow Tips for Hassle-Free High Dynamic Range Imaging for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-masterclass-on-blending-sound-and-sight-for-media-professionals/"><u>[Updated] Masterclass on Blending Sound & Sight for Media Professionals</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-mastering-memes-kinemaster-guide-for-2024/"><u>[Updated] Mastering Memes KineMaster Guide for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-essential-guide-to-lut-applications-in-photoshop-cs6-for-2024/"><u>[Updated] The Essential Guide to LUT Applications in Photoshop CS6 for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-your-journey-through-telegrams-web-functionality/"><u>[Updated] Your Journey Through Telegram's Web Functionality</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-apple-iphone-x-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone X to the Latest iOS Version? | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-bid-farewell-to-clutter-quick-and-easy-edits-on-large-drafters/"><u>In 2024, Bid Farewell to Clutter Quick & Easy Edits on Large Drafters</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-ultimate-tutorial-for-professional-gopro-cinematography/"><u>In 2024, Ultimate Tutorial for Professional GoPro Cinematography</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-updating-your-evga-gpu-drivers-in-windows/"><u>Step-by-Step Guide: Updating Your EVGA GPU Drivers in Windows</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/subdued-soundscape-stitches-for-garageband-workflows/"><u>Subdued Soundscape Stitches for Garageband Workflows</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-dvd-decrypting-solutions-upgraded-speed-and-enhanced-capabilities/"><u>Top DVD Decrypting Solutions : Upgraded Speed & Enhanced Capabilities</u></a></li>
-<li><a href="https://win11.techidaily.com/unlocking-google-chromes-colors-in-windows/"><u>Unlocking Google Chrome's Colors in Windows</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-identifying-premium-hdr-camera-options/"><u>[New] 2024 Approved Identifying Premium HDR Camera Options</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-video-cataloging-mastery-perfecting-playlists-on-youtube-platform/"><u>[Updated] 2024 Approved Video Cataloging Mastery Perfecting Playlists on YouTube Platform</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-auditory-enhancements-adding-sound-effectively-powerpoint/"><u>[Updated] Auditory Enhancements Adding Sound Effectively (PowerPoint)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-best-practices-for-high-quality-streaming-of-sporting-games/"><u>[Updated] Best Practices for High-Quality Streaming of Sporting Games</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-scripts-to-screen-a-filmmakers-guide/"><u>[Updated] Scripts to Screen A Filmmaker's Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/easy-fix-rekeying-techniques-for-damaged-laptops-and-keyboards/"><u>Easy Fix: Rekeying Techniques for Damaged Laptops and Keyboards</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elite-suites-3d-modeling-and-animation-synergy/"><u>Elite Suites 3D Modeling & Animation Synergy</u></a></li>
+<li><a href="https://blog-min.techidaily.com/flvmp33/"><u>FLVからMP3への変換手順：3つの効果的な方法</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-v29-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on V29</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-dive-deep-into-metaverse-with-top-8-vr-helmets/"><u>In 2024, Dive Deep Into Metaverse with Top 8 VR Helmets</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-mobile-studio-kits-convenient-for-filmmakers/"><u>In 2024, Mobile Studio Kits Convenient for Filmmakers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-new-era-for-sony-blu-ray-player-s6700/"><u>In 2024, New Era for Sony Blu-Ray Player S6700</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-essential-blueprint-for-melding-linktree-into-tiktok-profiles/"><u>The Essential Blueprint for Melding Linktree Into TikTok Profiles</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-oppo-f23-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Oppo F23 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/tuto-guide-facile-a-suivre-pour-installer-windows-nouvelle-version-directement-en-externe-avec-cle-usb/"><u>Tuto-Guide Facile À Suivre Pour Installer Windows Nouvelle Version Directement en Externe Avec Clé USB.</u></a></li>
 </ul></div>
 

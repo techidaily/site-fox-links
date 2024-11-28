@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Harnessing the Full Spectrum of Creativity with LUTs in Video Editing\""
-date: 2024-11-13T16:32:02.289Z
-updated: 2024-11-18T00:55:59.649Z
+date: 2024-11-24T20:02:30.701Z
+updated: 2024-11-27T22:12:33.514Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,7 @@ Step2Locate the Lumetri LUTs folder in your Premiere Pro installation directory 
 Step3Paste all of your fresh LUTs in this folder at this time. Your new LUTs will now show up in the Lumetri Color Panel when you launch Premiere Pro (or restart the software if it was already open). Innovative >> Looks
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. How to add LUTs to your footage
@@ -55,10 +52,7 @@ Step3The first Basic Correction option in the right-hand panel of Lumetri Color 
 Step4Double-click the LUT you wish to use once you've located it, and it will be applied immediately.A tiny tip I like to use occasionally is to find the Effect Controls panel on the left side, then click the drop-down arrow next to Opacity, and make adjustments if you input your LUT and feel that it's too intense.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Why use LUTs in your project?
@@ -71,6 +65,10 @@ Because of this, some designers employ look-up tables (LUTs) that they have crea
 
 When it comes to working on a project for a customer that has a stringent deadline to fulfill, poor color grading could result in a negative impression of your work. This is the case even if everything from the sound effects to the video effects is done to a high standard and is done well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Can you adjust the strength of the LUT?
 
 There are no such modifications that can be made in a certain LUT or Look, and there is no reason to adjust them because there is no need to. However, you may change its strength, which is essentially the same thing as the opacity of the LUT that was applied, and there are still choices to color grade the entire movie after the LUT has been applied.
@@ -80,10 +78,7 @@ The entire color panel in Premiere Pro is packed with all of the color grading t
 The end outcome does not vary by a substantial amount, but how it looks can change depending on the LUT you use. In the event that something seems to be lacking, you can always modify the color grading.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Export LUTs
@@ -98,13 +93,6 @@ Step2Export ".cube" This function exports lookup tables in the.cube format so th
 
 Step3Store Preset: You can personalize the settings for each color effect, then save the resulting combinations as presets. Within the Save Preset dialog box, give your preset the name you want it to have. If desired, enter a description. Please visit the article on how to create and store an effect preset for further details.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Where can you find LUTs?
 
 You might be asking, "Now that I've learned more about LUTs (Lookup Tables), where can I get even more LUTs?" since you've gained some new knowledge. In the end, being able to use the built-in LUTs in Luminar is a nice feature, but these are merely samples of the thousands upon thousands of LUTs that are accessible, both for free and for purchase.
@@ -117,6 +105,10 @@ You might be asking, "Now that I've learned more about LUTs (Lookup Tables), whe
 * Complete Cinema LUTs
 * Filmic Tone LUTs
 * Urban Dark Creative LUTs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -154,17 +146,20 @@ Sometimes, some of them are out there to steal your money rather than provide th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-unlocking-apples-podcast-library-a-download-guide/"><u>[New] In 2024, Unlocking Apple's Podcast Library A Download Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/hythm-reversal-top-10-audio-distortors-for-devices/"><u>[New] Rhythm Reversal Top 10 Audio Distortors for Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-xiaomis-flight-tech-unveiled-in-4k-review-for-2024/"><u>[New] Xiaomi's Flight Tech Unveiled in 4K Review for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-efficient-ways-to-access-nba-games-online/"><u>[Updated] 2024 Approved Efficient Ways to Access NBA Games Online</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-demystifying-spotify-advertising-for-marketers/"><u>[Updated] Demystifying Spotify Advertising for Marketers</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/four-legal-frameworks-governing-ai-technology/"><u>Four Legal Frameworks Governing AI Technology</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor Play 8T? | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-the-path-to-perfect-podcast-scripts-writing-techniques-and-free-example-guides/"><u>In 2024, The Path to Perfect Podcast Scripts Writing Techniques & Free Example Guides</u></a></li>
-<li><a href="https://extra-information.techidaily.com/learning-the-ins-and-outs-of-firefox-pip/"><u>Learning the Ins and Outs of Firefox PIP</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/realme-11-pro-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme 11 Pro Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/the-art-of-transferring-tunes-between-platforms/"><u>The Art of Transferring Tunes Between Platforms</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-ai-potential-with-chatgpt-how-to-leverage-its-personalized-instruction-function/"><u>Unlocking AI Potential with ChatGPT: How to Leverage Its Personalized Instruction Function</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-androidios-video-cutting-edge-8-top-montage-tools-revealed/"><u>[New] 2024 Approved Android/iOS Video Cutting-Edge 8 Top Montage Tools Revealed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-comprehensive-insight-into-high-end-hdr-cameras/"><u>[New] 2024 Approved Comprehensive Insight Into High-End HDR Cameras</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-ultimate-windows-11-hacks-and-tips/"><u>[New] 2024 Approved Ultimate Windows 11 Hacks and Tips</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-elevate-video-conferencing-skills-google-meet-aesthetics-guide/"><u>[New] In 2024, Elevate Video Conferencing Skills Google Meet Aesthetics Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-making-classroom-content-video-editing-insights-for-2024/"><u>[Updated] Making Classroom Content Video Editing Insights for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-srt-simplified-a-practical-manual-for-xmlssattml-transformation/"><u>[Updated] SRT Simplified A Practical Manual for XML/SSA/TTML Transformation</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/2-get-it-for-free-leading-archive-restoration-programs-2024/"><u>2. Get It For Free! Leading Archive Restoration Programs -2024</u></a></li>
+<li><a href="https://discover-help.techidaily.com/convert-mov-files-to-mp4-free-cross-platform-guide-for-mac-and-windows/"><u>Convert MOV Files to MP4 Free: Cross-Platform Guide for Mac & Windows</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhance-your-artistic-expression-10plus-luts-for-zero-price/"><u>Enhance Your Artistic Expression – 10+ LUTs for Zero Price</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/essential-software-for-salvaging-deleted-messages-from-iphones-the-expert-picks/"><u>Essential Software for Salvaging Deleted Messages From iPhones – The Expert Picks</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-tecno-spark-10-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-remove-filmora-logo-a-step-by-step-guide/"><u>In 2024, Remove Filmora Logo A Step-by-Step Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>New In 2024, How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-realme-gt-neo-5-by-drfone-android/"><u>Universal Unlock Pattern for Realme GT Neo 5</u></a></li>
 </ul></div>
 

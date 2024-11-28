@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Effective Procedures in Generating Authentic Testimonial Videos"
-date: 2024-11-17T04:53:52.461Z
-updated: 2024-11-17T23:19:27.849Z
+date: 2024-11-23T19:13:50.042Z
+updated: 2024-11-27T23:28:30.161Z
 tags: 
   - screen-recording
   - ai video
@@ -36,9 +36,17 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
@@ -49,42 +57,15 @@ It may seem like a daunting task, but there are several ways you can go about de
 
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Use the word “I”.
 * Use the word “we”.
 * Use the word “you”.
 * You can also use the word "they" for an authoritative tone, or "them", which is more casual and vaguer, depending on what you want to convey.
 * Please avoid saying the word "me" because this makes it sound like you're speaking in the third person—which can come across as unnatural and pretentious.
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Keep it All Short and Sweet
 
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
 
@@ -92,9 +73,17 @@ When asking someone for their thoughts on a topic or issue, there's always going
 
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lighting, Sound, and Video Quality Matter
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lighting, sound, and video quality matter.
 
@@ -104,6 +93,10 @@ This is a given. If you want your testimonial videos to be effective and believa
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
@@ -112,23 +105,9 @@ If someone says "I love this product," but then shows their eyes darting around 
 
 ![beware skeptics](https://images.wondershare.com/filmora/article-images/2022/07/beware-skeptics.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -164,20 +143,18 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-finding-the-right-sound-for-movie-previews/"><u>[New] 2024 Approved Finding the Right Sound for Movie Previews</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-a-straightforward-approach-to-image-distortion/"><u>[New] A Straightforward Approach to Image Distortion</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-enable-vlcs-webcam-recording-for-high-quality-footage/"><u>[New] Enable VLC's Webcam Recording for High-Quality Footage</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-photography-elite-line-up-best-6-4k-dslr-options-reviewed/"><u>[New] In 2024, Photography Elite Line-Up Best 6 4K DSLR Options Reviewed</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-top-social-network-sites-for-youtube-growth/"><u>[New] Top Social Network Sites for YouTube Growth</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-estimating-film-budget-the-cost-of-capturing-melodies-visually-for-2024/"><u>[Updated] Estimating Film Budget The Cost of Capturing Melodies Visually for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-unveiling-instagrams-secrets-for-powerful-video-chats/"><u>[Updated] Unveiling Instagram's Secrets for Powerful Video Chats</u></a></li>
-<li><a href="https://fox-links.techidaily.com/crafting-compelling-movie-previews-for-2024/"><u>Crafting Compelling Movie Previews for 2024</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/guide-to-extracting-drm-protected-content-from-specific-ebook-pages-eg-page-13/"><u>Guide to Extracting DRM Protected Content From Specific eBook Pages (E.g., Page 13)</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-picshots-innovation-hassle-free-collages-made-simple/"><u>In 2024, Picshot's Innovation Hassle-Free Collages Made Simple</u></a></li>
-<li><a href="https://fox-links.techidaily.com/launch-day-calculus-for-successful-podcasts-for-2024/"><u>Launch Day Calculus for Successful Podcasts for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-market-top-cable-modemrouter-fusion-selections/"><u>Navigating the Market: Top Cable Modem/Router Fusion Selections</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/quality-at-cost-2024s-top-cams/"><u>Quality at Cost: 2024'S Top Cams</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/step-by-step-guide-rescuing-and-retrieving-frozen-messages-from-apples-icloud/"><u>Step-by-Step Guide: Rescuing and Retrieving Frozen Messages From Apple's iCloud</u></a></li>
-<li><a href="https://fox-links.techidaily.com/unlock-full-media-potential-with-funimate-tools-for-2024/"><u>Unlock Full Media Potential with Funimate Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-chart-topping-content-youtubes-top-5/"><u>[New] 2024 Approved Chart-Topping Content YouTube's Top 5</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-boost-brand-awareness-with-selective-marketing-vernacular/"><u>[New] Boost Brand Awareness with Selective Marketing Vernacular</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-gopro-versus-polaroid-editing-faces-vs-cameras-that-shoot-them-for-2024/"><u>[New] GoPro Versus Polaroid Editing Faces Vs. Cameras That Shoot Them for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-action-cam-showdown-2022-hero5-black-vs-ultra-30-streaming/"><u>[Updated] 2024 Approved Action Cam Showdown 2022 Hero5 Black Vs. Ultra 30 Streaming</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-from-overflowed-drafters-to-ordered-files-learn-to-edit-hefty-tiktok-content/"><u>[Updated] 2024 Approved From Overflowed Drafters to Ordered Files Learn to Edit Hefty TikTok Content</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-strategic-message-management-expert-tips-for-discord-pinning/"><u>[Updated] 2024 Approved Strategic Message Management Expert Tips for Discord Pinning</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-future-fortunes-for-virtual-game-masters/"><u>[Updated] In 2024, Future Fortunes for Virtual Game Masters</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-composers-toolkit-for-flawless-image-finishing-for-2024/"><u>[Updated] The Composer's Toolkit for Flawless Image Finishing for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-restore-a-bricked-nokia-c110-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Nokia C110 Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-top-15-trends-in-snappy-storytelling-and-sharing/"><u>In 2024, Top 15 Trends in Snappy Storytelling and Sharing</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mp4-video-repair-tool-repair-corrupt-damaged-unplayable-video-files-of-tecno-pova-5-pro-by-stellar-video-repair-mobile-video-repair/"><u>MP4 Video Repair Tool - Repair corrupt, damaged, unplayable video files of Tecno Pova 5 Pro</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mp4-won-t-play-on-my-galaxy-f14-5g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>MP4 won't play on my Galaxy F14 5G</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-list-4-myspace-downloader-tools-for-mp4-and-mp3-extraction-get-them-free/"><u>The Ultimate List: 4 MySpace Downloader Tools for MP4 and MP3 Extraction (Get Them FREE!)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Beginner’s Blueprint for Winning Animation in Windows"
-date: 2024-11-14T22:51:53.784Z
-updated: 2024-11-17T21:26:42.262Z
+date: 2024-11-24T23:16:49.526Z
+updated: 2024-11-27T19:14:44.971Z
 tags: 
   - screen-recording
   - ai video
@@ -59,11 +59,19 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step5Save the Video
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
 
@@ -91,6 +99,10 @@ Filmora helps you create your text animation using the controller window as seen
 
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3\. Related FAQs about Windows Movie Maker
 
 1. **Where is the Visual Effects tab in Movie Maker?**
@@ -111,25 +123,11 @@ If you wish to clip off a section, go to "Edit" under "Video Tools" and choose t
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
 
 ![animation tab movie maker](https://images.wondershare.com/filmora/article-images/2022/09/animation-tab-movie-maker.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step4Add Transitions
 
@@ -138,10 +136,7 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step5Save the Video
@@ -151,10 +146,7 @@ When a transition is applied, a washed-out diagonal zone on the clip in the time
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
@@ -221,22 +213,24 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-affordable-asmr-capturing-selecting-premium-gear-for-budget-conscious-users-for-2024/"><u>[New] Affordable ASMR Capturing Selecting Premium Gear for Budget-Conscious Users for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-dive-into-a-world-of-timelessness-crafting-slow-motion-videos-using-mobile-apps/"><u>[New] In 2024, Dive Into a World of Timelessness Crafting Slow Motion Videos Using Mobile Apps</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-next-gen-editing-experience-reviewed-magix-video-pro-x/"><u>[New] In 2024, Next-Gen Editing Experience Reviewed Magix Video Pro X</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-soundscapes-enhancing-photography-online-for-2024/"><u>[New] Soundscapes Enhancing Photography Online for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-memorable-images-top-10-best-meme-blueprints/"><u>[Updated] 2024 Approved Memorable Images TOP 10 Best Meme Blueprints</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-create-compelling-images-on-iphone-with-these-10-principles/"><u>[Updated] In 2024, Create Compelling Images on iPhone with These 10 Principles</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-innovative-approaches-to-background-blanketing-in-affinity-photo-for-2024/"><u>[Updated] Innovative Approaches to Background Blanketing in Affinity Photo for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-maximize-moments-with-engaging-tasks-while-embracing-your-favorite-talk-shows/"><u>[Updated] Maximize Moments with Engaging Tasks While Embracing Your Favorite Talk Shows</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-optimal-mic-selection-for-professional-4k-filmmaking/"><u>[Updated] Optimal Mic Selection for Professional 4K Filmmaking</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-professional-tips-for-editing-and-refining-instagram-videos/"><u>[Updated] Professional Tips for Editing and Refining Instagram Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-sky-high-broadcasting-your-first-steps-in-youtube-live-via-obs/"><u>2024 Approved Sky-High Broadcasting Your First Steps in Youtube Live via OBS</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-tecno-pop-7-pro-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Tecno Pop 7 Pro Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-how-to-steer-clear-of-virtual-sickness/"><u>In 2024, How to Steer Clear of Virtual Sickness</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-integrating-soundscape-with-video-narrative-in-premiere-pro/"><u>In 2024, Integrating Soundscape With Video Narrative in Premiere Pro</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-unveiling-lost-reddit-content-instant-access-techniques/"><u>In 2024, Unveiling Lost Reddit Content Instant Access Techniques</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-oppo-a18-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-storing-your-stories-and-snaps-safely-on-ios-devices/"><u>[New] 2024 Approved Storing Your Stories and Snaps Safely on iOS Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-upside-and-downside-of-virtual-reality-experience/"><u>[New] 2024 Approved The Upside and Downside of Virtual Reality Experience</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-essential-tips-for-screen-recording-on-lenovo-devices/"><u>[New] Essential Tips for Screen Recording on Lenovo Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-elevating-your-work-with-dynamic-hdr-techniques/"><u>[New] In 2024, Elevating Your Work with Dynamic HDR Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-decoding-srt-to-subcap-for-filmmakers/"><u>[Updated] 2024 Approved Decoding SRT to SUBCAP for Filmmakers</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-perfected-pixelated-photos-follow-the-10-key-composition-guidelines/"><u>[Updated] 2024 Approved Perfected Pixelated Photos Follow the 10 Key Composition Guidelines</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-step-by-step-modify-username-in-google-meet/"><u>[Updated] In 2024, Step-by-Step Modify Username in Google Meet</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-strategies-for-secure-unmarked-photography-procurement/"><u>[Updated] In 2024, Strategies for Secure, Unmarked Photography Procurement</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-sky-eyes-on-the-action-dji-phantom-pro-vs-gopro-fusion/"><u>[Updated] Sky Eyes on the Action DJi Phantom Pro VS GoPro Fusion</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-xiaomi-redmi-note-13-5g-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Xiaomi Redmi Note 13 5G Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-from-apple-iphone-14-pro-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled From Apple iPhone 14 Pro? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://win-answers.techidaily.com/effective-remedies-for-fixing-the-non-responsive-steelseries-gg-engine-on-windows-systems/"><u>Effective Remedies for Fixing the Non-Responsive SteelSeries GG Engine on Windows Systems</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-accelerating-fb-video-optimal-speeds-unveiled/"><u>In 2024, Accelerating FB Video Optimal Speeds Unveiled</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-audioadvisor-dacast-and-what-it-should-be/"><u>In 2024, AudioAdvisor DaCast & What It Should Be</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-gamified-learning-educational-youtubers-to-subscribe/"><u>In 2024, Gamified Learning Educational YouTubers to Subscribe</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-oppo-reno-8t-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Oppo Reno 8T For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-quintessential-quest-for-stories-worlds-best-1-8-schools/"><u>In 2024, The Quintessential Quest for Stories – World's Best #1-#8 Schools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/luminances-hdr-accuracy-assessment-for-2024/"><u>Luminance's HDR Accuracy Assessment for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-12-prominent-lava-blaze-pro-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Lava Blaze Pro 5G Fingerprint Not Working Solutions</u></a></li>
 </ul></div>
 

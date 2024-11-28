@@ -1,7 +1,7 @@
 ---
 title: "[New] Quickly Change Digital Pictures' Darkness Level for 2024"
-date: 2024-08-28T10:11:26.276Z
-updated: 2024-08-29T10:11:26.276Z
+date: 2024-11-26T20:25:45.115Z
+updated: 2024-11-27T22:09:45.966Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
 If you are using Windows XP or an earlier version of the Windows OS, you can invert colors in a photo by clicking on the **Invert Colors option** in the **Image menu**. Even though MS Paint lets you invert image colors easily, it is still better to use a more powerful image editor to edit your photos.
@@ -54,9 +58,17 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
 
@@ -78,6 +90,10 @@ The platform’s homepage contains a number of categories of tools such as **Col
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
 
 #### 5. Using [Adobe Photoshop](https://www.adobe.com/products/photoshop.html)’s Invert Option
@@ -87,6 +103,10 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -145,8 +165,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-image-alchemy-converting-ordinary-into-extraordinary/"><u>[New] Image Alchemy Converting Ordinary Into Extraordinary</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-direct-tweeted-media-to-your-ears-in-mp3/"><u>[New] In 2024, Direct Tweeted Media to Your Ears in MP3</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-journey-through-the-stars-with-these-innovative-science-youtubers/"><u>[New] In 2024, Journey Through the Stars with These Innovative Science YouTubers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-kinemasters-comprehensive-guide-to-green-screen-usage/"><u>[New] In 2024, Kinemaster's Comprehensive Guide to Green Screen Usage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-easy-way-to-craft-your-digital-self-in-virtual-worlds/"><u>[New] In 2024, The Easy Way to Craft Your Digital Self in Virtual Worlds</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-perfect-the-art-of-note-taking-mematic-way-for-2024/"><u>[New] Perfect the Art of Note-Taking - Mematic Way for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-utilizing-top-users-to-increase-visibility/"><u>[New] Utilizing Top Users to Increase Visibility</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-inside-the-studio-how-magix-video-pro-x-simplifies-production/"><u>[Updated] Inside the Studio How Magix Video Pro X Simplifies Production</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-optimizing-conversion-processes-from-xml-to-high-quality-srts/"><u>[Updated] Optimizing Conversion Processes From XML to High-Quality SRTs</u></a></li>
+<li><a href="https://win-popular.techidaily.com/comment-copier-facilement-une-partition-de-windows-10-sur-un-ssd/"><u>Comment Copier Facilement Une Partition De Windows 10 Sur Un SSD</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exclusive-roundup-affordable-high-quality-live-streaming-services-for-2024/"><u>Exclusive Roundup Affordable, High-Quality Live Streaming Services for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-for-high-performance-art-displays-best-of-2024/"><u>Expert Picks for High-Performance Art Displays, Best of 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/hydro-durable-cams-of-the-week-7-edition-revealed-for-2024/"><u>Hydro-Durable Cams of the Week – #7 Edition Revealed for 2024</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/idpalexa51-removal-process-demystified-by-expert-malwarefox-techniques/"><u>IDP.ALEXA.51 Removal Process Demystified by Expert MalwareFox Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/lustrous-frameworks-structuring-illumination-in-film-for-2024/"><u>Lustrous Frameworks Structuring Illumination in Film for 2024</u></a></li>
+<li><a href="https://discover-great.techidaily.com/top-techniques-pour-rendre-les-fichiers-video-mov-plus-petits-et-convenables/"><u>Top Techniques Pour Rendre Les Fichiers Video MOV Plus Petits Et Convenables</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209994817-9781476631714-writing-and-the-body-in-motion/"><u>Writing and the Body in Motion | Free Book</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

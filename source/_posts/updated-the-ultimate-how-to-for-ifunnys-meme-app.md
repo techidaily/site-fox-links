@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate How-To for iFunny's Meme App\""
-date: 2024-09-01T12:58:37.293Z
-updated: 2024-09-02T12:58:37.293Z
+date: 2024-11-26T20:48:05.166Z
+updated: 2024-11-27T18:15:21.410Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ Step1 Open your browser on your computer and go to <https://ifunny.co/> to acces
 
 ![ifunny meme online](https://images.wondershare.com/filmora/article-images/2022/07/ifunny-meme-online.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 If your goal is to upload your own meme so other users can access it, click on the “Add Meme” button on the left panel. You will however need to sign in to add a meme to the site. Enter your email and password to sign in. If you don’t have an account, click on “Sign Up” to create an account.
 
 ![enter ifunny online](https://images.wondershare.com/filmora/article-images/2022/07/enter-ifunny-online.jpg)
@@ -43,6 +47,10 @@ Once signed in, you should be able to not just add your own memes but also follo
 Step3 if your goal is to find and download a meme that you want to use, you can use the categories on the left to narrow down the memes you want to download. Simply click on one of the categories to see all the memes available and when you find one that you like, click on it to open it, and then click on “Copy Link” to get a sharable link that you can post to social media.
 
 ![create meme ifunny](https://images.wondershare.com/filmora/article-images/2022/07/create-meme-ifunny.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Use iFunny on Mobile
 
@@ -54,9 +62,17 @@ Step2 When the installation is complete, open the app and tap on the “Featured
 
 ![click featured ifunny](https://images.wondershare.com/filmora/article-images/2022/07/click-featured-ifunny.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 If your goal is to upload a meme to iFunny. Tap on the “Add meme” button at the bottom of the screen.
 
 ![add meme ifunny app](https://images.wondershare.com/filmora/article-images/2022/07/add-meme-ifunny-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Select “memes” then tap “Meme pics” and then select the meme that you would like to use.
 
@@ -71,6 +87,10 @@ Step5 If you would like to add a caption to the meme just to customize it furthe
 Type in the caption and the caption and then use the slider that appears below the meme to adjust the size of the caption.
 
 ![caption slider ifunny app](https://images.wondershare.com/filmora/article-images/2022/07/caption-slider-ifunny-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can then just save the meme to your device. If you would like to post the memes on to the iFunny platform, just tap “Next” and you should see the option to add tags and keywords to make it easier for others to find the meme.
 
@@ -112,8 +132,26 @@ The “Explore” tab lists all the mems on the platform, neatly arranged in var
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-from-novices-to-pros-the-journey-of-picking-fpv-drone-blades/"><u>[New] 2024 Approved From Novices to Pros The Journey of Picking FPV Drone Blades</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-assessing-different-versions-available-for-windows-movie-maker/"><u>[New] Assessing Different Versions Available for Windows Movie Maker</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-decoding-luts-the-secret-behind-enhanced-photography-for-2024/"><u>[New] Decoding LUTs The Secret Behind Enhanced Photography for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-affiliate-allies-for-small-channels-an-easy-approach/"><u>[New] In 2024, Affiliate Allies for Small Channels An Easy Approach</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-laughlounge-beginner-friendly-content-creation-for-2024/"><u>[New] LaughLounge Beginner-Friendly Content Creation for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-visualize-vibes-tips-and-techniques-for-iconic-gif-humor-for-2024/"><u>[New] Visualize Vibes Tips & Techniques for Iconic GIF Humor for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-videographers-packing-essentials-kit/"><u>[Updated] 2024 Approved The Videographer's Packing Essentials Kit</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-dividedimage-synopsis/"><u>[Updated] DividedImage Synopsis</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-the-essentials-of-crafting-impactful-spotify-ads/"><u>[Updated] In 2024, The Essentials of Crafting Impactful Spotify Ads</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-bg-removal-in-figma-designs-for-2024/"><u>[Updated] Mastering BG Removal in Figma Designs for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-exclusive-video-player-for-high-quality-avi-on-devices/"><u>2024 Approved Exclusive Video Player for High-Quality AVI on Devices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-kinemaster-tutorial-for-epic-memes/"><u>2024 Approved KineMaster Tutorial for Epic Memes</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-your-new-insignia-ns-pcy5bma2-drivers-compatible-with-win11-10-and-7/"><u>Download Your New Insignia NS-PCY5BMA2 Drivers Compatible with Win11, 10 & 7</u></a></li>
+<li><a href="https://win-best.techidaily.com/errore-di-dimensionamento-del-disco-rigido-post-clonazione-con-spazi-non-assegnati/"><u>Errore Di Dimensionamento Del Disco Rigido Post-Clonazione Con Spazi Non Assegnati</u></a></li>
+<li><a href="https://fox-links.techidaily.com/exclusive-listing-of-best-5-sd-cards-for-gopro-hero-cameras-for-2024/"><u>Exclusive Listing of Best 5 SD Cards for GoPro HERO Cameras for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-update-razer-blackwidow-driver-razer-driver-support/"><u>How to Update Razer Blackwidow Driver | Razer Driver Support</u></a></li>
+<li><a href="https://fox-links.techidaily.com/maximizing-screen-space-the-art-of-close-up-views/"><u>Maximizing Screen Space The Art of Close Up Views</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlock-professional-filmmaking-skills-within-xp/"><u>Unlock Professional Filmmaking Skills Within XP</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-speed-up-or-slow-down-top-10-free-video-editing-apps-for-mobile/"><u>Updated 2024 Approved Speed Up or Slow Down Top 10 Free Video Editing Apps for Mobile</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->

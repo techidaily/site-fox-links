@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Windows 11 Photos Setup Guide  Adding Aesthetic Overlays & Music\""
-date: 2024-08-28T10:09:34.781Z
-updated: 2024-08-29T10:09:34.781Z
+date: 2024-11-20T17:37:28.819Z
+updated: 2024-11-27T23:09:46.248Z
 tags: 
   - screen-recording
   - ai video
@@ -45,11 +45,19 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
@@ -65,6 +73,10 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
@@ -72,8 +84,9 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
@@ -81,8 +94,9 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -106,4 +120,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-cloud-storage-pricing-comparison-and-best-price-2024/"><u>[New] Cloud Storage Pricing Comparison and Best Price 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-freshwater-frontiers-prime-camers-for-fishing-enthusiasts/"><u>[New] In 2024, Freshwater Frontiers Prime Camers for Fishing Enthusiasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-create-the-best-canon-time-lapse-video/"><u>[Updated] 2024 Approved Create the Best Canon Time-Lapse Video</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-essential-tips-for-enhancing-posts-on-snapchat/"><u>[Updated] 2024 Approved Essential Tips for Enhancing Posts on Snapchat</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-effortless-time-lapse-videos-in-gopro-studio-tutorial-for-2024/"><u>[Updated] Effortless Time Lapse Videos in GoPro Studio Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-essential-low-cost-footage-source-directory-for-2024/"><u>[Updated] Essential Low-Cost Footage Source Directory for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-discovering-hidden-gems-in-vlc-player-functions/"><u>[Updated] In 2024, Discovering Hidden Gems in VLC Player Functions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-black-illusion-vs-silver-miracle/"><u>[Updated] In 2024, The Black Illusion Vs Silver Miracle</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-techniques-for-downloading-converting-and-saving-vids-on-twitter-as-mp3s/"><u>[Updated] Techniques for Downloading, Converting, and Saving Vids on Twitter as MP3s</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/10-best-cost-free-subtitle-grabs-from-youtube/"><u>10 Best Cost-Free Subtitle Grabs From YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-comprehensible-guide-to-efficient-zoom-capturing/"><u>2024 Approved Comprehensible Guide to Efficient Zoom Capturing</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-unlock-virtual-worlds-top-10-pc-games-for-ultimate-vr-experience/"><u>2024 Approved Unlock Virtual Worlds Top 10 PC Games for Ultimate VR Experience</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/live-streaming-pro-manycam-top-of-the-line-virtual-camera-app/"><u>Live Streaming Pro - ManyCam: Top-of-the-Line Virtual Camera App</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshooting-and-solving-hp-monitor-drivers-errors-in-windows-10-8-and-7/"><u>Troubleshooting & Solving HP Monitor Drivers Errors in Windows 10, 8, and 7</u></a></li>
+</ul></div>
 
