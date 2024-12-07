@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Color Grading's Secret Weapon  Learning About LUTs\""
-date: 2024-11-21T17:45:25.716Z
-updated: 2024-11-27T18:17:34.485Z
+date: 2024-12-04T21:44:04.648Z
+updated: 2024-12-07T06:43:08.930Z
 tags: 
   - screen-recording
   - ai video
@@ -44,7 +44,7 @@ LUTs also aid in the organization of your post-production processes. You must kn
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How will LUTs change your photography?
@@ -60,7 +60,7 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to use LUTs using Photoshop CC?
@@ -72,7 +72,7 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Choose Adjustment Layer
@@ -82,6 +82,10 @@ Choose Adjustment Layer
 3. Select Load 3D LUT. A list of LUTs that come with Photoshop will appear.
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 load 3d lut
 
@@ -114,10 +118,6 @@ Grow Together
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Closing Thoughts:
 
 LUTs are extremely useful since they allow photographers to save time by using the same LUTs or a set of LUTs for several photographs. Instead of making individual modifications to your photographs, you may color grade them all with the same LUTs. This gives a series a more unified vibe. You can even put them up as Actions in Photoshop.
@@ -129,7 +129,7 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -162,19 +162,14 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-essential-tips-for-harnessing-movie-maker-in-windows-8-systems/"><u>[New] 2024 Approved Essential Tips for Harnessing Movie Maker in Windows 8 Systems</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-understanding-and-managing-video-layouts-in-zoom-for-windows-11-users/"><u>[New] 2024 Approved Understanding and Managing Video Layouts in Zoom for Windows 11 Users</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-navigating-through-beginners-guide-on-telegram-promotions/"><u>[New] In 2024, Navigating Through Beginner’s Guide on Telegram Promotions</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-how-to-download-and-convert-youtube-twittersongs-videos-to-mp3/"><u>[Updated] 2024 Approved How to Download and Convert YouTube Twittersongs (Videos) to MP3</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-visionary-recording-devices-top-18-camcorders-best/"><u>[Updated] 2024 Approved Visionary Recording Devices - Top 18 Camcorders' Best</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-the-art-of-capturing-content-on-vimeo/"><u>[Updated] The Art of Capturing Content on Vimeo</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-samsung-galaxy-m34-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Samsung Galaxy M34 Activity | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/comparative-look-at-oculus-meta-quest-3-vs-apple-vision-pro-was-mark-zuckenberg-on-target-zdnet-coverage/"><u>Comparative Look at Oculus Meta Quest 3 Vs. Apple Vision Pro - Was Mark Zuckenberg on Target? | ZDNET Coverage</u></a></li>
-<li><a href="https://fox-links.techidaily.com/discovering-elite-gif-apps-for-iphone-x8-series-for-2024/"><u>Discovering Elite GIF Apps for iPhone X/8 Series for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-youtube-thumbnails-capture-your-top-views/"><u>Essential YouTube Thumbnails Capture Your Top Views</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-realme-c67-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Realme C67 5G</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-the-setup-how-to-link-psvr-headset-with-pc-for-immersive-gaming/"><u>Mastering the Setup: How to Link PSVR Headset with PC for Immersive Gaming</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/strategies-for-discerning-genuine-contacts-from-impostor-link-requests-on-social-platforms/"><u>Strategies for Discerning Genuine Contacts From Impostor Link Requests on Social Platforms</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-art-of-easy-story-making-for-2024/"><u>The Art of Easy Story Making for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-proven-strategies-for-successful-green-screen-videography/"><u>[New] 2024 Approved Proven Strategies for Successful Green Screen Videography</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-browse-and-download-top-free-extractors-for-your-pinterest-content-for-2024/"><u>[New] Browse & Download Top Free Extractors for Your Pinterest Content for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-imovies-cropping-an-in-depth-look/"><u>[Updated] In 2024, IMovie's Cropping An In-Depth Look</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/5paw5oml57ch5lul77ya6yen54plusplus6zec6y215a2x6kgt5b6p5y6f5rai5asx5pah5lu2/"><u>新手簡介：重現關鍵字術復原消失文件</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-make-a-lasting-impression-youtubes-anime-style-subscribe-buttons-in-filmora/"><u>In 2024, Make a Lasting Impression - YouTube's Anime-Style Subscribe Buttons in Filmora</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-troubleshooting-airdrop-issues-iphoneipadmac-solutions/"><u>In 2024, Troubleshooting Airdrop Issues IPhone/iPad/Mac Solutions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/optimize-your-digital-footprint-chatgpts-4-pathways-to-success/"><u>Optimize Your Digital Footprint: ChatGPT's 4 Pathways to Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unraveling-the-mystery-of-stalled-instagram-videos-for-2024/"><u>Unraveling the Mystery of Stalled Instagram Videos for 2024</u></a></li>
 </ul></div>
 

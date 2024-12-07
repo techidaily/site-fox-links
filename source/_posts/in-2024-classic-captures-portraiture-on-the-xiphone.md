@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Classic Captures  Portraiture on the XiPhone\""
-date: 2024-11-27T00:23:39.118Z
-updated: 2024-11-28T00:01:46.721Z
+date: 2024-12-03T05:24:51.927Z
+updated: 2024-12-06T20:55:58.631Z
 tags: 
   - screen-recording
   - ai video
@@ -41,7 +41,7 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For iPhone 7 Plus/8 Plus/X users
@@ -55,7 +55,7 @@ However, the Portrait Mode is only featured on iOS 10.1 or some more recent vers
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: 9to5mac
@@ -68,15 +68,15 @@ The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image resource: imore
 
 Launch the Camera app, and swipe to the Portrait option, and then tap on the Camera Swap feature to start using the front camera on your iPhone. Find the Portrait Lightning feature in the camera's Portrait mode, then select one of the options provided by the Portrait Lightning such as Studio Light or Natural light, and proceed to snap a selfie by tapping on the shutter button.
 
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### For iPhone 8, 7 or older iPhones users
 
@@ -98,10 +98,6 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
 #### [Bokeh Lens](https://itunes.apple.com/us/app/bokeh-lens/id587849880?mt=8)
@@ -113,7 +109,7 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
@@ -125,6 +121,10 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 **Compatible with:** iOS 8.0 or later
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
@@ -155,20 +155,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-digging-for-discounted-beauty-in-tiktok-backgrounds/"><u>[New] 2024 Approved Digging for Discounted Beauty in TikTok Backgrounds</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-innovative-vr-headsets-transforming-drones/"><u>[New] 2024 Approved Innovative VR Headsets Transforming Drones</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-crafting-perfect-memos-through-sound-waves/"><u>[New] In 2024, Crafting Perfect Memos Through Sound Waves</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-discovering-the-details-a-guide-to-roblox-closeups/"><u>[New] In 2024, Discovering the Details A Guide to Roblox Closeups</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-innovative-strategies-for-effective-macscreencasting/"><u>[Updated] Innovative Strategies for Effective MacScreencasting</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unique-soundscapes-for-your-one-person-show-for-2024/"><u>[Updated] Unique Soundscapes for Your One-Person Show for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-share-live-feeds-skip-the-retweet-tactics/"><u>2024 Approved Share Live Feeds Skip the Retweet Tactics</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-build-haha-images/"><u>In 2024, Build Haha Images</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-ffmpeg-and-the-art-of-audio-preservation/"><u>In 2024, FFmpeg and the Art of Audio Preservation</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Xiaomi 14? | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-vital-criteria-for-assessing-the-best-mac-based-audio-editors/"><u>New Vital Criteria for Assessing the Best Mac-Based Audio Editors</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/optimized-with-advanced-traffic-analysis-from-cookiebot/"><u>Optimized with Advanced Traffic Analysis From Cookiebot</u></a></li>
-<li><a href="https://games-able.techidaily.com/power-unleashed-msis-raider-ge78-revealed/"><u>Power Unleashed: MSI's Raider Ge78 Revealed</u></a></li>
-<li><a href="https://fox-links.techidaily.com/top-6-hdmi-21-monitor-you-can-find-detailed-comparison/"><u>Top 6 HDMI 2.1 Monitor You Can Find [Detailed Comparison]</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-realme-11x-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Realme 11X 5G to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-elevate-your-image-pro-insider-secrets-for-lunapic/"><u>[New] 2024 Approved Elevate Your Image Pro Insider Secrets for LunaPic</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-5-must-know-techniques-for-cutting-through-reddit-noise-and-gaining-traction-for-2024/"><u>[New] 5 Must-Know Techniques for Cutting Through Reddit Noise and Gaining Traction for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-deep-dive-into-windows-pc-hdr-capabilities/"><u>[New] In 2024, Deep Dive Into Windows PC HDR Capabilities</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-dji-phantom-3-performance-analysis/"><u>[New] In 2024, DJI Phantom 3 Performance Analysis</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-premium-cloud-storage-services-a-guides-choice/"><u>[New] In 2024, Premium Cloud Storage Services A Guide's Choice</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-superior-liquid-games/"><u>[New] In 2024, The Ultimate Guide to Superior Liquid Games</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-what-lies-beneath-periscope-its-features-pricing-and-registration-guide/"><u>[New] In 2024, What Lies Beneath Periscope? Its Features, Pricing & Registration Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-finding-the-best-meme-ideas-to-create-viral-content/"><u>[Updated] 2024 Approved Finding the Best Meme Ideas to Create Viral Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-premium-pc-sound-selector/"><u>[Updated] 2024 Approved Premium PC Sound Selector</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-art-of-hiding-while-livestreaming-on-instagram/"><u>[Updated] In 2024, The Art of Hiding While Livestreaming on Instagram</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-syma-x5c-reviewed-ideal-entry-level-flying-machine/"><u>[Updated] Syma X5C Reviewed Ideal Entry-Level Flying Machine</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ultimate-compilation-of-audio-enhancing-software-for-virtual-performers/"><u>[Updated] Ultimate Compilation of Audio-Enhancing Software for Virtual Performers</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-oneplus-12-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on OnePlus 12? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/cinematic-lighting-5-must-haves-for-streams-for-2024/"><u>Cinematic Lighting 5 Must-Haves for Streams for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-essential-fast-control-tools-for-gaming-enthusiasts/"><u>In 2024, Essential Fast-Control Tools for Gaming Enthusiasts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/leveraging-zooms-full-spectrum-of-live-video-capabilities/"><u>Leveraging Zoom's Full Spectrum of Live Video Capabilities</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-enjoying-pokemon-go-adventures-with-friends/"><u>Ultimate Guide: Enjoying 'Pokémon Go' Adventures with Friends</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unveiling-the-immersive-era-vrs-progress-and-upcoming-struggles-for-2024/"><u>Unveiling the Immersive Era VR's Progress & Upcoming Struggles for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-your-hp-officejet-pro-cu8620-printer-drivers-for-optimal-performance-on-windows-systems/"><u>Update Your HP OfficeJet Pro Cu8620 Printer Drivers for Optimal Performance on Windows Systems</u></a></li>
 </ul></div>
 

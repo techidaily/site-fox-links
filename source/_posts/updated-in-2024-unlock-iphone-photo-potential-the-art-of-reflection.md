@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Unlock iPhone Photo Potential  The Art of Reflection\""
-date: 2024-08-28T10:02:44.625Z
-updated: 2024-08-29T10:02:44.625Z
+date: 2024-12-05T05:13:46.961Z
+updated: 2024-12-07T08:34:09.728Z
 tags: 
   - screen-recording
   - ai video
@@ -48,9 +48,17 @@ thumbnail: https://thmb.techidaily.com/5a94426a32501655e657a3254c012c85eb00e68b9
 
 ![reflection-photography-for-iPhone](https://images.wondershare.com/filmora/article-images/crystal-ball.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Water in a wine glass (turns everything upside down too!)
 
 ![water-reflection](https://images.wondershare.com/filmora/article-images/water-reflection.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\.  Pay Attention to Composition
 
@@ -90,6 +98,10 @@ thumbnail: https://thmb.techidaily.com/5a94426a32501655e657a3254c012c85eb00e68b9
 
 ![reality-and-reflection](https://images.wondershare.com/filmora/article-images/reality-and-reflection.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\.  Texture
 
  Using a still reflective surface is good, but reflective photos are more effective if you have been able to capture texture. Where the reflective surface distorts the real life subject, you're able to artistically capture an entirely unique affect each time. This is why waves are a great way to create a truly different image with each shot.
@@ -97,6 +109,10 @@ thumbnail: https://thmb.techidaily.com/5a94426a32501655e657a3254c012c85eb00e68b9
  It is also just good photography practice to have your subjects bend and distort the light. The contrasts make for an aesthetically beautiful image, and makes post production optimization even easier.
 
 ![make-use-of-texture](https://images.wondershare.com/filmora/article-images/make-use-of-texture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Post Production Reflective Effects
 
@@ -141,6 +157,10 @@ thumbnail: https://thmb.techidaily.com/5a94426a32501655e657a3254c012c85eb00e68b9
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -164,8 +184,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-ultimate-audio-and-video-showcase-excellent-webcams-for-podcasts/"><u>[New] In 2024, Ultimate Audio & Video Showcase Excellent Webcams for Podcasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-understanding-and-leveraging-influencers-on-snapchat/"><u>[New] In 2024, Understanding and Leveraging Influencers on Snapchat</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unlocking-student-potential-with-instructional-videos-for-2024/"><u>[New] Unlocking Student Potential with Instructional Videos for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-harmonyhub-combining-ios-and-macos-photo-videos/"><u>[Updated] 2024 Approved HarmonyHub Combining iOS & macOS Photo-Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unlocking-full-potential-with-powerdirector-a-comprehensive-review/"><u>[Updated] In 2024, Unlocking Full Potential with PowerDirector - A Comprehensive Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-step-by-step-inserting-dates-in-digital-pictures-for-2024/"><u>[Updated] Step-by-Step Inserting Dates in Digital Pictures for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/bypass-costs-and-watch-governments-election-coverage-online-for-2024/"><u>Bypass Costs and Watch Government's Election Coverage Online for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/fast-forward-stalled-printer-jobs/"><u>Fast-Forward Stalled Printer Jobs</u></a></li>
+<li><a href="https://win-dash.techidaily.com/fixing-csr8510-a10-driver-problems-on-windows-systems-now-resolved/"><u>Fixing CSR8510 A10 Driver Problems on Windows Systems - Now Resolved</u></a></li>
+<li><a href="https://win-news.techidaily.com/guide-pour-recuperation-de-donnees-a-partir-dun-hdd-inutilise-quelles-sont-tes-options/"><u>Guide Pour Récupération De Données À Partir D’un HDD Inutilisé : Quelles Sont Tes Options ?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-samsung-galaxy-a05-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Samsung Galaxy A05 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/navigating-free-text-animation-for-artists/"><u>Navigating Free Text Animation for Artists</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/overcoming-common-challenges-tips-to-correctly-address-steamvr-error-the-unique-approach-of-the-green-belt-in-lean-thinking/"><u>Overcoming Common Challenges: Tips to Correctly Address SteamVR Error The Unique Approach of the 'Green Belt' In Lean Thinking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/peakpixel-optimizer-windows-mac-and-online-for-2024/"><u>PeakPixel Optimizer Windows, Mac & Online for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-list-of-free-avi-video-rotators-for-windows-mac-android-and-iphone/"><u>The Ultimate List of Free AVI Video Rotators for Windows, MAC, Android, and iPhone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-video-shooting-equipment-choosing-guide/"><u>YouTube Video Shooting Equipment Choosing Guide</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/3g23gp/"><u>이상화 시스템을 사용한 웹 내 부드러운 3G2/3GP 파일 전환 - 무료</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

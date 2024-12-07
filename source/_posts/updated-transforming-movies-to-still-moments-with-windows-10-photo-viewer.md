@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Transforming Movies to Still Moments with Windows 10 Photo Viewer"
-date: 2024-11-26T16:52:47.440Z
-updated: 2024-11-27T19:27:08.383Z
+date: 2024-12-04T00:02:36.419Z
+updated: 2024-12-07T03:07:18.369Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,10 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -61,15 +65,7 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
 
@@ -82,7 +78,7 @@ We are explaining the solutions here –
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
@@ -90,7 +86,7 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
@@ -105,11 +101,15 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -143,24 +143,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-how-much-does-youtube-pay-for-1-million-views/"><u>[New] 2024 Approved How Much Does YouTube Pay for 1 Million Views</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-achieving-flawless-hues-in-gopro-videos/"><u>[New] Achieving Flawless Hues in GoPro Videos</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-audiovisual-speed-adjustment-arsenal-list-for-2024/"><u>[New] Audiovisual Speed Adjustment Arsenal List for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-explore-efficient-two-screen-viewing-on-netflix-for-2024/"><u>[New] Explore Efficient Two-Screen Viewing on Netflix for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-guide-to-kids-drones/"><u>[New] In 2024, The Ultimate Guide to Kids' Drones</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-unveiling-quantum-hdr-essentials/"><u>[New] In 2024, Unveiling Quantum HDR Essentials</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-capture-to-screen-the-complete-process-of-uploading-360-vids-on-youtube/"><u>[Updated] 2024 Approved From Capture to Screen The Complete Process of Uploading 360 Vids on YouTube</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-key-tactics-for-implementing-films-in-school-curriculum/"><u>[Updated] Key Tactics for Implementing Films in School Curriculum</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unlocking-potential-with-magix-paint-pro-for-2024/"><u>[Updated] Unlocking Potential with MAGIX Paint Pro for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/elevate-mobile-photographic-quality-accessory-selection-guide-for-2024/"><u>Elevate Mobile Photographic Quality Accessory Selection Guide for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/embracing-illusion-what-is-vrs-truth-for-2024/"><u>Embracing Illusion What Is VR's Truth for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/end-bluetooth-disturbance-in-win10/"><u>End Bluetooth Disturbance in Win10</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-above-and-beyond-perfecting-your-drone-video-craft/"><u>In 2024, Above and Beyond Perfecting Your Drone Video Craft</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-discovering-top-8-android-videomosaic-creators-for-both-free-and-paid-users/"><u>In 2024, Discovering Top 8 Android Videomosaic Creators for Both Free & Paid Users</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/standard-version-of-macs-top-rated-stellar-erase-set-your-own-deletion-timetable/"><u>Standard Version of Mac's Top-Rated Stellar Erase: Set Your Own Deletion Timetable!</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/k-potential-top-free-video-opener-hacks-for-2024/"><u>Unlock Potential Top Free Video Opener Hacks for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unlocking-iphones-ultimate-live-photography-potential/"><u>Unlocking iPhone's Ultimate Live Photography Potential</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unpacking-googles-announcement-the-top-7-new-and-exciting-features-of-bard-revealed-at-io-2023/"><u>Unpacking Google's Announcement: The Top 7 New and Exciting Features of Bard Revealed at I/O 2023</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-av1-for-the-uncharted-beginner/"><u>[New] 2024 Approved AV1 for the Uncharted Beginner</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-quick-kinemaster-techniques-for-memelore/"><u>[New] 2024 Approved Quick KineMaster Techniques for Memelore</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-firecapture-plugins-for-firefox-for-2024/"><u>[New] FireCapture Plugins for Firefox for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-affordable-storage-solutions-top-30-free-services-with-massive-1tbplus-space-capacity/"><u>[New] In 2024, Affordable Storage Solutions Top 30 Free Services with Massive (1TB+) Space Capacity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-mastering-instagram-stardom-in-just-nine-easy-tips/"><u>[Updated] 2024 Approved Mastering Instagram Stardom in Just Nine Easy Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-focus-on-details-masterful-close-up-techniques-for-gaming/"><u>[Updated] Focus on Details Masterful Close-Up Techniques for Gaming</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/essential-ai-tools-eight-revolutionary-phone-apps-for-iphone-and-android-enthusiasts/"><u>Essential AI Tools: Eight Revolutionary Phone Apps for iPhone and Android Enthusiasts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/essential-tips-for-maximizing-harvests-in-valheims-agriculture/"><u>Essential Tips for Maximizing Harvests in Valheim's Agriculture</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-huawei-nova-y91-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Huawei Nova Y91 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-vivo-y27s-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Vivo Y27s to Mac? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-saving-on-cameras-the-best-value-of-cheap-action-choices/"><u>In 2024, Saving on Cameras The Best Value of Cheap ACTION Choices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-step-by-step-converting-webp-to-jpeg/"><u>In 2024, Step-by-Step Converting WebP to JPEG</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210850004-9781446357767-psychical-research-and-survival/"><u>Psychical Research and Survival | Free Book</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-fix-how-to-successfully-update-your-usb-c-driver-for-windows-10/"><u>Quick Fix: How To Successfully Update Your USB-C Driver for Windows 10</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-list-best-messaging-app-games-for-iphone-users/"><u>The Ultimate List: Best Messaging App Games for iPhone Users</u></a></li>
 </ul></div>
 

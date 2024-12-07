@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  What Are LUTs and How They Change Your Photo\""
-date: 2024-08-28T10:02:43.410Z
-updated: 2024-08-29T10:02:43.410Z
+date: 2024-12-01T07:17:32.838Z
+updated: 2024-12-07T05:32:31.556Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,10 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to use LUTs using Photoshop CC?
 
 LUTs come pre-installed with programs, but you may also purchase them online and add them to your software. You may even buy a look from your favorite film or television show. In Photoshop, LUTs are simple to apply. You can begin in Photoshop with the original photo, which is an image that was captured locally, unprocessed, and straight out of the camera.
@@ -57,6 +61,10 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 1. Select the Adjustment Layer icon from the drop-down menu.
 
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Choose Adjustment Layer
 
@@ -74,9 +82,6 @@ load 3d lut
 
 LUTs come pre-installed in Photoshop, and you can use them as adjustment layers. As mentioned earlier, they'll alter the image's colors, and some of them will also alter the contrast. But what if you want to add LUTs? To add LUTs to Photoshop, you have two options. The first is really simple; all you have to do is discover the LUT and apply it to that specific project. The alternative is a little more difficult, but it enables you to access your LUTs at all times.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Here's the first method
 
 1. It would be best to unzip the LUT before using it in your project. This is relatively simple, and you may either use specialized software or the built-in unzipping utility in Windows.
@@ -85,13 +90,9 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Here's the second one
 
 1. Open the LUT folder, which changes the version to your version.
@@ -109,8 +110,9 @@ Grow Together
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Closing Thoughts:
 
 LUTs are extremely useful since they allow photographers to save time by using the same LUTs or a set of LUTs for several photographs. Instead of making individual modifications to your photographs, you may color grade them all with the same LUTs. This gives a series a more unified vibe. You can even put them up as Actions in Photoshop.
@@ -122,8 +124,9 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Closing Thoughts:
 
 LUTs are extremely useful since they allow photographers to save time by using the same LUTs or a set of LUTs for several photographs. Instead of making individual modifications to your photographs, you may color grade them all with the same LUTs. This gives a series a more unified vibe. You can even put them up as Actions in Photoshop.
@@ -152,4 +155,20 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-comparing-cloud-space-charges-methods-and-results/"><u>[New] Comparing Cloud Space Charges Methods and Results</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-chroma-blades-the-new-era-of-high-definition-capture/"><u>[New] In 2024, Chroma Blades The New Era of High-Definition Capture</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-innovative-iphone-close-up-techniques-for-photo-excellence/"><u>[New] Innovative iPhone Close-Up Techniques for Photo Excellence</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-passion-to-prominence-the-creators-quest/"><u>[Updated] From Passion to Prominence The Creator's Quest</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-deciding-the-best-live-streamer-vmix-against-wirecast/"><u>[Updated] In 2024, Deciding the Best Live Streamer VMix Against Wirecast</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-transition-tactics-in-audio-leveraging-adobes-fading-effects/"><u>[Updated] In 2024, Transition Tactics in Audio Leveraging Adobe’s Fading Effects</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-roguelike-vs-roguelite-debates-and-history-explained-with-game-examples-for-2024/"><u>[Updated] Roguelike Vs. Roguelite Debates and History Explained With Game Examples for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-dji-mavic-air-2s-unparalleled-drone-experience/"><u>Comprehensive Analysis of DJI Mavic Air 2S: Unparalleled Drone Experience</u></a></li>
+<li><a href="https://fox-links.techidaily.com/decoding-slug-lines-for-effective-writing/"><u>Decoding Slug Lines for Effective Writing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/imprint-clipart-with-inner-circle-light-defocus-method-ps/"><u>Imprint Clipart with Inner Circle Light Defocus Method PS</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-oppo-reno-11f-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Oppo Reno 11F 5G Lock Screen Password?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/o-video-stream-mp3-to-youtube-in-3-easy-steps/"><u>MP3 to Video Stream MP3 to YouTube in 3 Easy Steps</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-steps-to-enhance-laptop-efficiency-on-two-displays/"><u>Quick Steps to Enhance Laptop Efficiency on Two Displays</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Capturing Heights  A Deep Dive Into GoPro Karma for 2024\""
-date: 2024-11-25T17:56:09.598Z
-updated: 2024-11-27T19:57:45.793Z
+date: 2024-12-06T02:05:48.704Z
+updated: 2024-12-06T23:44:44.342Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ thumbnail: https://thmb.techidaily.com/8e45fcad350df735f2b4416d42d7d71c8933e8227
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and cons of GoPro Karma
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/8e45fcad350df735f2b4416d42d7d71c8933e8227
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -101,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/8e45fcad350df735f2b4416d42d7d71c8933e8227
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -113,7 +113,7 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -141,17 +141,15 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-reveal-hidden-gems-top-12-steps-to-make-your-fb-videos-show-up/"><u>[New] 2024 Approved Reveal Hidden Gems Top 12 Steps to Make Your FB Videos Show Up</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-designing-dynamic-podcast-preambles/"><u>[New] In 2024, Designing Dynamic Podcast Preambles</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-perfecting-the-science-of-converting-speech-to-text-with-google/"><u>[New] Perfecting the Science of Converting Speech to Text with Google</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-budgeted-skyvault-storing-mountains-of-data/"><u>[Updated] 2024 Approved Budgeted SkyVault Storing Mountains of Data</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-reel-radiance-the-ultimate-5-tools-to-brighten-media-for-2024/"><u>[Updated] Reel Radiance The Ultimate 5 Tools to Brighten Media for 2024</u></a></li>
-<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-enhance-your-sites-analytics-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Site's Analytics and Personalization</u></a></li>
-<li><a href="https://fox-links.techidaily.com/embrace-sound-narratives-on-ipadiphone-downloading-apple-podcasts-for-2024/"><u>Embrace Sound Narratives on iPad/iPhone Downloading Apple Podcasts for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-watch-or-iphone-7-plus-by-drfone-ios/"><u>In 2024, How To Bypass Activation Lock On Apple Watch Or iPhone 7 Plus?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-scripting-your-storys-visual-heartbeat-at-home/"><u>In 2024, Scripting Your Story's Visual Heartbeat at Home</u></a></li>
-<li><a href="https://fox-links.techidaily.com/motion-graphics-101-key-principles-and-methods/"><u>Motion Graphics 101 Key Principles & Methods</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/perfecting-image-previews-top-4-win-friendly-viewers/"><u>Perfecting Image Previews: Top 4 Win-Friendly Viewers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-low-cost-screen-recorder-guide-for-old-computers/"><u>[New] 2024 Approved Low-Cost Screen Recorder Guide for Old Computers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-discover-the-full-spectrum-of-yis-action-photography-for-2024/"><u>[New] Discover the Full Spectrum of Yi's Action Photography for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-elite-gear-high-performance-unmatched-style-for-2024/"><u>[Updated] Elite Gear High Performance, Unmatched Style for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-maximizing-capabilities-upgrading-to-macos-sierra/"><u>[Updated] Maximizing Capabilities Upgrading to macOS Sierra</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-update-complete-shorts-visibility-restored-for-2024/"><u>[Updated] Update Complete Shorts Visibility Restored for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-13-pro-by-drfone-ios/"><u>How to Unlock iPhone 13 Pro?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-mp4twitconversion-quick-conversion/"><u>In 2024, MP4TwitConversion Quick Conversion</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mememorph-machine-for-2024/"><u>MemeMorph Machine for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/realme-12plus-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme 12+ 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unveiling-innovative-cloud-storage-options-in-2s024/"><u>Unveiling Innovative Cloud Storage Options in 2S024</u></a></li>
 </ul></div>
 

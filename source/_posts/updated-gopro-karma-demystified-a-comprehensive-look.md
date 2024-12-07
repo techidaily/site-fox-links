@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] GoPro Karma Demystified  A Comprehensive Look\""
-date: 2024-11-20T23:57:05.208Z
-updated: 2024-11-27T21:14:01.871Z
+date: 2024-12-03T21:56:04.499Z
+updated: 2024-12-06T19:09:57.608Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and cons of GoPro Karma
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -101,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -113,7 +113,7 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -141,15 +141,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-significant-top-5-flexible-video-recorders-list-for-2024/"><u>[New] Significant Top 5 Flexible Video Recorders List for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-unlock-creative-potential-in-photography-top-15-tricks-for-using-pixlr/"><u>[New] Unlock Creative Potential in Photography Top 15 Tricks for Using Pixlr</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-exclusive-list-affordable-efficient-high-quality-passport-photos-creators/"><u>[Updated] Exclusive List Affordable, Efficient, High-Quality Passport Photos Creators</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-premier-gadgets-in-auto-traffic-camera-tech/"><u>[Updated] In 2024, Premier Gadgets in Auto Traffic Camera Tech</u></a></li>
-<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-realme-11-5g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-a14-4g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy A14 4G Location by Number | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-pc-image-management-for-iphone-integration/"><u>In 2024, PC Image Management for iPhone Integration</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-unleash-the-power-of-visuals-with-top-free-slideshow-designs/"><u>In 2024, Unleash the Power of Visuals with Top Free Slideshow Designs</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-samsung-galaxy-f15-5g-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Samsung Galaxy F15 5G? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-beyond-gopro-studio-best-video-editing-software-for-gopro-footage/"><u>Updated In 2024, Beyond GoPro Studio Best Video Editing Software for GoPro Footage</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-original-tape-review-study-guide/"><u>[New] In 2024, Original Tape Review Study Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-incredible-inexpensive-stopwatch-solutions/"><u>[New] Incredible Inexpensive Stopwatch Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-color-correction-techniques/"><u>[New] Mastering Color Correction Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-no-frills-affordable-camera-selections/"><u>[New] No-Frills, Affordable Camera Selections</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-hourly-video-footage-gb-needed-per-day/"><u>[Updated] 2024 Approved Hourly Video Footage GB Needed Per Day</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-effortless-repetition-replay-your-youtube-videos-via-tv-connection-for-2024/"><u>[Updated] Effortless Repetition Replay Your YouTube Videos via TV Connection for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-itel-p55t-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Itel P55T PC | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-get-your-brother-mfc-binder-9130cw-drivers-installed-for-printing-and-scanning/"><u>How to Get Your Brother MFC-BINDER 9130CW Drivers Installed for Printing and Scanning</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-a-found-apple-iphone-15-drfone-by-drfone-ios/"><u>In 2024, How To Unlock A Found Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-ultimate-action-recorder-with-facing-mode/"><u>In 2024, Ultimate Action Recorder with Facing Mode</u></a></li>
+<li><a href="https://games-able.techidaily.com/leaner-gaming-efficient-model-structuring/"><u>Leaner Gaming: Efficient Model Structuring</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-5-excellent-free-options-to-rotate-mov-files-for-2024/"><u>New 5 Excellent Free Options to Rotate MOV Files for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-the-missing-osetupdll-error-on-your-pc-solutions-unveiled/"><u>Troubleshooting the Missing osetup.dll Error on Your PC - Solutions Unveiled!</u></a></li>
 </ul></div>
 

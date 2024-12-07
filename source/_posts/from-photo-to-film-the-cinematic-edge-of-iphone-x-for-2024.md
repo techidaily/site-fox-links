@@ -1,7 +1,7 @@
 ---
 title: "\"From Photo to Film  The Cinematic Edge of iPhone X for 2024\""
-date: 2024-11-21T21:30:48.992Z
-updated: 2024-11-28T00:30:40.642Z
+date: 2024-12-06T07:49:44.467Z
+updated: 2024-12-07T04:06:48.564Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
@@ -51,6 +47,14 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
 
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
 
@@ -71,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -80,14 +84,10 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -127,24 +127,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-azure-speech-to-text-explained-simply/"><u>[New] 2024 Approved Azure Speech to Text Explained Simply</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-zoom-in-zoom-out-managing-close-up-footage-in-videoleap/"><u>[New] 2024 Approved Zoom In, Zoom Out Managing Close-Up Footage in Videoleap</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-complete-breakdown-hero4-black-functionality/"><u>[New] Complete Breakdown Hero4 Black Functionality</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-enhance-audio-visual-experience-windows-media-player-subtitles/"><u>[New] In 2024, Enhance Audio-Visual Experience Windows Media Player Subtitles</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-mastering-online-streams-your-easy-to-follow-internet-radio-recording-tutorial/"><u>[New] In 2024, Mastering Online Streams Your Easy-to-Follow Internet Radio Recording Tutorial</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-perfect-harmony-music-in-instagram-storytelling-for-2024/"><u>[New] Perfect Harmony Music in Instagram Storytelling for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-ultimate-ranked-reddit-discussions-top-10-edition/"><u>[Updated] The Ultimate Ranked Reddit Discussions – Top 10 Edition</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-google-pixel-8-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Google Pixel 8 Pro to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/ace-your-connectivity-with-our-picks-for-best-signal-amplifiers-of-2amide-2024/"><u>Ace Your Connectivity with Our Picks for Best Signal Amplifiers of 2Amide 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-gionee-f3-pro-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Gionee F3 Pro</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-xiaomi-redmi-note-12-pro-4g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Xiaomi Redmi Note 12 Pro 4G FRP In 3 Different Ways</u></a></li>
-<li><a href="https://fox-links.techidaily.com/how-to-use-gopro-time-lapse-for-2024/"><u>How to Use GoPro Time Lapse for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-complete-unpacking-of-ricohs-theta-vr-solution/"><u>In 2024, Complete Unpacking of Ricoh's Theta VR Solution</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-enhancing-videos-pc-and-mobile-filter-integration/"><u>In 2024, Enhancing Videos PC & Mobile Filter Integration</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-exploring-sonic-wonders-on-iphone/"><u>In 2024, Exploring Sonic Wonders on iPhone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-vivo-y200e-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Vivo Y200e 5G to iPod | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-reclaiming-acoustics-lost-in-social-media-videos/"><u>In 2024, Reclaiming Acoustics Lost in Social Media Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-unveiling-the-best-ps5-and-xbox-gaming-monitors/"><u>In 2024, Unveiling the Best PS5 & Xbox Gaming Monitors</u></a></li>
-<li><a href="https://fox-links.techidaily.com/lifelike-broadcasts-which-aspect-holds-the-high-ground-in-2024/"><u>Lifelike Broadcasts Which Aspect Holds the High Ground, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-best-8-3d-gold-text-effect-websites/"><u>[New] 2024 Approved Best 8 3D Gold Text Effect Websites</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-effective-approaches-to-downloading-hectic-tiktok-archives/"><u>[New] 2024 Approved Effective Approaches to Downloading Hectic TikTok Archives</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-chortle-calls-greatest-funny-ringtone-hubs/"><u>[New] Chortle Calls Greatest Funny Ringtone Hubs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-craft-your-photos-in-minutes-learning-lunapic-for-2024/"><u>[New] Craft Your Photos in Minutes Learning LunaPic for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-inquiry-exploring-shared-videos-and-images-in-direct-conversations/"><u>[New] In 2024, Inquiry Exploring Shared Videos & Images in Direct Conversations</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-master-multitask-media-consumption-employing-picture-in-picture-functionality/"><u>[New] In 2024, Master Multitask Media Consumption Employing Picture-in-Picture Functionality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-incremental-sound-softening-for-professional-productions/"><u>[New] Incremental Sound Softening for Professional Productions</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-orbital-design-kit/"><u>[New] Orbital Design Kit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-srt-to-subcap-conversion-techniques/"><u>[Updated] 2024 Approved SRT to SUBCAP Conversion Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-audiences-take-gopro-hero5-footage/"><u>[Updated] In 2024, Audience's Take GoPro Hero5 Footage</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-best-7-dslr-vlogging-cameras/"><u>[Updated] In 2024, Best 7 DSLR Vlogging Cameras</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-essential-gear-for-effective-remote-podcast-recording/"><u>[Updated] In 2024, Essential Gear for Effective Remote Podcast Recording</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-computer-connection-5-strategies-to-move-files/"><u>2024 Approved Computer Connection 5 Strategies to Move Files</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-exclusive-access-8-top-fb-link-extractors/"><u>2024 Approved Exclusive Access 8 Top FB Link Extractors</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/choosing-between-podcast-and-youtube-for-content-consumption/"><u>Choosing Between Podcast and YouTube for Content Consumption</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ideal-accessories-for-optimal-gopro-photography-for-2024/"><u>Ideal Accessories for Optimal GoPro Photography for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-essential-path-to-prodigious-smm-results-delivered-in-10-steps-for-2024/"><u>The Essential Path to Prodigious SMM Results, Delivered in 10 Steps for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unveiling-hdrs-impact-on-improved-video-workflow-for-2024/"><u>Unveiling HDR's Impact on Improved Video Workflow for 2024</u></a></li>
 </ul></div>
 

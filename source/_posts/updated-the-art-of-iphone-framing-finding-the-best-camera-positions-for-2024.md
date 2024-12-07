@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Art of iPhone Framing  Finding the Best Camera Positions for 2024\""
-date: 2024-08-28T10:03:07.504Z
-updated: 2024-08-29T10:03:07.504Z
+date: 2024-11-29T21:34:07.919Z
+updated: 2024-12-07T04:52:28.964Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 
 ![close-up-angle.](https://images.wondershare.com/filmora/article-images/close-up-angle.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Digital Care Solutions
 
  A close up is the type of shot that depicts only a small fraction of a scene or a detail. These shots are frequently used for portraits that show only a portion of a human face or some interesting detail. Furthermore, product photography relies heavily on close-ups because it often depicts fruit, and all sorts of tiny objects, that would be too small to photograph in a wide-angle shot.
@@ -47,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 #### 2\.  Low-Angle Shots
 
 ![low-angle-shot-photography](https://images.wondershare.com/filmora/article-images/low-angle-shot-photography.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: google
 
@@ -74,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 
 ![bird-eye-view-shots](https://images.wondershare.com/filmora/article-images/bird-eye-view-shots.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Google
 
  Looking down on a beautiful view impresses everyone, but putting yourself in a position to watch the world from a top of a mountain or even a building requires a certain level of preparation. However, a bird's eye view angle can be captured on any location, and you just need to place yourself above the subject of your photo. This type of shot can be used for portraits, areal shots, and even breathtaking landscapes, but all objects depicted in bird's eye view photos will appear smaller than they actually are.
@@ -94,6 +106,10 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 
 ![shoot-trought-another-subject](https://images.wondershare.com/filmora/article-images/shoot-trought-another-subject.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Digital Photo Secrets
 
  You don't have to know anything about camera lens filters in order to use them. Your sunglasses, glasses of water or any other transparent or reflecting surface can be used as a filter through which you take pictures.
@@ -101,6 +117,10 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
  If you take a photo through a glass of water you'll be able to create a distorted image of the view behind the glass. Taking photos through transparent objects can be a lot of fun, but it is often more complicated than it seems. Controlling aperture, exposure or focus manually from your iPhone may help you get better results because you'll be able to decide where the focal point of the photo will be or fine-tune the amount of light your iPhone camera can pick up.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -125,8 +145,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-discover-the-optimal-9-free-mp3-seekers-android/"><u>[New] 2024 Approved Discover the Optimal 9 Free MP3 Seekers (Android)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-full-scoop-unveiling-googles-podcast-application/"><u>[New] In 2024, Full Scoop Unveiling Google's Podcast Application</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-securely-install-vrecorder-version-101/"><u>[New] Securely Install VRecorder Version 101</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-enhance-performance-advanced-techniques-for-windows-10-for-2024/"><u>[Updated] Enhance Performance Advanced Techniques for Windows 10 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-enhancing-videos-with-professional-voiceovers/"><u>[Updated] Enhancing Videos with Professional Voiceovers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-financial-frontier-youtubes-pay-structure-at-the-1m-mark-for-2024/"><u>[Updated] The Financial Frontier Youtube's Pay Structure at the 1M Mark for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-strategies-for-effective-video-markup-on-youtube/"><u>2024 Approved Strategies for Effective Video Markup on YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-definitive-guide-to-instagram-to-mp4-transformation-2-ways/"><u>2024 Approved The Definitive Guide to Instagram-to-MP4 Transformation 2 Ways</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/exclusive-symphony-broadcasts/"><u>Exclusive Symphony Broadcasts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-exclusive-guide-to-premium-win-11-webcam-systems/"><u>In 2024, Exclusive Guide to Premium Win 11 Webcam Systems</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-8-properly-drfone-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone 8 Properly | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-unleash-creative-potential-a-detailed-breakdown-of-photoshops-background-eraser-feature/"><u>In 2024, Unleash Creative Potential A Detailed Breakdown of Photoshop's Background Eraser Feature</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/infinite-storage-horizon-your-guide-to-free-and-premium-cloud-services-for-2024/"><u>Infinite Storage Horizon Your Guide to Free & Premium Cloud Services for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unraveling-sierras-icloud-full-access-guide/"><u>Unraveling Sierra's iCloud Full Access Guide</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

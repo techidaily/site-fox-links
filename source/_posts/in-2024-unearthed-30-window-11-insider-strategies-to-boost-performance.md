@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Unearthed  30 Window 11 Insider Strategies to Boost Performance\""
-date: 2024-08-28T10:07:02.655Z
-updated: 2024-08-29T10:07:02.655Z
+date: 2024-12-03T06:28:04.342Z
+updated: 2024-12-07T03:04:38.833Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ With the increased number of notifications in Windows 11, you might get annoyed.
 
 ![turn off unnecessary notifications](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Minimize Applications
 
 Minimizing Applications allows you to minimize the extra tabs as a whole rather than doing it individually. You have to hold the tab that you are using by left-clicking and shaking it. It will minimize all extra tabs. The same process can be done to restore the minimized windows.
@@ -42,12 +46,6 @@ This feature can be activated through Windows Settings and then by clicking on �
 
 ![minimize applications by shaking](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ### 3\. Shortcut Keys
 
 Windows 11 has many shortcut keys that will save your time on a busy day. These shortcut keys cover areas such as Widgets with (Win + W). It Opens the Team Chat app (Win + C), notification center (Win + N), Quick settings with (Win + A), and a lot more. Whereas the shortcuts for copying, pasting, and screenshots are the same as Windows 10.
@@ -55,13 +53,9 @@ Windows 11 has many shortcut keys that will save your time on a busy day. These 
 ![windows 11 shortcut keys](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Taskbar and Start Menu Placements
 
 The biggest Windows 11 tip and trick is the placement of Taskbar and Start Menu. Windows 11 has a taskbar and start menu in the center. The relocation of the taskbar and the start menu can be done easily. By changing the placement, you can make Windows 11 look like Windows 10 if you prefer it that way. For that, open the ‘Taskbar Behavior’ and click on ‘Taskbar Alignment’ and relocate it.
@@ -69,16 +63,18 @@ The biggest Windows 11 tip and trick is the placement of Taskbar and Start Menu.
 ![align taskbar to the left](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
+
 ### 5\. Remove Unwanted Ads on Apps
 
 The updated technology allows you to have better control over the privacy of your data and device from personalized ads. For this, go to the ‘Settings’ panel and then move over to the 'Privacy and Security’ section. From the right panel, hit the ‘General’ settings. Now you can select whether you want the apps or websites to show ads based on your interests.
 
 ![disable unwanted ads](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Voice Typing Feature
 
@@ -87,8 +83,13 @@ The coolest thing about Windows 11 that most people don’t know is the ‘Voice
 ![windows 11 voice typing feature](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. Widgets and Chat Customization
 
 Using Widgets and Chats helps the user have a quick chat with people that they love the most. Widget and Chats are the two new features introduced in Windows 11.
@@ -98,8 +99,9 @@ However, some people do not like using this kind of stuff. They don’t even pre
 ![disable widgets and other items](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 8\. Block Trackers and Pop-up
 
 Another brilliant Windows 11 tip and trick is that it lets you block the pop-ups and also the tracking. For that, open Microsoft Edge and head over to the 3 dots on the top right corner to open 'Settings.' From the left panel in Settings, look for 'Privacy, Search and Services.' By default, it is set to 'Balanced.' You are suggested to select the 'Strict' option so that all the harmful trackers are blocked.
@@ -107,8 +109,9 @@ Another brilliant Windows 11 tip and trick is that it lets you block the pop-ups
 ![secure your browsing on windows 11](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 9\. Change your Geolocation
 
 Every app we install has our location, but with Windows 11, we can change our default location. For this fun tip, press 'Win + I' to open the 'Settings.' Then head over to the ‘Privacy & Security’ section. Now, scroll down and look for the 'Location' tab.
@@ -125,12 +128,6 @@ For that, press ‘Win + I’ and then select 'Personalization.' Now, choose 'St
 
 ![bring folders to windows 11 start](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### The Bottom Line
 
 This article is like a cherry on the cake for Windows lovers. The update of Windows 10 to Windows 11 is already the big news for them, but now, after going through the secret and hidden Windows 11 tips and tricks, the fans will be more than happy. The article has shared 10 secret tips that will amaze you.
@@ -153,10 +150,11 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +178,16 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-useful-tips-and-apps-for-taking-amazing-android-photography/"><u>[New] 2024 Approved Useful Tips and Apps for Taking Amazing Android Photography</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-best-metaverse-tech-the-ultimate-goggles-and-hmds-list/"><u>[New] Best Metaverse Tech The Ultimate Goggles and HMDs List</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-capture-clean-uninterrupted-media-snapshots-for-2024/"><u>[Updated] Capture Clean, Uninterrupted Media Snapshots for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-harmonize-music-with-ppt-design/"><u>2024 Approved Harmonize Music with PPT Design</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-7-nft-maker-tools-for-digital-art-tokenization/"><u>2024 Approved Top 7 NFT Maker Tools for Digital Art Tokenization</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-transfer-messages-from-apple-iphone-13-mini-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Transfer Messages from Apple iPhone 13 mini to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-call-for-action-facebook-and-google-must-tackle-online-scams-head-on/"><u>A Call for Action: Facebook & Google Must Tackle Online Scams Head-On</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/revamping-pc-experience-with-windows-11-no-more-losing-personal-data-during-update/"><u>Revamping PC Experience with Windows 11 - No More Losing Personal Data During Update!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/what-does-virtual-mean-in-a-world-of-reality-for-2024/"><u>What Does 'Virtual' Mean in a World of Reality for 2024</u></a></li>
+</ul></div>
 
