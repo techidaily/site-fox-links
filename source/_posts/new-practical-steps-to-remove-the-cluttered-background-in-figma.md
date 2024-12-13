@@ -1,7 +1,7 @@
 ---
 title: "[New] Practical Steps to Remove the Cluttered Background in Figma"
-date: 2024-08-28T09:59:25.402Z
-updated: 2024-08-29T09:59:25.402Z
+date: 2024-12-09T23:42:33.264Z
+updated: 2024-12-12T18:48:15.762Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ Figma is an easy-to-use, versatile and powerful design tool with many useful opt
 To make things easier, we've written a comprehensive step-by-step guide on **removing background in Figma** using the PixCut plugin. We will also provide you with a list of alternative plugins that you can use to erase the experience from an image in Figma.
 
 So, keep reading to find out about removing an image's background in Figma!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Best Option to Remove Image's Background in Figma
 
@@ -52,6 +56,10 @@ This function lets you use brushstrokes to remove watermarks from your target pi
 
 With its Image Englargement feature, you can expand the size of your picture up to 400% without losing the quality.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to use PixCut to remove the background in Figma
 
 Here's how you can get the PixCut plugin in Figma and use it to remove the background in just three simple steps:
@@ -60,9 +68,6 @@ Step1 First, open a browser, visit the [Figma website](https://www.figma.com), a
 
 ![importing image to figma to remove background](https://images.wondershare.com/filmora/article-images/2023/03/importing-image-to-figma-to-remove-background.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 Once the import process is complete, click **"Done"** in the pop-up window and open your image. Now, click the "**Main Menu"** icon and choose **"Plugins" > "Find More Plugins"** from the drop-down menu.
 
 Step2 Next, search for **"**[**PixCut Background Remover**](https://www.figma.com/community/plugin/990188175789012011)**"** using the search option and select it from the result. Click **"Run,"** choose the **"Select App key"** option from the drop-down menu, and you will be asked for your **"Appkey."**
@@ -79,6 +84,10 @@ The program will start running the plugin, and the background of your image will
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### (1) When Images Are With Transparent or Solid Colour Backgrounds
 
 Follow these tips to remove the background of images with transparent or solid color:
@@ -86,9 +95,6 @@ Follow these tips to remove the background of images with transparent or solid c
 * When saving your images from programs like Photoshop, make sure to save them with transparent background. This way, when you import it to Figma, the BG will be removed automatically.
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### (2) 3 Other Figma Plugins
 
 You can use the following **Figma plugins to remove the image background**:
@@ -112,24 +118,19 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've explored the step-by-step process of how to remove background in Figma using the PixCut plugin. We've also explained the reasons why you should use this tool.
@@ -151,8 +152,13 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
@@ -163,9 +169,6 @@ To use the Remove BG tool, visit its website, drop your image file, or click the
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've explored the step-by-step process of how to remove background in Figma using the PixCut plugin. We've also explained the reasons why you should use this tool.
@@ -196,4 +199,18 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-safarichrome-youtube-on-the-move-autoplay-options/"><u>[New] In 2024, Safari/Chrome YouTube On-the-Move AutoPlay Options</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-new-directors-toolkit-15-basic-cinematography-movements/"><u>[New] In 2024, The New Director’s Toolkit 15 Basic Cinematography Movements</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-secrets-to-boosting-your-income-via-youtube-shorts-monetization/"><u>[New] The Secrets to Boosting Your Income via YouTube Shorts Monetization</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-charming-calls-verify-if-vocal-alteration-apps-are-real-then-find-others/"><u>[Updated] 2024 Approved Charming Calls Verify if Vocal Alteration Apps Are Real, Then Find Others</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-exploring-magix-music-maker-2024s-features-and-benefits/"><u>[Updated] Exploring Magix Music Maker 2024'S Features & Benefits</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-revolutionizing-healthcare-marketing-via-social-networks/"><u>[Updated] In 2024, Revolutionizing Healthcare Marketing via Social Networks</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-the-ultimate-key-to-capturing-and-preserving-your-favorite-streamed-shows-for-2024/"><u>[Updated] The Ultimate Key to Capturing and Preserving Your Favorite Streamed Shows for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/aural-aesthetics-in-whatsapp-statues-for-2024/"><u>Aural Aesthetics in WhatsApp Statues for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-nokia-c12-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mitigating-insufficient-permissions-in-win-setup-procedures/"><u>Mitigating Insufficient Permissions in Win Setup Procedures</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resetting-lenovo-pcs-a-comprehensive-walkthrough-of-factory-default-procedures/"><u>Resetting Lenovo PCs – A Comprehensive Walkthrough of Factory Default Procedures</u></a></li>
+</ul></div>
 

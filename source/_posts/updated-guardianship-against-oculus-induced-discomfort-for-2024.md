@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Guardianship Against Oculus-Induced Discomfort for 2024\""
-date: 2024-08-28T10:00:05.776Z
-updated: 2024-08-29T10:00:05.776Z
+date: 2024-12-10T16:25:05.225Z
+updated: 2024-12-13T00:30:12.651Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/50cbd8d07e0873a4343caac1afaca4ba3bdd492ab
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 ways to prevent Oculus Rift motion sickness
 
@@ -50,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/50cbd8d07e0873a4343caac1afaca4ba3bdd492ab
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -57,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/50cbd8d07e0873a4343caac1afaca4ba3bdd492ab
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -81,22 +93,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-innovative-methods-for-creating-luts/"><u>[New] In 2024, Innovative Methods for Creating LUTs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-pro-audios-essential-guide-to-top-10-free-luts/"><u>[New] In 2024, Pro Audio's Essential Guide to Top 10 Free LUTs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-syma-x5c-review-best-drone-for-beginner/"><u>[New] In 2024, Syma X5C Review Best Drone for Beginner</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-eight-supercharged-tablet-models-to-enhance-every-photo-you-edit/"><u>[Updated] 2024 Approved Eight Supercharged Tablet Models to Enhance Every Photo You Edit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-chuckle-chronicles-best-free-top-rated-comic-designs/"><u>[Updated] Chuckle Chronicles Best Free, Top-Rated Comic Designs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-cutting-edge-title-generator-for-online-sessions/"><u>[Updated] In 2024, Cutting-Edge Title Generator for Online Sessions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-essential-techniques-the-lightweight-approach-to-pubg-vocal-changes/"><u>[Updated] In 2024, Essential Techniques The Lightweight Approach to PUBG Vocal Changes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-media-migration-tiktok-directly-to-fb/"><u>[Updated] In 2024, Mastering Media Migration TikTok Directly to FB</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-ultimate-free-screen-cast-tools-for-windows-ranked-1-5/"><u>[Updated] In 2024, Ultimate Free Screen Cast Tools for Windows, Ranked #1-5</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-essential-guide-to-creating-beautifully-stretched-time-videos-online/"><u>[Updated] The Essential Guide to Creating Beautifully Stretched Time Videos Online</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-undead-uprising-your-guide-to-engrossing-zombie-playtime/"><u>2024 Approved Undead Uprising Your Guide to Engrossing Zombie Playtime</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/discover-prime-sites-offering-free-got-soundtracks/"><u>Discover Prime Sites Offering Free GoT Soundtracks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/from-basics-to-brilliance-the-ultimate-guide-to-hdr-portraits/"><u>From Basics to Brilliance The Ultimate Guide to HDR Portraits</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-itel-s23plus-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Itel S23+ in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/how-to-fix-iphone-camera-not-focusing-problem/"><u>How to Fix iPhone Camera Not Focusing Problem</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-overcome-obstacles-with-these-top-10-motivation-flicks/"><u>In 2024, Overcome Obstacles with These Top 10 Motivation Flicks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-instagrams-visual-narratives-a-guide-for-prodigies-for-2024/"><u>Mastering Instagram's Visual Narratives A Guide for Prodigies for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-nubia-red-magic-9-proplus-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Nubia Red Magic 9 Pro+ Running Slow and Freezing | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->

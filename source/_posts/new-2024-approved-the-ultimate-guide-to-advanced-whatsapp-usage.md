@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Ultimate Guide to Advanced WhatsApp Usage\""
-date: 2024-08-23T03:18:45.623Z
-updated: 2024-08-24T03:18:45.623Z
+date: 2024-12-10T03:40:36.199Z
+updated: 2024-12-13T09:26:20.444Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,10 @@ Yes, you can bold your text. Just add a star (\*) symbol before and after your t
 
 ![Whatsapp Text Tricks Bold](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-bold.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2.Italic
 
 Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol ( \_text\_ ) at the starting and end of your sentence.
@@ -60,6 +64,10 @@ The monospace is a font stylization now available in WhatsApp that allows you to
 
 ![Whatsapp Text Tricks Monospace](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-monospace.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5.Disable Read Recipients
 
 WhatsApp introduced the Blue Tick feature to notify users when their messages are not only delivered but are seen by the recipients. But it has also been the cause of fallouts between loved ones and even trouble at work for failing to respond despite a Blue Tick. Now you can control the fury with WhatsApp Text Tricks of disabling the Read Recipient feature. Go Settings >> Account >> Privacy >> Read Recipients. By doing this, you won’t be able to see your contact’s blue ticks as no one will be able to see yours. Unlike custom notifications, the Read Recipient feature applies to your entire contact list and cannot be used for one specific contact. The sender would see black double ticks even if you read the message.
@@ -71,6 +79,10 @@ WhatsApp introduced the Blue Tick feature to notify users when their messages ar
 Many times, we have just one or a few people whose texts matter the most. So, avoid letting those important message threads from getting pushed down below by message floods. You can pin priority contacts by opening WhatsApp, then tapping and holding the chat thread of the contact without opening it. This will show a new toolbar on the green border at the top of the window. Use the first icon of a pin to freeze the chat thread in the top position.
 
 ![Whatsapp Pin Prioritized Contacts](https://images.wondershare.com/filmora/article-images/whatsapp-pin-prioritized-contacts.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Source: techmesto.com
 
@@ -85,6 +97,10 @@ If you wish to save the chats that you exchanged with someone special, you can e
 Though we have already mentioned the shortcuts for bold, italics, and other text formatting features, there is another way to format your texts if you forget the shortcuts - go for the Native Settings Strip. Once you are done typing, then tap and hold the text sections you want to format, this will open all the options in a list. You can scroll it to select your formatting command.
 
 ![Whatsapp Font Tricks Formatting](https://images.wondershare.com/filmora/article-images/whatsapp-font-tricks-formatting.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 9.You Can Apply All WhatsApp Font Tricks on One Word or Sentence
 
@@ -112,6 +128,10 @@ There are many ways how you can save mobile data consumed by WhatsApp. First, yo
 
 ![Whatsapp Save More Data](https://images.wondershare.com/filmora/article-images/whatsapp-save-more-data.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Source: androidauthority.com
 
 #### 3.Share Your Location Without Ado
@@ -123,6 +143,10 @@ If there is confusion with a location, where sharing addresses is not an option,
 As long as you have the chat history intact you can search specific words to trace an old chat within a thread. Open the message thread of the specific contact, tap on the 3 Dots button on the top left and click on “Search”. Then type a word from the particular chat, hit enter to trace it.
 
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5.Restore Your Chat History, and Deleted Chats
 
@@ -156,12 +180,12 @@ Manage how you are notified of messages from specific contacts and groups. Go to
 
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Source: beebom.com
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## Edit WhatsApp Videos with Ease
 
 Some of the best WhatsApp video editing tricks are coming up, wherein you can add doodles, text, and crop an image. Moreover, you also check in some external video editing tools that are quite handy to integrate with WhatsApp.
@@ -172,9 +196,6 @@ There are no download options for photos and videos for WhatsApp Statuses, yet y
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### 2.Record Video Calls from PC and Improve Its Quality
 
 For this WhatsApp Video Editing Trick, you would need to have a third-party screen recorder tool, like Wondershare Filmora on your PCs, and the iPhone 11 has one in-built software for screen recording. Either way, if you can record the WhatsApp Call with sound and all, you can further import the file into Wondershare Filmora and use high-tech editorial tools like Noise Reduction, 4K Resolution and snip any unnecessary portions in the clip.
@@ -184,8 +205,9 @@ For this WhatsApp Video Editing Trick, you would need to have a third-party scre
 You can create an instant GIF out of the video file within WhatsApp. Do this, let the video download, and then freshly share it from Attach >> Gallery >> Videos. Before sending, the video editing panel would open, there, you can see the GIF option at the top right. It will shorten your video to 6 seconds, adjust the cursor to the portion you wish to use.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Conclusion
 
 When it comes to WhatsApp Tricks and Trades, you always have to look forward to every update. Keep a tab on the updates and find a new WhatsApp Hidden Feature now and then.
@@ -194,9 +216,6 @@ When it comes to WhatsApp Tricks and Trades, you always have to look forward to 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -220,4 +239,17 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-proper-mac-photo-tips-identifying-and-comparing-the-top-5-techniques/"><u>[New] 2024 Approved Proper Mac Photo Tips Identifying and Comparing The Top 5 Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-eco-friendly-visual-templates-for-editors-for-2024/"><u>[New] Eco-Friendly Visual Templates for Editors for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-ultimate-vr-footage-contest-samsung-gear-and-lgs-compare/"><u>[New] The Ultimate VR Footage Contest Samsung Gear & LG's Compare</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-leading-tactics-sourcing-high-quality-photo-and-video-backdrops/"><u>[Updated] 2024 Approved Leading Tactics Sourcing High-Quality Photo & Video Backdrops</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-how-to-maximize-focus-with-enhanced-zoom-on-google-meet-for-2024/"><u>[Updated] How to Maximize Focus with Enhanced Zoom on Google Meet for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-harmonizing-youtube-content-with-audio-files/"><u>[Updated] In 2024, Harmonizing YouTube Content with Audio Files</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-latest-version-of-brother-hl-2240-drivers-for-pcs-running-windows/"><u>Download the Latest Version of Brother HL-2240 Drivers for PCs Running Windows</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-the-best-iphone-selfie-tools-ranked-8/"><u>In 2024, Exploring the Best iPhone Selfie Tools, Ranked #8</u></a></li>
+<li><a href="https://fox-links.techidaily.com/merging-youtube-melodies-in-cinematic-pieces/"><u>Merging YouTube Melodies in Cinematic Pieces</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-ultimate-list-of-top-11-dvd-writing-tools-for-mac-users-featuring-movavi/"><u>The Ultimate List of Top 11 DVD Writing Tools for Mac Users Featuring Movavi</u></a></li>
+</ul></div>
 

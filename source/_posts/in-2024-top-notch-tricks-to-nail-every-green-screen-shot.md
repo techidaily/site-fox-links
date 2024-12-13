@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Top-Notch Tricks to Nail Every Green Screen Shot\""
-date: 2024-08-28T10:00:30.975Z
-updated: 2024-08-29T10:00:30.975Z
+date: 2024-12-07T18:39:58.323Z
+updated: 2024-12-12T21:55:22.657Z
 tags: 
   - screen-recording
   - ai video
@@ -38,11 +38,19 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In the following section, we will share with you five tips when you shooting a video for compositing a green screen video, which covering the lighting tips, the camera tips, the clothing tips, the tips for using green screen sheet, and the tips for resolving motion blur in shooting videos.
 
@@ -60,6 +68,10 @@ Check out our picks of [the best lighting equipment for shooting videos](https:/
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
 Also choose carefully the camera as some cameras are better to shoot green screen video, especially if you are shooting something with a bit of movement. Then shoot your video as HD quality video (720p or higher) and save in a format your green screen software can import.
@@ -72,11 +84,19 @@ Looking for some best cameras for shooting green screen video? Check our picks o
 
 ![Clothing tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There are some mistakes that you can avoid to help your green screen video look more professional and more realistic. Perhaps one of the simplest mistakes that many people make with green screen video shooting is actually wearing green clothing. If you are wearing clothing or clothing that has buttons or accents that are a similar color green as your selected background green, the image that you project onto the green screen in post-editing will also get picked up by these accents on your clothing or by the clothing itself. This is great if you want to cut off part of an actor's body, but not so professional if you are trying to make an actor appear in a realistic scene.
 
 #### 4 Wrinkles problem in shooting a Green Screen Video
 
 ![Wrinkles problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Wrinkles in your screen can actually lead to heavy shadows and distorted image quality in your green screen video. If you regularly fold your green screen for storage it's very important that you take an iron out and flat negative green screen to prevent shadows and distortions with your background image. This is a step that many skip over but it's important to have a high-quality green screen without wrinkles and folds that cause shadows.
 
@@ -119,8 +139,21 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-immersive-play-samsung-vr-classics/"><u>[New] 2024 Approved Immersive Play Samsung VR Classics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-bellylaugh-blast-websites-with-the-best-comical-ringtones-for-2024/"><u>[New] BellyLaugh Blast Websites with the Best Comical Ringtones for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-create-vintage-videos-a-comprehensive-tutorial/"><u>[New] How to Create Vintage Videos A Comprehensive Tutorial</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-5-cheap-drones-under-100-for-2024/"><u>[New] Top 5 Cheap Drones Under $100 for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-total-review-demystifying-googles-podcast-app/"><u>[New] Total Review Demystifying Google's Podcast App</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-complete-manual-for-background-banishment-in-figma/"><u>[Updated] 2024 Approved The Complete Manual for Background Banishment in Figma</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-essential-steps-for-cropping-images-on-websites/"><u>[Updated] In 2024, Essential Steps for Cropping Images on Websites</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-ultimate-youtube-money-making-blueprints/"><u>[Updated] In 2024, The Ultimate YouTube Money-Making Blueprints</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-screenplay-scribblers-hub-for-2024/"><u>[Updated] Top Screenplay Scribblers Hub for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-unleash-creativity-complimentary-premiere-pro-toolset/"><u>2024 Approved Unleash Creativity - Complimentary Premiere Pro Toolset</u></a></li>
+<li><a href="https://fox-info.techidaily.com/enhance-filmmaking-on-iphone-top-camera-extensions-listed/"><u>Enhance Filmmaking on iPhone Top Camera Extensions Listed</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Vivo S18? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/speedy-shot-techniques-to-boost-home-filmmaking/"><u>Speedy Shot Techniques to Boost Home Filmmaking</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-saving-netflix-movies-for-offline-viewing-on-your-laptop/"><u>Step-by-Step Tutorial: Saving Netflix Movies for Offline Viewing on Your Laptop</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

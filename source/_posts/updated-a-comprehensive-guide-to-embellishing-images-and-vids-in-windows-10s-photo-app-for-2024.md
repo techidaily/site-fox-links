@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Comprehensive Guide to Embellishing Images and Vids in Windows 10'S Photo App for 2024"
-date: 2024-11-30T04:36:04.426Z
-updated: 2024-12-07T01:34:51.818Z
+date: 2024-12-10T20:19:15.383Z
+updated: 2024-12-13T06:57:22.950Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Adding the titles/text to video is a great way to explain the people about a cer
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
@@ -51,13 +51,17 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
@@ -75,19 +79,11 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
@@ -96,7 +92,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -104,6 +100,10 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -130,18 +130,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/etting-more-out-of-youtube-top-8-mobile-downloader-tips-for-2024/"><u>[New] Getting More Out of YouTube Top 8 Mobile Downloader Tips for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-educational-videos-cutting-and-assembly-techniques/"><u>[New] In 2024, Educational Videos Cutting & Assembly Techniques</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-seamless-sync-link-insta-and-tiktok-with-ease/"><u>[New] Seamless Sync Link Insta & TikTok with Ease</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-straightforward-recording-for-windows-10/"><u>[New] Straightforward Recording for Windows 10</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/isual-identity-shielding-adding-watermark-and-logo-to-youtube-media/"><u>[New] Visual Identity Shielding Adding Watermark & Logo to YouTube Media</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-adding-movies-to-your-playlist-an-intuitive-process-for-youtube-users/"><u>[Updated] 2024 Approved Adding Movies to Your Playlist An Intuitive Process for YouTube Users</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-integrating-textual-descriptions-into-videos-on-photos-windows-11-for-2024/"><u>[Updated] Integrating Textual Descriptions Into Videos on Photos (Windows 11) for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-androids-compendium-for-synchronized-and-curved-videography/"><u>2024 Approved Android's Compendium for Synchronized & Curved Videography</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-chroma-key-techniques-in-live-broadcasts/"><u>2024 Approved Mastering Chroma Key Techniques in Live Broadcasts</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-slomo-visual-delight-thorough-assessment-release/"><u>2024 Approved SloMo Visual Delight Thorough Assessment Release</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-from-analog-archives-to-digital-epics-creating-videos-from-older-photographs/"><u>In 2024, From Analog Archives to Digital Epics Creating Videos From Older Photographs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/pinnacle-of-picture-perfection-top-10-screens-for-2024/"><u>Pinnacle of Picture Perfection Top 10 Screens for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-best-in-class-memetics-engine/"><u>[New] Best-in-Class Memetics Engine</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-converting-social-media-audio-to-personalized-mobile-alerts-for-2024/"><u>[New] Converting Social Media Audio to Personalized Mobile Alerts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-encompassing-vsco-photo-editor-explained-for-2024/"><u>[New] Encompassing VSCO Photo Editor Explained for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-halo-series-screen-grabs-made-simple/"><u>[New] In 2024, Halo Series Screen Grabs Made Simple</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-photo-grandeur-with-our-best-grid-apps-list/"><u>[New] In 2024, Photo Grandeur with Our Best Grid Apps List</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-ultimate-guide-the-leading-7-nft-conversion-services/"><u>[New] In 2024, Ultimate Guide The Leading 7 NFT Conversion Services</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-the-ultimate-guide-capturing-your-ps4-experience/"><u>[Updated] 2024 Approved The Ultimate Guide Capturing Your PS4 Experience</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-futurecamerasbeyondmycam/"><u>[Updated] In 2024, FutureCamerasBeyondMyCam</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-next-gen-of-visual-perfection-a-review-of-eizos-cg318-4k/"><u>[Updated] The Next Gen of Visual Perfection A Review of EIZO's CG318-4K</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-live-streaming-technologies-for-broadcinas-for-2024/"><u>[Updated] Top Live Streaming Technologies for Broadcinas for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-ultimate-guide-to-calculate-your-youtube-views-and-money/"><u>[Updated] Ultimate Guide to Calculate Your YouTube Views and Money</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-trailblazing-the-mobile-app-landscape/"><u>2024 Approved Trailblazing the Mobile App Landscape</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/comprehensive-guide-to-data-sanitization-tips-and-resources-by-stellar-experts/"><u>Comprehensive Guide to Data Sanitization: Tips & Resources by Stellar Experts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-microphone-combinations-for-superior-4k-audio-and-visuals/"><u>In 2024, Best Microphone Combinations for Superior 4K Audio and Visuals</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-elevating-imagery-an-in-depth-review-of-the-gopro-karma-drone/"><u>In 2024, Elevating Imagery An In-Depth Review of the GoPro Karma Drone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-strategies-for-time-travel-visualization/"><u>In 2024, Strategies for Time Travel Visualization</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-intel-integrated-graphics-drivers-for-windows-11-installation-guide/"><u>Latest Intel Integrated Graphics Drivers for Windows 11: Installation Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering AE  Integrating Custom Typefaces for 2024\""
-date: 2024-12-05T02:59:14.762Z
-updated: 2024-12-06T17:01:24.613Z
+date: 2024-12-06T05:37:50.680Z
+updated: 2024-12-13T04:27:47.867Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ After Effects is one of the most promising video editing applications available 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. How to add fonts to After Effects?
@@ -40,6 +40,10 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * For adding the Adobe Fonts to After Effects, you will first need to enable them by signing in to the Creative Cloud application on your desktop. To do that, first, open the Creative Cloud, navigate to Assets, and click on Fonts.
 
 ![enable fonts adobe after effects](https://images.wondershare.com/filmora/article-images/2022/07/enable-fonts-adobe-after-effects.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * This will direct you to the official website of Adobe Fonts where you can enable the fonts for your After Effects application. Once you are done with that click on the "Browse Fonts" and then in the opened tab, you will see a variety of fonts with their specified categories.
 
@@ -53,7 +57,7 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Types of Fonts in After Effects
@@ -62,10 +66,6 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. How to use text effects in After Effects?
 
 Adding text effects in Adobe After Effects is very easy and you can use these effects by following these steps:
@@ -73,10 +73,6 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * First, select the project video that you want to edit. Then navigate to "effects and presets" and search for the presets of the texts that you want to edit.
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
@@ -94,6 +90,10 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
@@ -104,6 +104,10 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -125,10 +129,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -158,16 +158,22 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-the-complete-gif-makers-manual/"><u>[New] In 2024, The Complete GIF Maker's Manual</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-art-of-conversion-boosting-click-through-rates-on-social-platforms/"><u>[New] The Art of Conversion Boosting Click-Through Rates on Social Platforms</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-innovative-virtual-bike-trails-unveiled/"><u>[Updated] 2024 Approved Innovative Virtual Bike Trails Unveiled</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-figure-skating-highlights-2022-winter-olympics/"><u>[Updated] Figure Skating Highlights 2022 Winter Olympics</u></a></li>
-<li><a href="https://blog-min.techidaily.com/download-the-original-word-processing-program-the-pioneering-pc-application-available-at-no-cost/"><u>Download the Original Word Processing Program: The Pioneering PC Application, Available at No Cost!</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-tecno-phantom-v-fold-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Tecno Phantom V Fold in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-easily-update-your-video-graphics-adapter-drivers-step-by-step/"><u>How to Easily Update Your Video Graphics Adapter Drivers – Step by Step</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-a-4k-odyssey-begins-here-exploring-the-eizo-cg318-4k-monitor/"><u>In 2024, A 4K Odyssey Begins Here – Exploring the EIZO CG318-4K Monitor</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigate-your-pc-upgrade-journey-with-guidance-from-toms-hardware/"><u>Navigate Your PC Upgrade Journey with Guidance From Tom's Hardware</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/say-goodbye-to-bulky-power-banks-introducing-the-innovative-magsafe-charger-with-fast-charging-capabilities-tech-news/"><u>Say Goodbye to Bulky Power Banks: Introducing the Innovative MagSafe Charger with Fast-Charging Capabilities | Tech News</u></a></li>
-<li><a href="https://program-issues.techidaily.com/win-the-battle-against-warcrafts-unstable-visuals-proven-techniques-for-fixing-flicker-issues/"><u>Win the Battle Against Warcraft's Unstable Visuals: Proven Techniques for Fixing Flicker Issues</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-crafting-the-futures-past-digital-conversion-for-timeless-images-for-2024/"><u>[New] Crafting the Future's Past Digital Conversion for Timeless Images for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-affordable-wide-angle-vr-cameras-for-filmmaking/"><u>[New] In 2024, Affordable Wide-Angle VR Cameras for Filmmaking</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-vintage-visions-post-copyright-era/"><u>[New] In 2024, Vintage Visions Post-Copyright Era</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-avoiding-upside-down-videos-in-your-instagram-feed/"><u>[Updated] Avoiding Upside-Down Videos in Your Instagram Feed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-foundations-in-creating-animated-imagery/"><u>[Updated] Foundations in Creating Animated Imagery</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unseen-approaches-to-bypass-online-educational-content/"><u>[Updated] In 2024, Unseen Approaches to Bypass Online Educational Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-journey-through-the-top-10-sites-offering-an-array-of-impressive-3d-texts-for-2024/"><u>[Updated] Journey Through The Top 10 Sites Offering an Array of Impressive 3D Texts for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-complete-azure-guide-to-speech-to-text-integration-for-2024/"><u>[Updated] The Complete Azure Guide to Speech-to-Text Integration for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/easy-guide-to-googles-mapping-solution-for-windows/"><u>Easy Guide to Google's Mapping Solution for Windows</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-xiaomi-14-ultra-by-drfone-android/"><u>How to Bypass FRP on Xiaomi 14 Ultra?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-itel-p40-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Itel P40 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-10-creative-ai-solutions-for-podcast-names-online/"><u>In 2024, Top 10 Creative AI Solutions for Podcast Names Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-the-art-of-reversed-color-photography/"><u>Mastering the Art of Reversed Color Photography</u></a></li>
+<li><a href="https://win-dash.techidaily.com/optimized-performance-with-updated-nvidia-geforce-210-driver-version-for-windows-11-operating-system/"><u>Optimized Performance with Updated NVIDIA GeForce 210 Driver Version for Windows 11 Operating System</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ultimate-camera-clash-hero5-black-versus-session/"><u>Ultimate Camera Clash Hero5 Black Versus Session</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlocking-laughter-in-vr-crafting-metaverse-humor-for-2024/"><u>Unlocking Laughter in VR Crafting Metaverse Humor for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ckled-earning-on-youtube-pioneering-a-non-ad-profit-pathway/"><u>Unshackled Earning on YouTube Pioneering a Non-Ad Profit Pathway</u></a></li>
 </ul></div>
 

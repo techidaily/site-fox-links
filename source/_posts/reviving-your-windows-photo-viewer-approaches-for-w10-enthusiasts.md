@@ -1,7 +1,7 @@
 ---
 title: "\"Reviving Your Windows Photo Viewer  Approaches for W10 Enthusiasts\""
-date: 2024-08-28T10:00:59.546Z
-updated: 2024-08-29T10:00:59.546Z
+date: 2024-12-11T09:43:14.761Z
+updated: 2024-12-12T21:12:23.051Z
 tags: 
   - screen-recording
   - ai video
@@ -65,13 +65,14 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -87,18 +88,17 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
@@ -106,13 +106,15 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,4 +138,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-5-effective-tricks-for-youtube-subscriber-surges/"><u>[New] 2024 Approved 5 Effective Tricks for YouTube Subscriber Surges</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-quick-and-easy-the-top-ten-for-youtube-mpeg-transformation/"><u>[New] 2024 Approved Quick and Easy The Top Ten for YouTube MPEG Transformation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-djis-minis-and-air-2-free-fun-luts-for-ultimate-mixes-for-2024/"><u>[New] DJI's Minis & Air 2 Free, Fun LUTS for Ultimate Mixes for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-vlc-key-mac-functions-explained/"><u>[New] Mastering VLC Key Mac Functions Explained</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-transformative-tactics-for-skyrocketing-subscribers-on-youtube/"><u>[New] Transformative Tactics for Skyrocketing Subscribers on Youtube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-construct-clever-caricatures-on-giphy/"><u>[Updated] 2024 Approved Construct Clever Caricatures on Giphy</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-economical-vr-headsets-from-the-east/"><u>[Updated] In 2024, Economical VR Headsets From the East</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-the-features-of-magix-video-pro-x-for-2024/"><u>[Updated] Navigating the Features of Magix Video Pro X for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-premier-vr-movies-for-immersive-viewing-for-2024/"><u>[Updated] Premier VR Movies for Immersive Viewing for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-10-hidden-gems-for-enhancing-canva-images/"><u>[Updated] Top 10 Hidden Gems for Enhancing Canva Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-infusing-vitality-into-text-an-animated-adventure/"><u>2024 Approved Infusing Vitality Into Text An Animated Adventure</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-luminous-images-a-comprehensive-lightroom-guide/"><u>2024 Approved Unlocking Luminous Images A Comprehensive Lightroom Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-google-pixel-8-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/discover-the-best-software-solutions-for-rejuvenating-your-oldest-photographs/"><u>Discover the Best Software Solutions for Rejuvenating Your Oldest Photographs</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/end-of-an-era-epic-games-phases-out-compatibility-with-windows-78-platforms/"><u>End of an Era: Epic Games Phases Out Compatibility with Windows 7/8 Platforms</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-narzo-60-pro-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme Narzo 60 Pro 5Gwith/without a PC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-pursuing-peak-performance-selecting-premium-drone-motors/"><u>In 2024, Pursuing Peak Performance Selecting Premium Drone Motors</u></a></li>
+</ul></div>
 

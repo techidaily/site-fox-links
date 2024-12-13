@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering Close-Up Cinematography  Essential Guidelines\""
-date: 2024-11-30T04:53:04.708Z
-updated: 2024-12-06T22:01:37.545Z
+date: 2024-12-09T19:00:50.438Z
+updated: 2024-12-13T07:55:21.226Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ Any person having a photography background can learn the nuances of the macro vi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6 Tips For Making Macro Video
@@ -73,15 +73,15 @@ Try to get great visual perspectives or angles by bracing the camera on the tree
 
 ![Tripod](https://images.wondershare.com/filmora/article-images/oconnor-ultimate-1030d-fluid-head-30l-cf-tripod.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\. Background
 
 The background of your macro video always remains blurred as you shoot it closely. But, the background color is visible so, choosing it correctly is vital. The color of the background must compliment your composition’s color and must be chosen creatively.
 
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\. DSLR Cameras
 
@@ -93,10 +93,6 @@ You may also add an extension tube which basically splits the focal distance in 
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5\. Depth of Field
 
 The lens has certain limitation to capture and focus the subject closely. The camera’s aperture can be adjusted to control the depth of your field.
@@ -107,6 +103,10 @@ But, you must remember that when the opening of the lens is small, the light req
 
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Composition
 
 When you have low lights, ensuring a correct perspective on the subject with maximum focus area is quite difficult. You must have the right composition for your macro video.
@@ -116,7 +116,7 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -126,7 +126,7 @@ Once you can master the above tips for making the macro video, you can easily sh
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -154,18 +154,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-filmmaking-faceoff-hero-session-x-or-polaroid-cube/"><u>[Updated] 2024 Approved Filmmaking Faceoff Hero Session X or Polaroid Cube?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-instagram-algorithm-update-will-affect-you/"><u>[Updated] How Instagram Algorithm Update Will Affect You</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-dial-in-to-youtube-chat-no-huge-follower-requirement/"><u>2024 Approved Dial in to YouTube Chat, No Huge Follower Requirement</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-audio-experts-choice-best-6-microphone-picks-for-online-broadcasting/"><u>In 2024, Audio Experts' Choice Best 6 Microphone Picks for Online Broadcasting</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-effortless-tutorial-for-top-notch-yt-video-thumbnails/"><u>In 2024, Effortless Tutorial for Top-Notch YT Video Thumbnails</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-in-depth-analysis-of-slomo-video-capture-tool/"><u>In 2024, In-Depth Analysis of SloMo Video Capture Tool</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Motorola Moto G23 | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-maximizing-iphone-to-mac-file-transfer-for-large-videos/"><u>In 2024, Maximizing iPhone-to-Mac File Transfer for Large Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/maximizing-fun-finding-hot-images-at-pexelscom-for-2024/"><u>Maximizing Fun Finding Hot Images at Pexels.com for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-art-of-audio-design-in-magix-vst-2023/"><u>The Art of Audio Design in Magix VST 2023</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-first-step-in-vlogging-tools-you-need-for-2024/"><u>The First Step in Vlogging Tools You Need for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/transforming-drives-into-dialogues-mercedes-vehicle-voice-tech/"><u>Transforming Drives Into Dialogues: Mercedes Vehicle Voice Tech</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-revenue-analysis-made-simple/"><u>YouTube Revenue Analysis Made Simple</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unlock-the-secrets-of-color-balance-in-gopro-videos-for-2024/"><u>[New] Unlock the Secrets of Color Balance in GoPro Videos for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-superior-web-recording-gear/"><u>[Updated] 2024 Approved Superior Web Recording Gear</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-switching-picture-in-picture-on-macios-effortlessly/"><u>[Updated] 2024 Approved Switching Picture-in-Picture on Mac/iOS Effortlessly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-enhance-your-vtuber-experience-with-top-voice-modification-tools/"><u>[Updated] In 2024, Enhance Your VTuber Experience with Top Voice Modification Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-plunge-into-quality-leading-camcorders-for-aquatic-adventurers/"><u>[Updated] In 2024, Plunge Into Quality Leading Camcorders for Aquatic Adventurers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-ready-for-screen-talent-access-agreement/"><u>[Updated] In 2024, Ready for Screen Talent Access Agreement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-transform-your-youtube-presence-mastering-featured-channel-spotlight-techniques/"><u>[Updated] In 2024, Transform Your YouTube Presence Mastering Featured Channel Spotlight Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/track-to-1000-subscribers-in-youtube-landscape/"><u>Fast-Track To 1,000 Subscribers in Youtube Landscape</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-oppo-a56s-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Oppo A56s 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/premium-6-networks-maximizing-biz-potential-for-2024/"><u>Premium 6 Networks Maximizing Biz Potential for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/smart-shopping-xbox-s-edition-secrets-revealed/"><u>Smart Shopping: Xbox S Edition Secrets Revealed</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solved-troubleshooting-and-fixing-oddworld-soulstorm-for-stable-pc-gaming-experience/"><u>Solved: Troubleshooting and Fixing Oddworld: Soulstorm for Stable PC Gaming Experience</u></a></li>
 </ul></div>
 

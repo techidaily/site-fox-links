@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Venturing Virtuality  A Review of LG's 360 Headset\""
-date: 2024-08-28T09:59:55.546Z
-updated: 2024-08-29T09:59:55.546Z
+date: 2024-12-09T23:32:36.252Z
+updated: 2024-12-13T08:28:10.553Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01f
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## First Impression of LG 360 VR
 
 ### Design of LG 360 VR
@@ -36,16 +40,14 @@ thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01f
 
  Since it is connected via USB Type-C connector, so the company provides it with the package. The adjustable lenses and their covers are present. A 3.5 mm jack is also present on the headset for the headphones which are also provided. Well, many other necessary things are also provided with.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### Product Packaging of LG 360 VR
 
  Well, the packaging is quite simple as all the other products of LG. It comes in a simple box will all the accessories in it. It is okay to say that the packaging is safe, but should be dealt with care, in the end, it is a delicate product. Everything looks good until it is inside the box.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Set up LG 360 VR headset
 
 * First of all, connect the USB connector of the headset on to your smartphone. It will take a few minutes. When the headset is on, the screen of your phone will become off, and now you can use your phone as a touchpad.
@@ -53,16 +55,10 @@ thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01f
 * The LG 360 VR turns off if your phone remains idle without playing any video or application for a minimum of 15 minutes in order to save the battery of your phone.
 * Other than that, the headset will connect to the phone if the battery of your phone is too low or the phone is too hot.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### LG 360 VR Performance
 
  When you ponder that it is the LG G5 phone that is actually doing all the work in terms of actually driving the 360 VR's practices, you would at least assume steady performance. We know that the G5 is one of the most influential smartphones present in the market, including an Adreno 530 GPU, Snapdragon 820 and a 4GB RAM. Unfortunately, the first experience with the 360 VR’s performance is unsatisfactory to say the minimum. Having a 920 x 720 resolution per eye, this headset provides a much lower resolution rate as compared to all other virtual reality headsets present in the market. Although using it is a rollercoaster ride through various mixed experiences.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Key features of the LG 360 VR headset
 
 * It has 1.88 inches IPS LCD display.
@@ -93,9 +89,9 @@ thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01f
 * You can not experience the VR properly.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Comparison of Samsung Gear VR and LG 360 VR
 
 | |  LG 360 VR  | Samsung Gear VR                         |                                                                         |
@@ -105,6 +101,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 | Weight        | 134.4g                                  | 318g, 171g with phone                                                   |
 | Compatibility | Works with LG G5                        | Works with Samsung Galaxy S6, S6 Edge, S6 Edge+, Note 5, S7 and S7 Edge |
 | Resolution    | 960x720 pixels at 693ppi                | 1,280x1,440 pixels, at 518-577ppi also depends on phone                 |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### More about LG 360 VR headset
 
@@ -117,8 +117,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -142,4 +143,24 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-webinar-video-archive-creation/"><u>[New] 2024 Approved Webinar Video Archive Creation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-discovering-the-tech-behind-dji-phantom-3-professional/"><u>[New] Discovering the Tech Behind DJI Phantom 3 Professional</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-xsplit-collection-comprehensive-gaming-review/"><u>[New] In 2024, XSplit Collection Comprehensive Gaming Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-integrating-creative-filters-into-your-mobile-and-pc-videos/"><u>[New] Integrating Creative Filters Into Your Mobile and PC Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-reverse-action-flipping-your-iphone-video-footage/"><u>[New] Reverse Action Flipping Your iPhone Video Footage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-essential-techniques-5-audio-recording-tools-in-windows-11/"><u>[Updated] 2024 Approved Essential Techniques 5 Audio Recording Tools in Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-advanced-visual-techniques-for-impressive-after-effects-titles/"><u>[Updated] In 2024, Advanced Visual Techniques for Impressive After Effects Titles</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-step-by-step-process-for-acquiring-moviemaker-6-on-pcs-for-2024/"><u>[Updated] Step-by-Step Process for Acquiring Moviemaker 6 on PCs for 2024</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/explore-a-collection-of-coca-cola-graphics-photos-pictures-and-visual-ideas-for-your-screen-saver-powered-by-yl-creative-software/"><u>Explore a Collection of Coca Cola Graphics: Photos, Pictures & Visual Ideas for Your Screen Saver – Powered by YL Creative Software</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/fix-windows-11s-stalled-search-feature-with-these-proven-techniques/"><u>Fix Windows 11'S Stalled Search Feature with These Proven Techniques</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-from-iphone-6s-plus-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account From iPhone 6s Plus without Password?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-portrait-perfection-free-official-passport-image-generator-download/"><u>In 2024, Portrait Perfection Free, Official Passport Image Generator Download</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/mastering-data-visualization-crafting-tally-graphs-easily-using-excel/"><u>Mastering Data Visualization: Crafting Tally Graphs Easily Using Excel</u></a></li>
+<li><a href="https://fox-links.techidaily.com/prime-setup-the-finest-4k-dslr-shoulder-rigs-reviewed-for-2024/"><u>Prime Setup The Finest 4K DSLR Shoulder Rigs Reviewed for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/streamline-your-workflow-set-microsoft-words-preference-for-text-only-attachment-viewing/"><u>Streamline Your Workflow: Set Microsoft Word's Preference for Text-Only Attachment Viewing</u></a></li>
+</ul></div>
 
