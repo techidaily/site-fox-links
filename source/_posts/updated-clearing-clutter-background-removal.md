@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Clearing Clutter  Background Removal\""
-date: 2024-12-02T00:44:25.114Z
-updated: 2024-12-07T01:41:14.292Z
+date: 2024-12-20T01:05:18.655Z
+updated: 2024-12-21T21:41:32.094Z
 tags: 
   - screen-recording
   - ai video
@@ -27,17 +27,9 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Remove Affinity Photo to Remove Image's Background
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Erase a White Background in Affinity Designer
 
@@ -50,16 +42,24 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -72,10 +72,6 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -104,6 +100,10 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
 ## The Best Alternative of Affinity Photo
@@ -130,10 +130,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -143,6 +139,10 @@ With advancing technology, you can find different image editing tools online. Ho
 And if you have any interests in finding free images to expand your resource, you can watch this video:
 
 Hopefully, this article and video can help you create ideal images!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -202,18 +202,15 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-comprehensive-guide-to-websites-for-text-alteration/"><u>[New] Comprehensive Guide to Websites for Text Alteration</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-exploring-high-frame-rate-filming-with-yi-for-2024/"><u>[New] Exploring High Frame Rate Filming with YI for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-ultimate-compilation-of-best-cams-for-mountain-sports-for-2024/"><u>[New] Ultimate Compilation of Best Cams for Mountain Sports for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-distinguished-crafters-superior-online-instagram-hlv-creators/"><u>[Updated] In 2024, Distinguished Crafters Superior Online Instagram HLV Creators</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-industrys-largest-uav-payload-carriers-for-2024/"><u>[Updated] Industry's Largest UAV Payload Carriers for 2024</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/aktionsweise-fur-windows-11-wie-man-ein-benutzerprofil-problemlos-auf-ein-anderes-laufwerk-verschiebt/"><u>Aktionsweise Für Windows 11: Wie Man Ein Benutzerprofil Problemlos Auf Ein Anderes Laufwerk Verschiebt</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-download-and-install-guide-for-nexiq-usb-link-2-drivers/"><u>Easy Download & Install Guide for Nexiq USB Link 2 Drivers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-paving-your-way-to-cost-savvy-cloud-choices/"><u>In 2024, Paving Your Way to Cost-Savvy Cloud Choices</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/in-depth-analysis-of-apowersoft-recordmydesktop-expert-reviews-and-insights/"><u>In-Depth Analysis of Apowersoft RecordMyDesktop - Expert Reviews & Insights</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/massive-discount-save-1100-on-the-latest-gaming-and-content-creation-laptops-featured/"><u>Massive Discount: Save $1100 on the Latest Gaming & Content Creation Laptops - Featured</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/resolved-reel-hiccup-on-instagram/"><u>Resolved: Reel Hiccup on Instagram</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-5-tracking-apps-to-track-apple-iphone-7-plus-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>Top 5 Tracking Apps to Track Apple iPhone 7 Plus without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/transforming-the-metaverse-essential-gear-to-consider-top-7-for-2024/"><u>Transforming the Metaverse Essential Gear to Consider (Top 7) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-best-rated-vr-joysticks-unveiled-for-2024/"><u>[New] Best-Rated VR Joysticks Unveiled for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-panoramic-portals-cutting-edge-filmscapes/"><u>[New] Panoramic Portals Cutting-Edge Filmscapes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-complete-checklist-for-internet-broadcast-preservation-for-2024/"><u>[New] The Complete Checklist for Internet Broadcast Preservation for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-powerpoint-tips-adding-and-capturing-speech-sounds/"><u>[Updated] 2024 Approved PowerPoint Tips Adding and Capturing Speech Sounds</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-optimal-camera-balance-for-drone-use/"><u>[Updated] Optimal Camera Balance for Drone Use</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-lenovo-thinkphone-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Lenovo ThinkPhone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/harmonymix-pro-mac-and-windows-version-for-2024/"><u>HarmonyMix Pro Mac & Windows Version for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-samsung-galaxy-s23-tactical-edition-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Samsung Galaxy S23 Tactical Edition? Fixed | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/the-5-best-methods-to-track-a-lost-or-stolen-iphone-13-mini-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>The 5 Best Methods to Track a Lost or Stolen iPhone 13 mini | Stellar</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-vn-video-editor-on-mac-a-review-and-comparison-with-alternative-editors/"><u>Updated In 2024, VN Video Editor on Mac A Review and Comparison with Alternative Editors</u></a></li>
 </ul></div>
 

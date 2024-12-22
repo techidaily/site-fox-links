@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Pro iPhone Tricks for Stunning Reflection Shots\""
-date: 2024-08-23T03:10:28.879Z
-updated: 2024-08-24T03:10:28.879Z
+date: 2024-12-19T21:02:37.815Z
+updated: 2024-12-21T16:39:27.727Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
 ![reflection-photography-for-iPhone](https://images.wondershare.com/filmora/article-images/crystal-ball.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Water in a wine glass (turns everything upside down too!)
 
 ![water-reflection](https://images.wondershare.com/filmora/article-images/water-reflection.jpg)
@@ -64,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
 ![reflection-composition-tips](https://images.wondershare.com/filmora/article-images/reflection-composition-tips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To activate the lines simply go to **Settings > Camera and Photographs > Grid**
 
 #### 3\.  Keep it Simple
@@ -76,9 +84,17 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
 ![keep-the-image-simple](https://images.wondershare.com/filmora/article-images/keep-the-image-simple.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Awful
 
 ![awful-composition](https://images.wondershare.com/filmora/article-images/awful-composition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\.  Reality and Reflection
 
@@ -141,6 +157,10 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -164,8 +184,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/2024-approved-20plus-laughs-no-boundaries-crafting-memes-across-metaverse-realms/"><u>2024 Approved 20+ Laughs, No Boundaries Crafting Memes Across Metaverse Realms</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-discover-the-best-game-screens-for-xbox-and-playstation/"><u>2024 Approved Discover the Best Game Screens for Xbox & PlayStation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-explore-the-world-through-ultra-hd-with-leading-mirrorless-cams/"><u>2024 Approved Explore the World Through Ultra-HD with Leading Mirrorless Cams</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-how-to-ensure-periscope-videos-are-secured-post-record/"><u>2024 Approved How to Ensure Periscope Videos Are Secured Post-Record</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-premier-video-cutting-software-recommendations-for-windows-users/"><u>2024 Approved Premier Video Cutting Software Recommendations for Windows Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-prime-retro-elements-reviving-classic-vhs-tricks/"><u>2024 Approved Prime Retro Elements Reviving Classic VHS Tricks</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-the-ultimate-checklist-for-crafting-dynamic-vimeo-conclusions/"><u>2024 Approved The Ultimate Checklist for Crafting Dynamic Vimeo Conclusions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exploring-the-future-with-verizons-advanced-5g-network-technology/"><u>Exploring the Future with Verizon's Advanced 5G Network Technology</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/from-kitchen-clips-to-artificial-intelligence-unveiling-the-connection/"><u>From Kitchen Clips to Artificial Intelligence: Unveiling the Connection</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/how-to-record-edit-and-produce-high-quality-webcam-videos-for-2024/"><u>How to Record, Edit and Produce High-Quality Webcam Videos for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/sea-of-thieves-pc-troubleshooting-resolving-micaudio-connections/"><u>Sea of Thieves PC Troubleshooting: Resolving Mic/Audio Connections</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Chroma Key Techniques in Live Broadcasts"
-date: 2024-12-05T02:34:52.801Z
-updated: 2024-12-07T05:15:01.059Z
+date: 2024-12-19T07:34:02.541Z
+updated: 2024-12-21T19:35:26.207Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b76
 
 The green screen has become the new hot-cake among gamers and other video streamers. It allows them to add the most magnetizing and unreal effects for their streams. These days, it has become easier than ever to set-up your green screen studio and creatively displays your hidden talent.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to set-up your live streaming studio
 
 To set up a green screen studio, there are some things you’ll need to be equipped with first. You’ll need to know which camera to use, which green screen to use, and which lights your broadcast requires.
@@ -46,16 +50,12 @@ If you want to set up a large broadcasting studio the camera you’ll need shoul
 
 ![sony hdc 5500 studio camera](https://images.wondershare.com/filmora/Mac-articles/sony-hdc-5500-studio-camera.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 For normal web or twitch streaming a high-quality webcam should be used. It should have good face tracking and great picture quality. **A 1080p resolution** with the capability of 30-60 frames is a bonus. There are some great cameras on the market that you can even land at **under $100**.
 
 ![clear one unite pro webcam](https://images.wondershare.com/filmora/Mac-articles/clear-one-unite-pro-webcam.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Green Screen
@@ -68,15 +68,15 @@ For gamers and other streamers like beauty vloggers, twitch anchors, and YouTube
 
 ![foldable green screen](https://images.wondershare.com/filmora/Mac-articles/foldable-green-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Another option of the green screen for streamers is a collapsible green screen. It was introduced by Elgato and is easy to carry and easy to set-up. It can be adjusted to any height and can open and tear down in a matter of seconds. It comes with a relatively high price of around $150 but they are worth the money.
 
 Do remember that any green screen you use should be large enough to give your main subject space to move around. Apart from that, make sure you don’t have any green elements in your subject or your software will also make those areas disappear. **If your subject has blonde hair, a blue screen instead of a green screen is recommended.**
 
 ![elgato green screen stand](https://images.wondershare.com/filmora/Mac-articles/elgato-green-screen-stand.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Lights
 
@@ -101,7 +101,7 @@ To start a live stream you need to download [XSplit](https://www.xsplit.com/) br
 ![xsplit](https://images.wondershare.com/filmora/Mac-articles/xsplit.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Conclusion
@@ -114,11 +114,11 @@ Learn More: [How to use OBS Streamlabs on Mac？>>>](https://tools.techidaily.co
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -145,24 +145,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-from-obscurity-to-opulence-grow-your-insta-following-to-1000/"><u>[New] From Obscurity to Opulence Grow Your Insta Following to 1,000</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-simplified-techniques-for-correcting-profile-ages/"><u>[New] In 2024, Simplified Techniques for Correcting Profile Ages</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-prestigious-archive-open-source-photo-galleries-for-2024/"><u>[New] Prestigious Archive Open-Source Photo Galleries for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-sj7-action-hero-exclusive-insights-into-the-4k-starcam-for-2024/"><u>[New] The SJ7 Action Hero Exclusive Insights Into the 4K StarCam for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-beginners-guide-to-gopro-extras-for-2024/"><u>[Updated] Beginner's Guide to GoPro Extras for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-discover-top-10-enhanced-visual-experiences-on-macs-for-2024/"><u>[Updated] Discover Top 10 Enhanced Visual Experiences on Macs for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-optimize-your-avis-quick-conversion-to-gif-on-windows-and-macos-via-filmora-app/"><u>[Updated] In 2024, Optimize Your AVIs Quick Conversion to GIF on Windows & macOS via Filmora App</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-360-live-streaming-cameras-for-youtube-and-facebook-you-should-know/"><u>[Updated] In 2024, Top 360 Live Streaming Cameras for Youtube and Facebook You Should Know</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-invisible-realities-of-stories-a-closer-look-for-viewers/"><u>[Updated] Invisible Realities of Stories A Closer Look for Viewers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-extended-review-easy-dynamic-range-explained/"><u>2024 Approved Extended Review Easy Dynamic Range Explained</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-get-your-stream-on-point-with-these-top-webcams-for-youtube/"><u>2024 Approved Get Your Stream on Point with These Top Webcams for YouTube</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-systematic-upgrade-procedures-for-macos-sierra-users/"><u>2024 Approved Systematic Upgrade Procedures for macOS Sierra Users</u></a></li>
-<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-vivo-x-flip-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Vivo X Flip | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-muted-troubles-world-of-warcraft-sound-issues-resolved/"><u>Fixing Muted Troubles: World of Warcraft Sound Issues Resolved</u></a></li>
-<li><a href="https://fox-links.techidaily.com/from-photo-to-film-the-cinematic-edge-of-iphone-x-for-2024/"><u>From Photo to Film The Cinematic Edge of iPhone X for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/grab-your-guiltless-film-endings-with-our-template-service/"><u>Grab Your Guiltless Film Endings with Our Template Service</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-6s-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 6s To Others devices? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Sony Xperia 5 V | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-average-podcast-income-whats-the-payoff-in-2024/"><u>[New] Average Podcast Income What's the Payoff, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-cinematic-craftsman-corner-qanda-hub/"><u>[New] Cinematic Craftsman Corner Q&A Hub</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-high-speed-windows-viewer-for-images-for-2024/"><u>[New] High-Speed Windows Viewer for Images for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-permanent-turn-off-for-youtube-shorts/"><u>[New] Unlocking Permanent Turn-Off for YouTube Shorts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unraveling-best-practices-for-effective-fb-healthcare-promos-for-2024/"><u>[New] Unraveling Best Practices for Effective FB Healthcare Promos for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unveiling-the-secrets-of-m1-max-clips/"><u>[New] Unveiling the Secrets of M1 Max Clips</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-perfecting-movie-recording-your-multiplatform-strategy/"><u>[Updated] 2024 Approved Perfecting Movie Recording Your Multiplatform Strategy</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-quick-tips-for-setting-up-zoom-on-your-android-phonetablet/"><u>[Updated] 2024 Approved Quick Tips for Setting Up Zoom on Your Android Phone/Tablet</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-cutting-edge-methods-for-capturing-audio-in-audacity/"><u>[Updated] Cutting-Edge Methods for Capturing Audio in Audacity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-essence-of-dji-inspire-2-distilled/"><u>[Updated] The Essence of DJI Inspire 2 Distilled</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-360-camera-buying-guide-how-to-choose-a-suitable-360-camera/"><u>2024 Approved 360 Camera Buying Guide How to Choose a Suitable 360 Camera</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-oppo-a79-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Oppo A79 5G Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-techniques-to-restore-logitech-mouse-scroll-wheel-functionality/"><u>Effective Techniques to Restore Logitech Mouse Scroll Wheel Functionality</u></a></li>
+<li><a href="https://driver-download.techidaily.com/fast-fix-for-acer-laptops-grab-the-free-wi-fi-driver-here/"><u>Fast Fix for Acer Laptops? Grab the Free Wi-Fi Driver Here!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-inside-movavis-video-editor-plus-features/"><u>In 2024, Inside Movavi's Video Editor Plus Features</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-infinix-smart-8-hd-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Infinix Smart 8 HD? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/mspaint-your-creative-companion-in-windows-11/"><u>MSPaint, Your Creative Companion in Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-mix-of-soundtracks-and-visuals-adding-srt-to-mp4-for-2024/"><u>The Ultimate Mix of Soundtracks and Visuals Adding SRT to MP4 for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-101-croatian-phrases-your-travel-guides-essential-toolkit/"><u>Top 101 Croatian Phrases: Your Travel Guide's Essential Toolkit</u></a></li>
 </ul></div>
 

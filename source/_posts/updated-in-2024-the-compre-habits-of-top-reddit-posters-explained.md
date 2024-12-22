@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Compre Habits of Top Reddit Posters Explained"
-date: 2024-08-23T03:17:06.059Z
-updated: 2024-08-24T03:17:06.059Z
+date: 2024-12-17T08:21:12.136Z
+updated: 2024-12-22T13:40:28.966Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ This guide covers everything from what to post to how to post and crucial factor
 
 First, let's go over the technical part of the process- How to post on Reddit, both on Desktop and mobile?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Post on Desktop
 
 To post anything on Reddit, first, you need an account. Click on Sign Up and create your account.
@@ -41,6 +45,10 @@ Step1 Go to reddit.com and click on "Create Post"
 Step2 Then, choose a community to post in. This is also known as a subreddit
 
 ![select subreddit to post](https://images.wondershare.com/filmora/article-images/2023/01/choose-community.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Next, type in your title and write your message below
 
@@ -56,9 +64,6 @@ When you're done creating your post, scroll down and click "Post." It will immed
 
 If nothing is violating the [subreddit's guidelines](#%5FSubreddits), the mods will let it sit there without removing it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Post on Mobile App
 
 Once again, you need a Reddit account from the mobile app before anything else. Then, open the app and do the following:
@@ -67,22 +72,31 @@ Step1 Click on the "+" button at the bottom of your screen
 
 ![post on reddit mobile](https://images.wondershare.com/filmora/article-images/2023/01/reddit-home.PNG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Add your title, message, images, links, and anything else you may want
 
 ![type in title on reddit post](https://images.wondershare.com/filmora/article-images/2023/01/reddit-post-title.PNG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 Step3 Click on Next from the top-right corner of the screen
 
 Step4 Choose the subreddit (community) you want to post your message in
 
 ![select a subreddit to post](https://images.wondershare.com/filmora/article-images/2023/01/reddit-subreddit.PNG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 Check if everything looks good, add the appropriate tags
 
 Step6 Hit Post
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Essential Tips That WILL Help You When Posting on Reddit
 
@@ -90,9 +104,6 @@ Reddit, like any platform, has its own rules. Its algorithm that, when followed,
 
 That said, here's absolutely everything you should know before posting on Reddit.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Subreddits
 
 Subreddits allow Reddit to be more organized. It lets users of similar interests join specific communities that only focus on those interests.
@@ -104,8 +115,9 @@ Some important rules to follow:
 * Most subreddits have their own rules and guidelines within. This is usually displayed on the right-hand side of the page.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Reddiquettes
 
 Simply put, etiquettes refer to Reddit etiquette. They are the dos and don'ts of Reddit. Reddit has posted an[official list of the proper reddiquettes](https://www.reddithelp.com/hc/en-us/articles/205926439) all users should always try and stick to.
@@ -132,9 +144,6 @@ The second, AVOID these three things at all times:
 2. Posting the same piece of content on as many subreddit as you can
 3. Posting content that violates any guidelines a subreddit may have
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Video Tutorial - How To Use Reddit - Complete Beginner’s Guide
 
 Apart from what has been mentioned above, we also prepared a video to help you with posting on Reddit. If you have any interests, you can watch it to establish your overall outlook on posting on Reddit.
@@ -147,9 +156,6 @@ The only way to get good and learn how to post on Reddit is with practice. So, u
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 The only way to get good and learn how to post on Reddit is with practice. So, use the things you learned here to achieve better results. And keep posting and stay consistent. It will all pay off in the end.
@@ -180,4 +186,24 @@ The only way to get good and learn how to post on Reddit is with practice. So, u
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-no-cost-nature-inspired-screen-images/"><u>[New] 2024 Approved No-Cost, Nature Inspired Screen Images</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-apples-finest-free-apps-to-perfect-your-selfies/"><u>[New] Apple's Finest FREE Apps to Perfect Your Selfies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-shining-spotlight-on-luminous-hdr-techniques/"><u>[New] Shining Spotlight on Luminous HDR Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-color-cutting-edge-the-basics-of-green-screen-filming-for-newbies/"><u>[Updated] Color Cutting Edge The Basics of Green Screen Filming for Newbies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-changing-photo-colors-with-ease/"><u>[Updated] In 2024, Changing Photo Colors with Ease</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-optimal-space-stewards-premium-service-review/"><u>[Updated] In 2024, Optimal Space Stewards Premium Service Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-art-of-introducing-your-podcast/"><u>[Updated] In 2024, The Art of Introducing Your Podcast</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/facebook-video-orientation-dilemma-for-2024/"><u>Facebook Video Orientation Dilemma for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi 13 Ultra | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-an-mp4-on-samsung-galaxy-f54-5g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How to play an MP4 on Samsung Galaxy F54 5G?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-expert-advice-youtube-to-mpeg-compression-guide/"><u>In 2024, Expert Advice YouTube to MPEG Compression Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-hash-tags-that-catapult-you-to-6k-views-on-youtube/"><u>In 2024, Hash Tags That Catapult You to 6K Views on YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-unveiling-secrets-to-amazing-photo-collages/"><u>In 2024, Unveiling Secrets to Amazing Photo Collages</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-deleted-iphone-8-plus-whatsapp-attachments-on-mac-and-windows-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Deleted iPhone 8 Plus WhatsApp Attachments on Mac and Windows | Stellar</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-no-to-fb-surveillance-with-off-facebook-activity-controls/"><u>Say No to FB Surveillance with Off-Facebook Activity Controls</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ssence-of-elegance-in-video-color-balancing-for-2024/"><u>The Essence of Elegance in Video Color Balancing for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-motorola-edge-2023-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Motorola Edge 2023 FRP Bypass</u></a></li>
+</ul></div>
 

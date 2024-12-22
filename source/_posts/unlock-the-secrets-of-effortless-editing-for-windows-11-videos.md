@@ -1,7 +1,7 @@
 ---
 title: "Unlock the Secrets of Effortless Editing for Windows 11 Videos"
-date: 2024-08-23T03:11:59.960Z
-updated: 2024-08-24T03:11:59.960Z
+date: 2024-12-18T17:00:48.712Z
+updated: 2024-12-22T03:37:54.464Z
 tags: 
   - screen-recording
   - ai video
@@ -45,11 +45,23 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -70,22 +82,21 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we found that **trimming video in VLC and Windows 10 Photos** has its own set of advantages. While in Windows 10 Photos, you get the ease of operation for trimming the clip, VLC is a bit time taking. But, when it comes to more features in video editing, VLC certainly has better brownie points. But finally, it's your call to pick what suits you for your video editing needs. If you want to trim video easily, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +120,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/igital-dynamics-mastering-youtube-video-distribution-on-facebook-for-2024/"><u>[New] Digital Dynamics Mastering YouTube Video Distribution on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-2023-how-to-solve-facebook-videos-are-partially-muted/"><u>[New] In 2024, 2023 | How to Solve Facebook Videos Are Partially Muted?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-next-gen-screen-leaders-best-4k-tvs-for-2024/"><u>[Updated] Next-Gen Screen Leaders Best 4K TVs for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-xiaomi-civi-3-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Xiaomi Civi 3 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-effortlessly-preserve-your-linkedin-content-with-the-best-6-apps/"><u>2024 Approved Effortlessly Preserve Your LinkedIn Content with The Best 6 Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-frame-perfect-capture-leading-slow-motion-cameras-reviewed/"><u>2024 Approved Frame-Perfect Capture Leading Slow Motion Cameras Reviewed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-prime-windows-11-photo-inspector/"><u>2024 Approved Prime Windows 11 Photo Inspector</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-proven-methods-to-supercharge-your-spotify-ad-results/"><u>2024 Approved Proven Methods to Supercharge Your Spotify Ad Results</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-step-by-step-guide-to-basic-ps-color-correction/"><u>2024 Approved Step-by-Step Guide to Basic PS Color Correction</u></a></li>
+<li><a href="https://win-info.techidaily.com/come-facilmente-crea-una-magica-immagine-dal-tempo-del-disco-con-windows-11/"><u>Come Facilmente Crea Una Magica Immagine Dal Tempo Del Disco Con Windows 11</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-motorola-defy-2-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Motorola Defy 2 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/installing-and-updating-razer-graphics-drivers-on-various-windows-versions-11-8-7-xp-and-vista/"><u>Installing and Updating Razer Graphics Drivers on Various Windows Versions (11, 8, 7, XP & Vista)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2527931-9781493043910-the-big-book-of-ohio-ghost-stories/"><u>The Big Book of Ohio Ghost Stories | Free Book</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ymbiotic-relationship-between-cities-and-ecology/"><u>The Symbiotic Relationship Between Cities and Ecology</u></a></li>
+</ul></div>
 

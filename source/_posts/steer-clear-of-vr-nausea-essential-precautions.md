@@ -1,7 +1,7 @@
 ---
 title: "\"Steer Clear of VR Nausea  Essential Precautions\""
-date: 2024-08-23T03:11:57.630Z
-updated: 2024-08-24T03:11:57.630Z
+date: 2024-12-18T07:11:03.272Z
+updated: 2024-12-21T22:58:38.058Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 ways to prevent Oculus Rift motion sickness
 
@@ -50,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -57,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -81,13 +93,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-kickstart-your-video-enhancement-game-with-snapchat/"><u>[New] Kickstart Your Video Enhancement Game with Snapchat</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-instant-reachers-handbook-livestreaming-on-facebook-via-smartphones/"><u>[Updated] 2024 Approved Instant Reachers' Handbook Livestreaming on Facebook via Smartphones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-building-blocks-for-a-thriving-design-career/"><u>2024 Approved Building Blocks for a Thriving Design Career</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-craft-engaging-yt-titles-in-a-flash/"><u>2024 Approved Craft Engaging YT Titles in a Flash</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-elite-images-cache-websites/"><u>2024 Approved Elite Images Cache Websites</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-revealing-graphic-excellence-our-top-10-design-tool-list/"><u>2024 Approved Revealing Graphic Excellence Our Top 10 Design Tool List</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-six-quick-tips-for-efficient-beginner-edits-in-ps/"><u>2024 Approved Six Quick Tips for Efficient Beginner Edits in PS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-speed-up-your-photo-journey-creating-rapid-google-collages/"><u>2024 Approved Speed Up Your Photo Journey Creating Rapid Google Collages</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-asus-realtek-drivers-at-no-cost-ensure-perfect-sound-quality/"><u>Download ASUS Realtek Drivers at No Cost - Ensure Perfect Sound Quality</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/expert-assistance-platform-for-winx-media-transformation-tools/"><u>Expert Assistance Platform for WinX Media Transformation Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-amplify-your-business-through-effective-use-of-top-15-fb-analyzers/"><u>In 2024, Amplify Your Business Through Effective Use of Top 15 FB Analyzers</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/solution-to-hp-beataudio-driver-issues-on-various-windows-versions-a-comprehensive-guide/"><u>Solution to HP BeatAudio Driver Issues on Various Windows Versions: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-place.techidaily.com/step-by-step-strategy-to-clean-up-chrome-avoid-unwanted-advertisements-popups-and-malware/"><u>Step-by-Step Strategy to Clean Up Chrome: Avoid Unwanted Advertisements, Popups & Malware</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ate-movie-watchlists-streamlining-screen-time-for-2024/"><u>Ultimate Movie Watchlists Streamlining Screen Time for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unleashing-potential-top-10-ai-tools-for-podcast-titles/"><u>Unleashing Potential Top 10 AI Tools for Podcast Titles</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->

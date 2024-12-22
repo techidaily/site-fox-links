@@ -1,7 +1,7 @@
 ---
 title: "\"Rebooting Your Windows Photo Viewer  Two Procedures for W10 for 2024\""
-date: 2024-12-05T16:27:10.023Z
-updated: 2024-12-06T23:53:38.092Z
+date: 2024-12-18T08:54:10.938Z
+updated: 2024-12-22T13:59:57.376Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ Stay tuned to learn more!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why you prefer Windows Photo Viewer
@@ -66,10 +66,6 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -79,12 +75,16 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -100,13 +100,13 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -114,11 +114,11 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -145,16 +145,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-aviation-gaming-the-ultimate-drone-race-course-and-best-models/"><u>[New] Aviation Gaming The Ultimate Drone Race Course and Best Models</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-premium-hardware-hunt-cards-for-4k-editors/"><u>[New] In 2024, Premium Hardware Hunt Cards for 4K Editors</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-starting-strategies-for-an-engaging-fb-giveaway/"><u>[New] Starting Strategies for an Engaging FB Giveaway</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-nix-the-sneaky-youtube-quick-playback-feature/"><u>[Updated] 2024 Approved Nix the Sneaky YouTube Quick Playback Feature</u></a></li>
-<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On OnePlus 12R | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/decoding-the-art-of-successful-fb-cover-videos-for-2024/"><u>Decoding the Art of Successful FB Cover Videos for 2024</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/enhance-your-broadcasts-discover-manycams-top-tier-video-editing-and-remote-camera-solutions/"><u>Enhance Your Broadcasts: Discover ManyCam's Top-Tier Video Editing & Remote Camera Solutions</u></a></li>
-<li><a href="https://fox-links.techidaily.com/high-def-showdown-top-8k-tvs-rated-and-reviewed-for-2024/"><u>High-Def Showdown Top 8K TVs Rated and Reviewed for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-nokia-xr21-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Nokia XR21</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-repair-continuous-audio-yet-frozen-video-issue-in-youtube-using-chrome-or-mozilla-firefox/"><u>How to Repair Continuous Audio, Yet Frozen Video Issue in YouTube Using Chrome or Mozilla FireFox</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailored-timelines-your-facebook-newsfeed-reimagined/"><u>Tailored Timelines: Your Facebook Newsfeed Reimagined</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-art-of-eliminating-backgrounds-in-photography/"><u>[New] 2024 Approved The Art of Eliminating Backgrounds in Photography</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-how-to-achieve-premium-picture-standards-without-paying/"><u>[New] How to Achieve Premium Picture Standards Without Paying</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-spotlight-on-top-8-sites-where-3d-meets-lustrous-text/"><u>[New] In 2024, Spotlight on Top 8 Sites Where 3D Meets Lustrous Text</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-be-the-best-lifeguard-at-your-friends-tiktok-shores/"><u>[Updated] 2024 Approved Be the Best Lifeguard at Your Friends’ TikTok Shores</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-pro-audio-software-win-edition/"><u>[Updated] 2024 Approved Pro Audio Software Win Edition</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-double-delight-endless-looping-of-youtube-videos-for-tvs-for-2024/"><u>[Updated] Double Delight Endless Looping of YouTube Videos for TVs for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-essential-tips-for-capturing-high-quality-audio-in-filmmaking/"><u>[Updated] In 2024, Essential Tips for Capturing High-Quality Audio in Filmmaking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-zen-of-broadcasting-perfecting-zooms-techniques-for-youtube/"><u>[Updated] In 2024, The Zen of Broadcasting Perfecting Zoom's Techniques for YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-elite-no-price-facebook-visual-storytelling-suite/"><u>In 2024, Elite No-Price Facebook Visual Storytelling Suite</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-master-the-art-of-live-content-utilizing-wirecast-for-fb/"><u>In 2024, Master the Art of Live Content Utilizing Wirecast for FB</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/inside-teslas-autonomous-ride-sharing-future-updates-on-pricing-release-dates-and-specs-rumors/"><u>Inside Tesla's Autonomous Ride-Sharing Future: Updates on Pricing, Release Dates, and Specs Rumors</u></a></li>
+<li><a href="https://os-tips.techidaily.com/revive-classic-computing-with-idos-3-newly-launched-on-apples-app-store/"><u>Revive Classic Computing with iDOS 3, Newly Launched on Apple's App Store!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/shaky-video-tamer-for-handheld-cams/"><u>Shaky Video Tamer for Handheld Cams</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-gptzeros-strategy-for-identifying-machine-learning-outputs/"><u>Understanding GPTZero's Strategy for Identifying Machine Learning Outputs</u></a></li>
+<li><a href="https://games-able.techidaily.com/what-lies-in-store-amds-rdna-35-technology-and-release/"><u>What Lies in Store: AMD's RDNA 3.5 Technology & Release</u></a></li>
 </ul></div>
 

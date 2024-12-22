@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Winning Strategies for Win 11'S Crashy Photos App for 2024"
-date: 2024-08-23T03:11:54.197Z
-updated: 2024-08-24T03:11:54.197Z
+date: 2024-12-15T15:03:06.248Z
+updated: 2024-12-22T10:24:58.214Z
 tags: 
   - screen-recording
   - ai video
@@ -68,13 +68,11 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -86,8 +84,9 @@ Here is how can you reset it –
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -111,8 +110,9 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -120,22 +120,15 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -159,4 +152,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-zooms-best-audio-practices-2-simple-steps-to-enhanced-quality-for-2024/"><u>[New] Zoom's Best Audio Practices 2 Simple Steps to Enhanced Quality for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-capture-tips-for-professional-sound-recording/"><u>[Updated] In 2024, Cutting Edge Capture Tips for Professional Sound Recording</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-champion-complimentary-timer-tech/"><u>2024 Approved Champion Complimentary Timer Tech</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-convert-spoken-words-into-written-content-using-ms-words-in-built-tools/"><u>2024 Approved Convert Spoken Words Into Written Content Using MS Word's In-Built Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-essential-tips-for-crafting-perfect-drone-video-edits/"><u>2024 Approved Essential Tips for Crafting Perfect Drone Video Edits</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-free-meme-makers-the-ultimate-resource-guide/"><u>2024 Approved Free Meme Makers – The Ultimate Resource Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-interactive-learning-landscapes-with-vr/"><u>2024 Approved Interactive Learning Landscapes with VR</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-iphones-easy-path-to-picture-softness-four-key-steps/"><u>2024 Approved IPhone's Easy Path to Picture Softness (Four Key Steps)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-jumpstart-your-projects-using-xps-film-editor/"><u>2024 Approved Jumpstart Your Projects Using XP's Film Editor</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-peak-performance-cameras-for-athleticism/"><u>2024 Approved Peak Performance Cameras for Athleticism</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-streamlining-virtual-collaborations-a-comprehensive-scheduling-and-recording-manual-for-slack-plus-filmora/"><u>2024 Approved Streamlining Virtual Collaborations A Comprehensive Scheduling & Recording Manual for Slack + Filmora</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/webmxfavi/"><u>無償WEB版MXFファイルからAVIに容易に切り替え: モバヴェのユーティリティーガイド</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/end-headphone-static-fast-easy-remedies-awaiting-you/"><u>End Headphone Static Fast! Easy Remedies Awaiting You</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mobile-market-update-samsung-overtakes-apples-shipping-lead-competitor-emerges-stronger-than-ever-zdnet/"><u>Mobile Market Update: Samsung Overtakes Apple's Shipping Lead; Competitor Emerges Stronger than Ever | ZDNET</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-tutorial-on-how-to-master-freemp4-video-converter-factory-software/"><u>Step-by-Step Tutorial on How to Master FreeMP4 Video Converter Factory Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-beat-goes-on-integrating-songs-into-your-snapchats-for-2024/"><u>The Beat Goes On Integrating Songs Into Your Snapchats for 2024</u></a></li>
+</ul></div>
 

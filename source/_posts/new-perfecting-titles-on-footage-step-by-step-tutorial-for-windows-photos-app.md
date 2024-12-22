@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfecting Titles on Footage  Step-by-Step Tutorial for Windows Photos App\""
-date: 2024-08-23T03:13:51.698Z
-updated: 2024-08-24T03:13:51.698Z
+date: 2024-12-15T04:22:58.033Z
+updated: 2024-12-22T04:50:18.320Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Adding the titles/text to video is a great way to explain the people about a cer
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
 
 Do you wish to add titles/text to video on Photos in Windows 10 for your video projects? You may not get several options for video editing in spite of some powerful addition of application in Microsoft Store. But, the Windows 10 Photos app feature offers an add-on for creating video from your phone’s media. Let’s learn how to add titles/text to video on Photos in Windows 10.
@@ -41,6 +45,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select licensed images from the preset categories and always use it by adding credits to the image and click Insert to add it to the video project
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
@@ -62,6 +70,10 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -75,9 +87,9 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
@@ -85,8 +97,9 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -110,4 +123,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-29-visionary-metaverse-projects-elucidating-potentialities/"><u>[New] 2024 Approved 29 Visionary Metaverse Projects Elucidating Potentialities</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-binge-on-the-best-tiktoks-viral-video-collection-for-2024/"><u>[New] Binge on the Best TikTok's Viral Video Collection for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-optimize-your-online-presence-incorporating-video-filters-in-zoom-for-2024/"><u>[New] Optimize Your Online Presence Incorporating Video Filters in Zoom for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-from-silence-to-soundscape-step-by-step-in-audition/"><u>[Updated] From Silence to Soundscape Step-by-Step in Audition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-hdr-on-your-desk-a-windows-guide-to-color-mastery-for-2024/"><u>[Updated] HDR on Your Desk A Windows Guide to Color Mastery for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-virtual-worlds-choosing-metavisors-wisely-for-2024/"><u>[Updated] Mastering Virtual Worlds Choosing Metavisors Wisely for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-from-chaos-unleashed-to-organized-oasis-edit-your-hefty-tiktoks/"><u>2024 Approved From Chaos Unleashed to Organized Oasis Edit Your Hefty TikToks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-windows-11-a-look-at-the-latest-features/"><u>2024 Approved Windows 11 A Look at the Latest Features</u></a></li>
+<li><a href="https://win-forum.techidaily.com/find-out-which-powershell-version-is-installed-on-your-windows-10-system/"><u>Find Out Which PowerShell Version Is Installed on Your Windows 10 System</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gaining-ground-prospects-and-hurdles-of-chatgpt-premium/"><u>Gaining Ground: Prospects & Hurdles of ChatGPT Premium</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/hp-unveils-future-growth-tactics-amidst-hybrid-office-boom-driving-up-demand-for-computers-and-quick-start-ink-program/"><u>HP Unveils Future Growth Tactics Amidst Hybrid Office Boom Driving Up Demand for Computers & Quick-Start Ink Program</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-twitter-video-download-tool-for-mp3-conversion/"><u>In 2024, Twitter Video Download Tool for MP3 Conversion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/logitech-g533-audio-test-top-tier-wireless-game-headset/"><u>Logitech G533 Audio Test: Top-Tier Wireless Game Headset</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/spotlight-on-sea-techs-external-blu-ray-writer-an-seo-guide-to-its-variable-performance-metrics/"><u>Spotlight on Sea Tech's External Blu-Ray Writer: An SEO Guide to Its Variable Performance Metrics</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/trustworthiness-of-gpt-in-health-advice-delivery/"><u>Trustworthiness of GPT in Health Advice Delivery</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721479665537-uncover-the-reasons-why-upgrading-to-ios-153-should-be-your-top-priority/"><u>Uncover the Reasons Why Upgrading to iOS 15.3 Should Be Your Top Priority</u></a></li>
+</ul></div>
 

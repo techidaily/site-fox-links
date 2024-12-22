@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Navigating New Worlds  A Look at VR Today for 2024\""
-date: 2024-08-23T03:15:44.911Z
-updated: 2024-08-24T03:15:44.911Z
+date: 2024-12-18T21:12:33.719Z
+updated: 2024-12-22T04:58:10.864Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/0a7e98a47c507ce4d17e40879eab668bc44ad83b0
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What’s the popular VR platforms and what is developing fast?
 
  Well, the fourth Annual GDC European State of the Industry was held just about a month ago and as always, developers from various parts of this continent took part in it. It was very clear from the developers that they are still launching games keeping the PC and Smart Phones in mind. These are still the most popular platforms where 49 percent of the developers made their latest release on PC/Mac, around 41 percent chose smart phones and tablets to be the best medium.
@@ -34,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/0a7e98a47c507ce4d17e40879eab668bc44ad83b0
 
 ![google-cardbaorad-1]( https://images.wondershare.com/filmora/resource/google-cardbaorad-1.jpg
  )
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
 
@@ -46,8 +54,9 @@ thumbnail: https://thmb.techidaily.com/0a7e98a47c507ce4d17e40879eab668bc44ad83b0
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## About the European VR game makers and their funding
 
  Funding for the games has always remained one of the prime concerns for the game developers and publishers. You know that it takes large amounts to be invested for the games. When it comes to the funding policies for the European game developers, most of them are covering the entire expenses using their own funds. Take a look at what the survey report has to say about that. Asking about the sources of the fund for the games 57.8 percent said that their funds come from the company’s existing fund while contrary to this, 32.9 percent game developers said that they manage their own fund from their personal accounts.
@@ -55,9 +64,9 @@ thumbnail: https://thmb.techidaily.com/0a7e98a47c507ce4d17e40879eab668bc44ad83b0
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
 
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
@@ -65,8 +74,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -90,4 +100,17 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-clearer-horizons-the-ultimate-tweet-video-viewing-guide/"><u>[New] In 2024, Clearer Horizons The Ultimate Tweet Video Viewing Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-secure-your-facetime-discussions-with-screen-record-for-2024/"><u>[New] Secure Your FaceTime Discussions with Screen Record for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-perfect-shots-no-hassle-leading-smartphone-tripods/"><u>[Updated] 2024 Approved Perfect Shots, No Hassle Leading Smartphone Tripods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-kinemasters-secret-to-meme-making-mastery/"><u>[Updated] KineMaster's Secret to Meme-Making Mastery</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-step-up-your-image-game-the-best-free-online-editors-for-2024/"><u>[Updated] Step Up Your Image Game The Best Free Online Editors for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-turn-off-youtube-previews-on-all-devices-for-2024/"><u>[Updated] Turn Off YouTube Previews on All Devices for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unleashing-virality-steps-to-skyrocket-your-instagram-content/"><u>[Updated] Unleashing Virality Steps to Skyrocket Your Instagram Content</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-11-beginner-oriented-waterproof-video-recorders-for-youngsters-for-2024/"><u>Best 11 Beginner-Oriented Waterproof Video Recorders for Youngsters for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-hashtag-dynamics-a-closer-look-at-content-virality-on-facebook/"><u>Unraveling Hashtag Dynamics: A Closer Look at Content Virality on Facebook</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Vivo S18 | Dr.fone</u></a></li>
+</ul></div>
 

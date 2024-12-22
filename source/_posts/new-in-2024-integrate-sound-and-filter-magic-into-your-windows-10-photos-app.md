@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Integrate Sound & Filter Magic Into Your Windows 10 Photos App"
-date: 2024-12-11T16:56:32.969Z
-updated: 2024-12-12T20:25:54.991Z
+date: 2024-12-19T17:43:20.793Z
+updated: 2024-12-22T04:51:32.017Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -54,6 +50,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
@@ -61,7 +61,7 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Just select one you like. Preview it and then click Done.
@@ -78,19 +78,19 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -99,7 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,22 +127,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-concoct-laughter-in-image-format-giphy-style/"><u>[New] 2024 Approved Concoct Laughter in Image Format, Giphy Style</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-identifying-high-impact-hdr-photography-tools/"><u>[New] 2024 Approved Identifying High-Impact HDR Photography Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-estimating-music-video-production-expenses/"><u>[New] In 2024, Estimating Music Video Production Expenses</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-complete-guide-to-masterful-lunapic-photography/"><u>[Updated] 2024 Approved The Complete Guide to Masterful LunaPic Photography</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-best-start-up-cameras-from-35mm-to-point-shot-for-2024/"><u>[Updated] Best Start-Up Cameras From 35Mm to Point-Shot for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-secret-strategies-to-outshine-with-canva-photos/"><u>[Updated] In 2024, Secret Strategies to Outshine with Canva Photos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-twilight-tales-top-hdr-sky-captures-from-leading-portals/"><u>[Updated] In 2024, Twilight Tales - Top HDR Sky Captures From Leading Portals</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-techniques-selecting-audioscapes-for-unveiling-videos/"><u>2024 Approved Techniques Selecting Audioscapes for Unveiling Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/exclusive-rescue-regaining-fb-passwords/"><u>Exclusive Rescue Regaining FB Passwords</u></a></li>
-<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-infinix-hot-40i-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Infinix Hot 40i Devices | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-how-to-brighten-a-dark-video-on-iphone-3-simple-methods/"><u>In 2024, How to Brighten a Dark Video on Iphone| 3 Simple Methods</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/jumping-into-group-video-calls-the-zoom-way-on-android-for-2024/"><u>Jumping Into Group Video Calls The Zoom Way on Android for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/photoframe-prospectus-essential-list-of-software-sites-and-tools/"><u>Photoframe Prospectus Essential List of Software Sites & Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-profile-visibility-on-fb/"><u>Securing Your Profile Visibility on FB</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/top-10-best-offline-android-games-you-can-find-for-2024/"><u>Top 10 Best Offline Android Games You Can Find for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/understanding-virtual-realitys-basic-words/"><u>Understanding Virtual Reality's Basic Words</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/visionary-ai-digital-editing-app-for-2024/"><u>Visionary AI Digital Editing App for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-user-engagement-through-strategic-tags/"><u>[New] Unlocking User Engagement Through Strategic Tags</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unlock-limitless-space-20-best-free-cloud-platforms-offering-1tbplus/"><u>[Updated] 2024 Approved Unlock Limitless Space 20 Best Free Cloud Platforms Offering 1TB+</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlocking-asmrs-hidden-layers/"><u>[Updated] 2024 Approved Unlocking ASMR's Hidden Layers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-top-8-free-online-havens-for-3d-text-psdfiles/"><u>2024 Approved Top 8 FREE Online Havens for 3D Text PSDFiles</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unlock-audience-attention-top-6-video-styles/"><u>2024 Approved Unlock Audience Attention Top 6 Video Styles</u></a></li>
+<li><a href="https://fox-links.techidaily.com/a-list-steadicams-for-high-quality-dsrl-footage/"><u>A-List Steadicams for High-Quality DSRL Footage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ace-set-of-rotational-recording-devices-for-2024/"><u>Ace Set of Rotational Recording Devices for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/best-free-after-effects-title-templates-for-2024/"><u>Best Free After Effects Title Templates for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-gionee-f3-pro-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Gionee F3 Pro</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-setup-of-your-scansnap-on-a-windows-pc-free-download/"><u>Effortless Setup of Your ScanSnap on a Windows PC - Free Download</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-lost-files-from-vivo-y27s-by-fonelab-android-recover-data/"><u>How to retrieve lost files from Vivo Y27s?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-play-nba-anytime-anywhere-with-these-15-livestream-tips/"><u>In 2024, Play NBA Anytime, Anywhere with These 15 Livestream Tips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-shimmer-shots-the-art-of-setting-the-scene-with-light/"><u>In 2024, Shimmer Shots The Art of Setting the Scene with Light</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/voice-controlled-navigating-of-advanced-ai-systems-chatgpt/"><u>Voice-Controlled Navigating of Advanced AI Systems (ChatGPT)</u></a></li>
 </ul></div>
 

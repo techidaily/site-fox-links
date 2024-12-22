@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, No Experience? No Obstacle  The Ultimate Guide to Profits on Reddit\""
-date: 2024-12-08T01:21:26.858Z
-updated: 2024-12-13T01:39:05.765Z
+date: 2024-12-16T22:53:38.789Z
+updated: 2024-12-22T07:07:18.120Z
 tags: 
   - screen-recording
   - ai video
@@ -69,13 +69,13 @@ Consider this an advantage over so many others looking to make a quick buck.
 
 r/BeerMoney moderators take care of their community. They have rules, making the subreddit more appropriate for new members. It currently has 1.1 million users. You’ll always find hundreds of them active at any time of the day.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. [r/forHire (Find a Job Online)](https://www.reddit.com/r/forhire/)
 
 ![redditors for hire](https://images.wondershare.com/filmora/article-images/2023/01/for-hire-subreddit.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This subreddit gives users a chance to find paying gigs online. It's also a great place to find ongoing work that can even cover most of your living expenses.
 
@@ -83,13 +83,13 @@ This is a severe community with strict guidelines. There's an excellent chance t
 
 In a word, r/forHire is a highly rated subreddit with hundreds of thousands of active members. Just stick to their guidelines and you’ll learn how to make extra money on Reddit in no time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. [r/WorkOnline (Learn Money-Making Skills)](https://www.reddit.com/r/WorkOnline/)
 
 ![find online jobs on reddit](https://images.wondershare.com/filmora/article-images/2023/01/work-online-subreddit.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This is a very useful subreddit where you can learn some new skills. Skills that will help you land a good-paying online job.
 
@@ -129,10 +129,6 @@ And, even better, there's such a thing as minimum pay rates in this community. S
 
 ![graphic designer jobs on reddit](https://images.wondershare.com/filmora/article-images/2023/01/design-jobs-subreddit.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Writing Isn't your strong suit? How about graphic design? Yes, there is a separate subreddit exclusive for designers and those in need of them.
 
 This subreddit has several strict rules that allow skilled graphic designers to be appreciated.
@@ -145,9 +141,17 @@ For example:
 
 Because of this, you will save time looking for a graphic design job. In addition, you can see how much the client is willing to pay and what they need. Easy and simple!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. [r/ProgrammingTasks (Best for Skilled Programmers)](https://www.reddit.com/r/ProgrammingTasks/)
 
 ![programming services and tasks on reddit](https://images.wondershare.com/filmora/article-images/2023/01/programming-tasks-subreddit.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is a similar subreddit to the previous two, but only for programmers. You'll likely find a job here if you have skills of any level.
 
@@ -170,10 +174,6 @@ It's that simple!
 ### 9\. [r/SlaveLabour (Find a Job Online Quickly)](https://www.reddit.com/r/slavelabour/)
 
 ![complete tasks for pay on reddit](https://images.wondershare.com/filmora/article-images/2023/01/slave-labour-subreddit.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This is a popular subreddit with close to 300k members. It is like a freelance site. Here, you can bid on various job offers, complete them, and get paid. Most payments will be low, but they are many and relatively easy to assemble.
 
@@ -199,6 +199,10 @@ It has a community of thousands of members and is among the top 5% of subreddits
 
 Your tasks here include accepting an offer and signing up for whatever they instruct you. Follow the community rules to avoid getting scammed, and you will earn some money.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 11\. [r/Startups (Discuss Startup Problems and Solutions)](https://www.reddit.com/r/startups/)
 
 ![a subreddit for new startup businesses](https://images.wondershare.com/filmora/article-images/2023/01/startups-subreddit.png)
@@ -219,6 +223,10 @@ The rules here are simple and flexible. It would help if you tried to be nice to
 
 ![a subreddit for traders](https://images.wondershare.com/filmora/article-images/2023/01/wallstreetbets-subreddit.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you want to learn new ways to make money on Reddit, this subreddit will introduce you to trading stocks.
 
 It's a massive community of 13 million members. They have a Live Predictions feature where experts help you make more educated trades.
@@ -231,10 +239,6 @@ A few things to keep in mind about this subreddit:
 ### 13\. [r/Jobs4Bitcoins (Get Paid in Crypto)](https://www.reddit.com/r/Jobs4Bitcoins/)
 
 ![jobs paid with crypto on reddit](https://images.wondershare.com/filmora/article-images/2023/01/jobs4bitcoins-subreddit.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Finally, in a world where the money-making potential of crypto is soaring, here's a subreddit you can take advantage of.
 
@@ -310,17 +314,9 @@ Consider this an advantage over so many others looking to make a quick buck.
 
 r/BeerMoney moderators take care of their community. They have rules, making the subreddit more appropriate for new members. It currently has 1.1 million users. You’ll always find hundreds of them active at any time of the day.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. [r/forHire (Find a Job Online)](https://www.reddit.com/r/forhire/)
 
 ![redditors for hire](https://images.wondershare.com/filmora/article-images/2023/01/for-hire-subreddit.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This subreddit gives users a chance to find paying gigs online. It's also a great place to find ongoing work that can even cover most of your living expenses.
 
@@ -341,10 +337,6 @@ Unlike the clutter of Google and Youtube, subreddits like these only talk about 
 ### 4\. [r/Freelance (Like Upwork and Fiverr, but Easier)](https://www.reddit.com/r/freelance/)
 
 ![freelancing subreddit](https://images.wondershare.com/filmora/article-images/2023/01/freelance-subreddit.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The r/Freelance subreddit is a massive source of knowledge for freelancers. It's the perfect place to learn about launching a successful freelance career.
 
@@ -370,13 +362,13 @@ The BEST part about r/HireAWriter is that **all hiring posts must include a pay 
 
 And, even better, there's such a thing as minimum pay rates in this community. So, no shoddy work here that will waste your time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. [r/DesignJobs (Get Paid for Your Designs)](https://www.reddit.com/r/DesignJobs/)
 
 ![graphic designer jobs on reddit](https://images.wondershare.com/filmora/article-images/2023/01/design-jobs-subreddit.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Writing Isn't your strong suit? How about graphic design? Yes, there is a separate subreddit exclusive for designers and those in need of them.
 
@@ -394,15 +386,15 @@ Because of this, you will save time looking for a graphic design job. In additio
 
 ![programming services and tasks on reddit](https://images.wondershare.com/filmora/article-images/2023/01/programming-tasks-subreddit.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is a similar subreddit to the previous two, but only for programmers. You'll likely find a job here if you have skills of any level.
 
 The concept is also the same as with the previous subreddits. You can post that you're looking for a job or apply to already posted offers inside.
 
 However, the rules here can be a bit stricter. You're only allowed to post one offer every twenty days. Anything more than that, and you get banned.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. [r/QMEE (Easiest Way to Make Money)](https://www.reddit.com/r/QMEE/)
 
@@ -415,6 +407,10 @@ So, QMEE offers people the chance to earn extra money on Reddit by doing simple 
 All you must do is sign-up and start clicking away every time QMEE sends you a task to complete. Then, you collect your earnings and spend them in any way you wish.
 
 It's that simple!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. [r/SlaveLabour (Find a Job Online Quickly)](https://www.reddit.com/r/slavelabour/)
 
@@ -517,6 +513,10 @@ Yes, you can create your own subreddit on Reddit where you can invite people to 
 
 This can be a delicate subject when it comes to Reddit. Especially for a new account. Try to get at least 500 karma points and age your account a few months before posting affiliate links on Reddit. Also, do not spam them or you will get banned.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Can you get paid directly by Reddit?
 
 No, Reddit doesn't pay its members for using the platform. It's just a place where users can meet, talk, and do business. You can find jobs that pay through Reddit but need help getting paid by Reddit.
@@ -553,24 +553,20 @@ Reddit offers endless opportunities to make money online. Unfortunately, it take
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-tasty-trailblazers-culinary-youtube-icons/"><u>[New] 2024 Approved Tasty Trailblazers Culinary YouTube Icons</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-expert-guide-to-progressive-volume-reduction-with-logic-pro/"><u>[New] In 2024, Expert Guide to Progressive Volume Reduction with Logic Pro</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-10-powerful-igtv-video-tips-for-amplified-brand-impact/"><u>[Updated] 2024 Approved 10 Powerful IGTV Video Tips for Amplified Brand Impact</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-embedding-yt-audio-into-film-formats/"><u>[Updated] Embedding YT Audio Into Film Formats</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-navigating-gif-storage-and-use-in-the-digital-age-iphone/"><u>[Updated] In 2024, Navigating GIF Storage and Use in the Digital Age (iPhone)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-short-storyboard-scheme/"><u>[Updated] Short Storyboard Scheme</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-21-edition-exploration-mastering-vegas-pro-for-gambling/"><u>2024 Approved '21 Edition Exploration – Mastering Vegas Pro for Gambling</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-audio-memo-fundamentals-a-complete-guidebook/"><u>2024 Approved Audio Memo Fundamentals A Complete Guidebook</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-intuitive-audio-fading-strategies-with-garageband/"><u>2024 Approved Intuitive Audio Fading Strategies with Garageband</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/2024-approved-unite-in-style-the-bestdiscords-batch-of-top-10-themes/"><u>2024 Approved Unite in Style The BestDiscord's Batch of Top 10 Themes</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/critical-review-of-best-fb-video-plays-for-2024/"><u>Critical Review of Best FB Video Plays for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-4k-resolution-unveiled-in-chroma-focused-lenses/"><u>In 2024, 4K Resolution Unveiled in Chroma-Focused Lenses</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-crafting-compelling-podcast-names-a-detailed-guide-with-idea-examples/"><u>In 2024, Crafting Compelling Podcast Names A Detailed Guide with Idea Examples</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-leading-makers-premium-instagram-highlight-craftsmen/"><u>In 2024, Leading Makers Premium Instagram Highlight Craftsmen</u></a></li>
-<li><a href="https://fox-links.techidaily.com/insiders-guide-to-the-best-6-harnesses-for-capturing-life-with-gopro/"><u>Insider's Guide to the Best 6 Harnesses for Capturing Life with GOPRO</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-mobile-photography-elevate-your-iphoneipad-shots/"><u>Mastering Mobile Photography: Elevate Your iPhone/iPad Shots</u></a></li>
-<li><a href="https://discover-community.techidaily.com/resolving-video-stutters-and-lag-in-mkv-files-on-vlc-and-compatible-media-players/"><u>Resolving Video Stutters & Lag in MKV Files on VLC & Compatible Media Players</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tiny-and-tough-the-new-g7x-mark-ii-camera/"><u>Tiny and Tough - The New G7X Mark II Camera</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-fixing-a-malfunctioning-realtek-microphone/"><u>Troubleshooting Steps: Fixing a Malfunctioning Realtek Microphone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-a-beginners-guide-to-producing-and-polishing-haul-videos/"><u>[New] 2024 Approved A Beginner's Guide to Producing & Polishing Haul Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-expert-reviews-on-top-6-hdmi-21-display-models/"><u>[New] Expert Reviews on Top 6 HDMI 2.1 Display Models</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-ultimate-guide-to-selective-mounting-gopros-best-6-helmet-accessories/"><u>[New] In 2024, The Ultimate Guide to Selective Mounting GoPro's Best 6 Helmet Accessories</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-rethinking-recipes-squared-up-tutorials-for-youtube-and-facebook-success/"><u>[New] Rethinking Recipes Squared-Up Tutorials for YouTube and Facebook Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-conquer-the-social-scene-top-tools-for-post-and-follower-boost-for-2024/"><u>[Updated] Conquer the Social Scene Top Tools for Post and Follower Boost for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-essential-11-zero-cost-youtube-moniker-makers-for-2024/"><u>[Updated] Essential 11 Zero-Cost YouTube Moniker Makers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-picks-hd-cameras-under-100-for-extreme-sports/"><u>[Updated] In 2024, Top Picks HD Cameras Under $100 for Extreme Sports</u></a></li>
+<li><a href="https://video-capture.techidaily.com/beginners-guide-to-io-screen-video/"><u>Beginner's Guide to IO Screen Video</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-professionals-palette-prowess-color-command-secrets/"><u>In 2024, Professionals' Palette Prowess - Color Command Secrets</u></a></li>
+<li><a href="https://fox-links.techidaily.com/masterpieces-without-barriers-publicly-available-artwork/"><u>Masterpieces Without Barriers Publicly Available Artwork</u></a></li>
+<li><a href="https://fox-links.techidaily.com/sony-blu-ray-player-s3700-analysis-updated-for-2024/"><u>Sony Blu-Ray Player S3700 Analysis (Updated) for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/ultimate-guide-mastering-top-quality-prints-from-heic-images/"><u>Ultimate Guide: Mastering Top-Quality Prints From HEIC Images</u></a></li>
+<li><a href="https://fox-links.techidaily.com/uncover-the-best-online-church-streaming-options-for-2024/"><u>Uncover The Best Online Church Streaming Options for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/vivid-visions-elevating-your-photographic-skills/"><u>Vivid Visions Elevating Your Photographic Skills</u></a></li>
 </ul></div>
 

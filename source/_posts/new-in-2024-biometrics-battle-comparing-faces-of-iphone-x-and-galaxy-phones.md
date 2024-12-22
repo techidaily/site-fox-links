@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Biometrics Battle  Comparing Faces of iPhone X & Galaxy Phones\""
-date: 2024-08-23T03:10:46.697Z
-updated: 2024-08-24T03:10:46.697Z
+date: 2024-12-14T19:41:48.748Z
+updated: 2024-12-22T08:14:32.109Z
 tags: 
   - screen-recording
   - ai video
@@ -56,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: The Common Inconvenience
 
  When it comes to practicality, we would state that both the phone don’t stand well for it. This is because if you use Apple’s latest invention i.e. iPhone X, you are required to first hold your device in your hand followed by looking at the screen. Then you need to swipe it up for unlocking the device.
@@ -69,12 +70,13 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -86,15 +88,13 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
  All in all, both the companies have put extra effort in justifying the safety with trending face recognition technology. However, we are not certain for full reliability of them.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
  The technology of facial recognition isn’t new to us and it has made people excited from the time it has come. However, many users have not started using the technology yet. We hope that this functionality will gain the popularity with time and people will start to make use of it.
@@ -102,8 +102,9 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -127,4 +128,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-sensational-jokes-ranking-the-viral-ones/"><u>[New] Sensational Jokes Ranking the Viral Ones</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-lightning-speed-view-for-windows-photos/"><u>[Updated] Lightning Speed View for Windows Photos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-advanced-color-correction-utilizing-luts-in-ae/"><u>2024 Approved Advanced Color Correction Utilizing LUTs in AE</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-affordable-asmr-magic-quality-audio-on-a-budget/"><u>2024 Approved Affordable ASMR Magic Quality Audio on a Budget</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-audio-interpretation-software-zero-cost-version/"><u>2024 Approved Audio Interpretation Software – Zero Cost Version</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-bring-your-footage-to-life-master-the-art-with-these-11-color-edits/"><u>2024 Approved Bring Your Footage to Life Master the Art with These 11 Color Edits</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-efficient-photographic-snipping-techniques-windows-11/"><u>2024 Approved Efficient Photographic Snipping Techniques, Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-exploring-mozillas-split-screen-technique-in-firefox/"><u>2024 Approved Exploring Mozilla's Split Screen Technique in Firefox</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-funimate-masterclass-gameplay-enhancement/"><u>2024 Approved Funimate Masterclass Gameplay Enhancement</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-spice-up-content-kapwings-meme-builder/"><u>2024 Approved Spice Up Content Kapwing's Meme Builder</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-strategic-advantages-in-business-with-vr-tech/"><u>2024 Approved Strategic Advantages in Business with VR Tech</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-outro-complete-guide-plusbest-makers-and-templates/"><u>2024 Approved YouTube Outro Complete Guide [+Best Makers & Templates]</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-the-code-43-error-on-your-gtx-950-under-windows-10-detailed-guide/"><u>Fixing the Code 43 Error on Your GTX 950 Under Windows 10 [Detailed Guide]</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723210496398-simple-fixes-for-windows-11-users-struggling-with-the-disappearing-bluetooth-feature/"><u>Simple Fixes for Windows 11 Users Struggling with the Disappearing Bluetooth Feature</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-guide-converting-audio-video-recordings-arf-to-wmv-format-on-windows-11-and-macos/"><u>Step-by-Step Guide: Converting Audio Video Recordings (ARF) to WMV Format on Windows 11 & macOS</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-ultimate-guide-to-microphone-setup-in-audacity-for-mac/"><u>The Ultimate Guide to Microphone Setup in Audacity for Mac</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-5-affordable-pinterest-video-downloaders-unveiled/"><u>Top 5 Affordable, Pinterest Video Downloaders Unveiled</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlocking-iphone-15-pro-lock-screen-3-foolproof-methods-that-actually-work-drfone-by-drfone-ios/"><u>Unlocking iPhone 15 Pro Lock Screen 3 Foolproof Methods that Actually Work | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unraveling-the-mysteries-paperclip-maximizers-and-their-role-in-evolving-artificial-intelligence/"><u>Unraveling the Mysteries: Paperclip Maximizers and Their Role in Evolving Artificial Intelligence</u></a></li>
+</ul></div>
 

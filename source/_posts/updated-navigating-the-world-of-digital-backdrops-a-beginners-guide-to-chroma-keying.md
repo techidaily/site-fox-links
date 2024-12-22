@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating the World of Digital Backdrops  A Beginner's Guide to Chroma Keying\""
-date: 2024-12-10T17:44:29.896Z
-updated: 2024-12-13T09:25:03.550Z
+date: 2024-12-19T06:11:38.262Z
+updated: 2024-12-22T00:12:45.663Z
 tags: 
   - screen-recording
   - ai video
@@ -49,7 +49,7 @@ For the most part, the process is fairly simple. It only becomes difficult when 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is a Green Screen?
@@ -59,6 +59,10 @@ The term “Green Screen” is used to describe a camera and editing trick. A la
 Green screening doesn't always happen in the editing room. For example, weather channels and services have used green screen in the moment. For many years, when a weather reporter was pointing at a board, the reporter couldn’t see what was on the board, only the people at home could see.
 
 The misuse of colors sometimes led to series bloopers, such as when the weather reporter wore the same color shirt as the green screen. It sometimes resulted in part of the weather map being superimposed onto the weather reporter.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Do Video Makers Use Green Screen?
 
@@ -82,10 +86,6 @@ You can discard the background and all the unwanted people. What is left over is
 
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/how-do-green-screens-work.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Green Screening Does Not Have to Include the Color Green
 
 You can green screen by adding a certain color into the scene. Make it a color that is not seen elsewhere in the scene. Typically, this color is added as a canvas behind the screen, but it doesn't have to work that way.
@@ -97,10 +97,6 @@ For example, you could use the color on somebody’s boots, and then edit out an
 Once you have added your color to the scene, you must record the scene as normal. Then, in the editing phase, you isolate a single color. The color you isolate is the green screen color, (whichever you chose). In the scene, you make that color transparent. This means that there are frames with transparent elements in them. This process is called chromakeying.
 
 Once you have used chromakeying make a certain part of the frame transparent, you can replace that transparency with another image. When building a background, the image is sometimes a piece of video footage or a still image. Other times a visual effect is used such as CGI to make something appear to be in the scene, but is actually not.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Set Up Your Green Screen Scene in 5 Steps?
 
@@ -145,7 +141,7 @@ You also need to think about individual lighting and how it creates shadows. The
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/green-screen-ideas-movie.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 5: Post-editing
@@ -191,7 +187,7 @@ Just make sure you make correct and smart choices when you decide to add in extr
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/green-screen-ideas-masks.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Green Screen Ideas Need Not Exist Just in Videos**
@@ -211,6 +207,10 @@ The truth is that many different tools can be used to edit frames and replace el
 The tools that make green screening easy are often very expensive, but many of them come with a free trial that you can use prior to buying. For example, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes with a free trial for both Microsoft and Apple desktop products. There are also tools like the VSDC Video Editor, iMovie, Virtual Dub and so forth.
 
 Do not be fooled by article that claim they list free Chroma key or green screening tools. Firstly, the genuinely free tools, such as the open source tools like Blender, are very labor intensive. Secondly, such articles are claiming the green-screening tools are free, but they only have free trials, you will be required to pay if you want to use the tools over the long term.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The 3 Best Green Screen Video Editors
 
@@ -246,13 +246,13 @@ It's free to download. Have a try now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2. [iMovie](https://www.apple.com/uk/imovie/)
 
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/iMovie-Interface.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The iMovie program is the cheap and tacky entry in the video editing world. It is only available on the iOS and Mac, and is mostly suited for people who do not want to spend a lot of money on their video editing software.
 
@@ -281,7 +281,7 @@ The iMovie program is the cheap and tacky entry in the video editing world. It i
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/lightworks-interface.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Despite having a few advanced tools, this is probably the best example of bad design and marketing ideas in the video editing world. The free version is so clunky and awful that nobody would agree to buy the premium version. Furthermore, the GUI is terrible and very unintuitive. It looks like a cheap update of a 1990s editor.
@@ -355,21 +355,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-innovation-in-iphone-filmmaking-virtual-worlds/"><u>[New] In 2024, Innovation in iPhone Filmmaking Virtual Worlds</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-ultimate-motion-capturer-polaroids-camplus-action-wrap-up/"><u>[Updated] 2024 Approved The Ultimate Motion Capturer Polaroid's Cam+ Action Wrap-Up</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-picture-perfectionism-top-tools-and-sites-for-superior-photo-frames/"><u>[Updated] In 2024, Picture Perfectionism Top Tools & Sites for Superior Photo Frames</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-unlocking-new-windows-11-potentials/"><u>[Updated] In 2024, Unlocking New Windows 11 Potentials</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-x-treme-selfies-vintage-iphone-x-pics-for-2024/"><u>[Updated] X-Treme Selfies Vintage iPhone X Pics for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/crafting-immaculate-circular-and-spherical-shapes-in-minecraft-for-2024/"><u>Crafting Immaculate Circular and Spherical Shapes in Minecraft for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/easy-guide-sending-video-messages-on-skype-and-whatsapp/"><u>Easy Guide: Sending Video Messages on Skype and WhatsApp</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-capturing-photographs-from-movies-in-windows-photos-app-for-savvy-users/"><u>In 2024, Capturing Photographs From Movies in Windows Photos App for Savvy Users</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-tecno-pop-7-pro-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Tecno Pop 7 Pro Lock Screen Password?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Vivo Y200? | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-quick-tips-speeding-up-video-playback-on-snapchat-for-novices/"><u>In 2024, Quick Tips Speeding Up Video Playback on Snapchat for Novices</u></a></li>
-<li><a href="https://article-posts.techidaily.com/innovating-temporal-displacement-effects-for-2024/"><u>Innovating Temporal Displacement Effects for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-fake-it-top-online-face-generators-for-creating-artificial-faces/"><u>New Fake It! Top Online Face Generators for Creating Artificial Faces</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/prime-picks-best-photo-displayers-for-2024/"><u>Prime Picks Best Photo Displayers for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-your-lenovo-trackpad-problems-on-older-versions-of-windows-xp-to-10/"><u>Solving Your Lenovo Trackpad Problems on Older Versions of Windows (XP to 10)</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-epson-xp-640-drivers-update-for-windows-users/"><u>Step-by-Step Guide: Epson XP-640 Drivers Update for Windows Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-elevate-your-experience-with-these-11-must-haves/"><u>[New] In 2024, Elevate Your Experience with These 11 Must-Haves</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-complete-untapped-potential-of-dji-phantom-4-for-2024/"><u>[New] The Complete Untapped Potential of DJI Phantom 4 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-casino-confidential-communiques-for-2024/"><u>[Updated] CASINO CONFIDENTIAL COMMUNIQUES for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-instatrends-update-staying-ahead-with-fresh-reel-ideas/"><u>[Updated] In 2024, InstaTrends Update Staying Ahead with Fresh Reel Ideas</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unlocking-the-potential-of-youtube-shorts-a-comprehensive-tutorial/"><u>[Updated] In 2024, Unlocking the Potential of YouTube Shorts A Comprehensive Tutorial</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-understanding-luts-to-amplify-your-photo-quality-for-2024/"><u>[Updated] Understanding LUTs to Amplify Your Photo Quality for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/10-tips-for-teachers-creating-a-youtube-channel-for-2024/"><u>10 Tips for Teachers Creating a YouTube Channel for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-decoding-instagrams-max-video-content/"><u>2024 Approved Decoding Instagram's Max Video Content</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-oneplus-nord-ce-3-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For OnePlus Nord CE 3 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boosting-your-home-office-efficiency-with-chatgpt-six-essential-tips/"><u>Boosting Your Home Office Efficiency with ChatGPT: Six Essential Tips</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/easily-convert-your-asf-media-formats-into-anything-you-need-using-the-movavi-video-converter/"><u>Easily Convert Your ASF Media Formats Into Anything You Need - Using the Movavi Video Converter</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Itel P55 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-perfecting-your-srt-file-dispatch-for-maximum-social-exposure/"><u>In 2024, Perfecting Your SRT File Dispatch for Maximum Social Exposure</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-procleanse-top-tier-background-removal-tool/"><u>In 2024, ProCleanse Top-Tier Background Removal Tool</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-smart-shopping-guide-to-best-5k-screens-8/"><u>In 2024, Smart Shopping Guide to Best 5K Screens #8</u></a></li>
+<li><a href="https://fox-links.techidaily.com/superior-graphics-processors-in-4k-territory/"><u>Superior Graphics Processors in 4K Territory</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/top-kostengunstige-ersatzprodukte-fur-resilio-sync-aomei-backupper-rezensionen/"><u>Top Kostengünstige Ersatzprodukte Für Resilio Sync : AOMEI Backupper Rezensionen</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Soaring Above Limits  Hubsan's New H501S X4 Examined\""
-date: 2024-08-23T03:12:54.259Z
-updated: 2024-08-24T03:12:54.259Z
+date: 2024-12-21T06:21:16.406Z
+updated: 2024-12-22T02:01:42.486Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
 [Check at Amazon](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa
 )
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and Cons
 
  **Pros:**
@@ -57,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
 #### Verdict
 
  Hubsan H105S X4 is one of the best drone unit with reasonable price range. It is simply the best package with all advanced features including built in GPS. Even if you are a beginner then you will find this drone a good starter.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Complete Review for Hubsan H501S X4
 
@@ -108,6 +116,10 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
 
 ![hubsan h501S x4 controller](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4-controller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The Hubsan H501S X4 controller is designed with 4.3 LCD screen and it helps users to enjoy FPV camera operation with ease. This LCD screen can display all telemetry data for flights. It works on 5.8 GHz range to send video signals into MicroSD card whereas the controller itself works on 2.4 GHz frequency range.
 
 #### 6. Brushless Motors
@@ -120,6 +132,10 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
 
 ![hubsan h501s x4 brushless camera](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you are in search of a drone with great camera setup then you will be impressed with Hubsan X4 results. It captures stills with 1080p resolution and live videos need 5.8 GHz frequency from controller and you can view them directly on 4.3” built in screen of controller unit. All photos and videos are directly saved into MicroSD card.
 
 #### Conclusion
@@ -127,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
  Wide range of impressive features have been covered in Hubsan H501S X4 review above so that buyers can make best decision about whether it fits their needs or not. Are you a beginner in the drone world? Then you may need to learn few tactics before arranging your first flight. This specially designed drone unit can also be a good choice for gift to someone you really love. Update your opinion so that we can have discussions about what drones are suitable for your general needs. Also, prefer to bookmark our page so that you can easily go through regular updates about drones and their flying tips. Have a great time with your new drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -151,8 +171,23 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-pinnacle-platforms-alternatives-to-the-oldest-birdcalls/"><u>[New] 2024 Approved Pinnacle Platforms Alternatives to the Oldest Birdcalls</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-techniques-to-boost-pc-audio-recording-efficiency/"><u>[New] Techniques to Boost PC Audio Recording Efficiency</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instagram-videography-tips-optimal-sizes-and-formats/"><u>[Updated] 2024 Approved Instagram Videography Tips Optimal Sizes & Formats</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-iphone-shutterbug-secrets-perfecting-reflections-in-water/"><u>[Updated] IPhone Shutterbug Secrets Perfecting Reflections in Water</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-list-of-best-hashtags-for-yt-view-spikes/"><u>[Updated] The Ultimate List of Best Hashtags for YT View Spikes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-asmr-a-sound-path-to-wellness/"><u>2024 Approved ASMR A Sound Path to Wellness?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-close-up-cinematic-magic-with-kinemaster-software/"><u>2024 Approved Close-Up Cinematic Magic with Kinemaster Software</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-elevate-phone-communication-a-step-by-step-guide-on-downloading-and-customizing-whatsapp-ringtones/"><u>2024 Approved Elevate Phone Communication A Step-By-Step Guide on Downloading & Customizing WhatsApp Ringtones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-leveraging-cross-functional-collaboration-for-comprehensive-market-research/"><u>2024 Approved Leveraging Cross-Functional Collaboration for Comprehensive Market Research</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-maximizing-chances-to-engage-premier-filmmakers/"><u>2024 Approved Maximizing Chances to Engage Premier Filmmakers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-precision-and-excellence-a-guide-to-professional-audacity-recordings/"><u>2024 Approved Precision and Excellence A Guide to Professional Audacity Recordings</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-pursuit-of-perfection-zooming-into-high-quality-video/"><u>2024 Approved Pursuit of Perfection Zooming Into High-Quality Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-design-a-great-gaming-youtube-banner-with-templates/"><u>How to Design a Great Gaming YouTube Banner with Templates</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-shotchrome-intrinsic-recorder-for-os-x/"><u>In 2024, ShotChrome Intrinsic Recorder for OS X</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ios-174-update-apple-introduces-podcast-text-support-fresh-emoji-lineup-and-european-app-store-relaunch-the-latest-insights/"><u>IOS 17.4 Update: Apple Introduces Podcast Text Support, Fresh Emoji Lineup & European App Store Relaunch - The Latest Insights</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/vllo-feedback-compilation/"><u>VLLO Feedback Compilation</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
