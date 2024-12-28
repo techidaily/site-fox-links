@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Top 10 Lifters  Drones That Move Mountains for 2024\""
-date: 2024-08-23T03:07:42.178Z
-updated: 2024-08-24T03:07:42.178Z
+date: 2024-12-26T21:37:52.017Z
+updated: 2024-12-27T19:49:30.783Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,10 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 
 ![tarot t-18 ready to fly drone](https://images.wondershare.com/filmora/article-images/tarot-t-18-ready-to-fly-drone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The Tarot T-18 Ready To Fly Drone might just be the ideal drone for those (professional or amateur) who are looking to take outstanding, aerial photography with a decent sized DSLR, thanks to its capability of carrying up to an 8 kg payload. Thanks to the Tarot T-18's octocopter design, a heavy DSLR (or any other payload) will not cause stability or power issues that can come from single-, or even double-rotor drones. With a 20 min. flight time, the Tarot T-18 can be the perfect tool to add to any aerial photographers tool chest.
 
 #### 2\. [DJI S900](https://www.amazon.com/gp/product/B00MEBTDRY/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00MEBTDRY&linkId=66e45295337a54bff961119800e62cb4)
@@ -90,18 +94,12 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### Heavy lifting Drones: Over-10kg payload
 
 #### 1\. Vulcan UAV Airlift
 
 ![vulcan uav airlift](https://images.wondershare.com/filmora/article-images/vulcan-uav-airlift.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The Airlift series is one of Vulcan's heaviest lifting drones to date. With the ability to lift and move a payload of about 30 kg, this drone has a tough, and durable frame that allows it to display such extraordinary strength and grace. Its central core is made of transparent tubes which allow users to easily check in on the power systems, while also making sure that all vitals are protected, which makes the Vulcan UAV Airlift the ideal machine for working in rugged environments.
 
 #### 2\. AZ 4K UHD Camera Drone Green Bee 1200
@@ -109,17 +107,15 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
 
 #### 3\. Vulcan UAV Raven
 
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
 
 #### 4\. [FREEFLY ALTA 8](https://www.amazon.com/gp/product/B01IPYJM8I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01IPYJM8I&linkId=94a786b60aab874baf4feb7315107813)
@@ -134,18 +130,24 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -169,4 +171,24 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-echoing-ethos-with-closing-credits/"><u>[New] 2024 Approved Echoing Ethos with Closing Credits</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-inside-kinemaster-the-ultimate-guide-to-its-android-avatar/"><u>[New] 2024 Approved Inside KineMaster The Ultimate Guide to Its Android Avatar</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-future-of-wagering-vegas-pros-evolution-in-21/"><u>[New] 2024 Approved The Future of Wagering Vegas Pro's Evolution in '21</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-effortless-documentation-speech-to-text-conversion-via-microsoft-word/"><u>[New] Effortless Documentation Speech-to-Text Conversion via Microsoft Word</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-grasping-the-heart-of-narrative-design-for-2024/"><u>[New] Grasping the Heart of Narrative Design for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-draft-to-edit-essential-film-techniques-via-youtube/"><u>[New] In 2024, From Draft to Edit Essential Film Techniques via YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-fists-fighting-fames-flame/"><u>[Updated] 2024 Approved Fists Fighting Fame's Flame</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-9-best-4k-monitors-for-video-editing-for-2024/"><u>[Updated] 9 Best 4K Monitors for Video Editing for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-deconstructing-the-revenue-stream-of-tseries-in-youtube-economy-for-2024/"><u>[Updated] Deconstructing the Revenue Stream of TSeries in YouTube Economy for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-transforming-visual-narratives-with-creative-use-of-luts-in-pro/"><u>[Updated] In 2024, Transforming Visual Narratives with Creative Use of LUTs in Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-secrets-to-polished-photo-edits-in-canva/"><u>[Updated] The Secrets to Polished Photo Edits in Canva</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-augmenting-creativity-with-the-best-ai-for-podcast-names/"><u>2024 Approved Augmenting Creativity with the Best AI for Podcast Names</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pro-3-analysis-how-ion-is-redefining-the-action-video-landscape/"><u>2024 Approved Pro 3 Analysis - How ION Is Redefining the Action Video Landscape</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-7-mac-friendly-video-players-reviewed/"><u>2024 Approved Top 7 Mac-Friendly Video Players Reviewed</u></a></li>
+<li><a href="https://some-tips.techidaily.com/introducing-the-new-era-awss-ec2-m1-mac-server-instances-now-in-beta-mode-wired/"><u>Introducing the New Era: AWS's EC2 M1 Mac Server Instances Now in Beta Mode | Wired</u></a></li>
+<li><a href="https://fox-links.techidaily.com/sketch-up-your-ideas-an-essential-guide-to-the-top-8-drawing-tools-on-ios-for-2024/"><u>Sketch Up Your Ideas An Essential Guide to the Top 8 Drawing Tools on iOS for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-tiered-learning-experience-our-top-3-for-language-proficiency/"><u>Triple-Tiered Learning Experience: Our Top 3 for Language Proficiency</u></a></li>
+</ul></div>
 

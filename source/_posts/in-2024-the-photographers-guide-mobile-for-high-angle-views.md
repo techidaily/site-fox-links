@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Photographer's Guide  Mobile for High-Angle Views\""
-date: 2024-08-23T03:08:35.026Z
-updated: 2024-08-24T03:08:35.026Z
+date: 2024-12-24T01:16:16.731Z
+updated: 2024-12-28T00:55:10.822Z
 tags: 
   - screen-recording
   - ai video
@@ -48,14 +48,19 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### For Android users
 
  To capture vertical panorama on Android, the steps are given just below.
@@ -66,8 +71,9 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
@@ -75,8 +81,9 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Some Beneficial Tips for shooting vertical panorama photo
 
 * Firstly, we would suggest you using a tripod when you need to take **vertical panorama on iPhone** or Android smoothly i.e. to avoid shakiness.
@@ -87,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -112,4 +120,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-personalize-perfect-and-play-the-ultimate-guide-for-android-sound-choices/"><u>[Updated] 2024 Approved Personalize, Perfect, and Play The Ultimate Guide for Android Sound Choices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-how-to-record-a-podcast-on-iphone-or-ipad-best-for-interviews-and-travel/"><u>[Updated] How To Record a Podcast on iPhone or iPad (Best for Interviews & Travel)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-iconic-quests-and-thrills-a-curated-list-of-classics/"><u>[Updated] In 2024, Iconic Quests & Thrills A Curated List of Classics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-lightning-fast-photo-reader-for-pcs/"><u>[Updated] In 2024, Lightning-Fast Photo Reader for PCs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-youtube-to-mpeg-success-stories-expert-advice-and-tips/"><u>[Updated] In 2024, YouTube-to-MPEG Success Stories Expert Advice and Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-virtual-playground-the-ultimate-samsung-gear-vr-list/"><u>[Updated] Virtual Playground The Ultimate Samsung Gear VR List</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/1-how-to-create-a-cloned-bootable-usb-on-any-system-windows-11-10-8-and-7/"><u>1. How to Create a Cloned Bootable USB on Any System: Windows 11, 10, 8 & 7</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-samsung-galaxy-s23-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-crafting-tomorrows-teachers-today-through-vr/"><u>In 2024, Crafting Tomorrow’s Teachers, Today Through VR</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-xiaomi-redmi-note-12-5g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Xiaomi Redmi Note 12 5G – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/1720063277714-windows-usb-hub-troubleshooting-guide-fixed/"><u>Windows USB Hub Troubleshooting Guide - Fixed!</u></a></li>
+</ul></div>
 

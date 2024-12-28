@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Generating Funny Images Through Adobe for 2024"
-date: 2024-08-23T03:04:59.010Z
-updated: 2024-08-24T03:04:59.010Z
+date: 2024-12-20T23:35:19.257Z
+updated: 2024-12-28T01:05:18.096Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,10 @@ Step3 There are a number of actions that can be applied on the template, in the 
 
 ![video templates adobe express](https://images.wondershare.com/filmora/article-images/2022/07/video-templates-adobe-express.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Even if you do not download it, it will be stored in the Adobe cloud and you can retrieve it anywhere using your email login.
 
 ## Part 2: Using Photoshop for Meme Making
@@ -60,9 +64,17 @@ Step1 Launch a new Photoshop project. Set your image's dimensions to any appropr
 
 ![open new docs ps](https://images.wondershare.com/filmora/article-images/2022/07/open-new-docs-ps.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Download the image you want to use and drag it onto the Photoshop workspace. Select your image in the layer panel after that, then adjust the image's size to fit in the appropriate location. Create the text and place it above the picture. Use the Duplicate Layer option to duplicate the top text rather than writing the bottom content.
 
 ![drag image to workplace ps](https://images.wondershare.com/filmora/article-images/2022/07/drag-image-to-workplace-ps.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 The meme can then be enhanced by applying different actions after selection. Any layer can be accessed. By double clicking on a specific layer, you can select blending parameters like outer glow, stroke, drop shadow, etc.
 
@@ -74,31 +86,26 @@ Adobe After Effects is normally used for staging of a film, video game, and tele
 
 ![create meme in after effects](https://images.wondershare.com/filmora/article-images/2022/07/create-meme-in-after-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 **Steps to Use Adobe After Effects as Meme Maker**
 
 Step1 Open a brand-new After Effects document. And set your image's dimensions to any suitable size, preferably 700 by 700 pixels (for memes), to have enough space. In the image below, the file has been selected.
 
 ![set image after effects](https://images.wondershare.com/filmora/article-images/2022/07/set-image-after-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 Step2 If you want to adjust the size of the background layer, you can unlock it by clicking twice. Drag the desired image onto the After Effects workspace, after uploading it.
 
 Step3 Select your image in the layer panel and then change its size to fit in the required spot. Write the text for the top of the image. Instead of typing the bottom content, use the Duplicate Layer option to duplicate the top text and then change it, as required.
 
 ![change image size ae](https://images.wondershare.com/filmora/article-images/2022/07/change-image-size-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 After embellishments, you can save the file in your desired extension: By clicking on the file button and saving it.
 
 ![save meme file ae](https://images.wondershare.com/filmora/article-images/2022/07/save-meme-file-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Part 4: Using Adobe Premiere Pro to Create Meme
 
 Adobe Premiere Pro, created by Adobe Inc. is a non-linear video editing product having a timeline working space for the assistance of the user. It was released as a part of the Adobe Creative Cloud licensing scheme. Adobe Premiere Pro is the replacement for Adobe Premiere. All typical video editing functions required to create broadcast-quality, high-definition video can be completed with Premiere Pro.
@@ -113,23 +120,18 @@ Step1 By clicking on ‘project’, launch a new Premiere Pro project Set the di
 
 ![launch new project pr](https://images.wondershare.com/filmora/article-images/2022/07/launch-new-project-pr.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 Step2 After downloading the selected image, drag it onto the Premiere pro workspace. After choosing your image in the layer panel, adjust its size to make it fit in the designated area.
 
 ![adjust image premiere](https://images.wondershare.com/filmora/article-images/2022/07/adjust-image-premiere.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Step3 Create the project by clicking on ‘create’ which will complete the work.
 
 ![start creating meme premiere](https://images.wondershare.com/filmora/article-images/2022/07/start-creating-meme-premiere.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5: Adobe Alternative to Create Memes - [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 An application software compatible with both MAC and Windows is [Wondershare's Filmora](https://tools.techidaily.com/wondershare/filmora/download/). it is a well-known and comprehensive video editor. Designed under the guidance of professional video makers. With the help of this technology, we can easily create memes and excel in the entertainment industry. Its interface is incredibly user-friendly, and the instructions are simple to follow.
@@ -148,17 +150,14 @@ Step1 Open the Filmora meme maker on your browser. Drag or upload your file on t
 
 ![open filmora meme maker](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 Step2 Add your desired text and put it in the right position.
 
 ![add desired text](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Step3 Complete your meme and download it.
 
 ![complete meme and download it](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
@@ -177,6 +176,10 @@ Step1 Open the Filmora meme maker on your browser. Drag or upload your file on t
 
 ![open filmora meme maker](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Add your desired text and put it in the right position.
 
 ![add desired text](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
@@ -186,8 +189,13 @@ Step3 Complete your meme and download it.
 ![complete meme and download it](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Bottom Line
 
 There are a number of different tools available on internet for meme making. And from this article, it is clear that they are quite easily available. Adobe has been the uncrowned king of media applications. All the adobe tools which were mentioned in this article are very meticulously crafted, each tool has its own extensive detail and requires good practice to understand it. Because of this vast functionality and very detailed setting, Adobe tools are difficult to use at first but with practice they prove to be the best of all. But for a quick job or a first timer, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is much simpler and easier to work with.
@@ -214,4 +222,24 @@ There are a number of different tools available on internet for meme making. And
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-from-screenshot-to-ringtone-your-guide-to-tiktok-song-selection/"><u>[New] From Screenshot to Ringtone Your Guide to TikTok Song Selection</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-complete-picture-toolwizs-app-masterclass-for-2024/"><u>[New] The Complete Picture Toolwiz's App Masterclass for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-secure-and-simple-the-top-10-trusted-online-transformers/"><u>[Updated] 2024 Approved Secure and Simple The Top 10 Trusted Online Transformers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ultra-30-review-the-virb-action-cam-for-adventurers/"><u>[Updated] 2024 Approved Ultra 30 Review – The VIRB Action Cam for Adventurers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-boost-your-imagery-title-placement-techniques-on-video-clips-with-photos/"><u>[Updated] Boost Your Imagery Title Placement Techniques on Video Clips with Photos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-10-screenshot-enhancers-ios-and-android-sticker-edition-for-2024/"><u>[Updated] Top 10 Screenshot Enhancers IOS & Android Sticker Edition for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpt-in-action-mastering-the-art-of-securing-jobs-through-linkedins-network/"><u>ChatGPT in Action: Mastering the Art of Securing Jobs Through LinkedIn's Network</u></a></li>
+<li><a href="https://fox-that.techidaily.com/diy-iphone-repair-how-to-eliminate-moisture-detected-warnings-from-your-devices-charger-port/"><u>DIY iPhone Repair: How to Eliminate Moisture Detected Warnings From Your Device's Charger Port</u></a></li>
+<li><a href="https://fox-links.techidaily.com/elite-writers-of-aural-narratives-for-2024/"><u>Elite Writers of Aural Narratives for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-watch-the-transformers-movies-in-order/"><u>How to Watch the Transformers Movies in Order</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-oneplus-open-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From OnePlus Open to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-saving-on-cloud-space-expenses-detailed-analysis-and-tips/"><u>In 2024, Saving on Cloud Space Expenses Detailed Analysis & Tips</u></a></li>
+<li><a href="https://win-dash.techidaily.com/install-logitech-g-pro-driver-on-any-pc-windows-11-to-win-7-support-included/"><u>Install Logitech G Pro Driver on Any PC - Windows 11 to Win 7 Support Included</u></a></li>
+<li><a href="https://review-topics.techidaily.com/issues-playing-mov-videos-on-xiaomi-redmi-13c-by-aiseesoft-video-converter-play-mov-on-android/"><u>Issues playing MOV videos on Xiaomi Redmi 13C</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/obs-and-shadowplay-which-streams-better/"><u>Obs and ShadowPlay - Which Streams Better?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/premiere-guide-uploading-vids-for-youtube/"><u>Premiere Guide Uploading Vids for YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/stepwise-guide-to-effective-keying-with-kinemasters-gs/"><u>Stepwise Guide to Effective Keying with KineMaster's GS</u></a></li>
+</ul></div>
 

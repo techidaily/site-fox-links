@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering the Process  Essential Techniques & Strategies for Green Screen Filmmaking\""
-date: 2024-08-23T03:07:13.937Z
-updated: 2024-08-24T03:07:13.937Z
+date: 2024-12-21T16:59:20.657Z
+updated: 2024-12-28T02:13:33.985Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,10 @@ We’ve figured out some useful green screen tricks, have fun and hope you’ll 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In the following section, we will share with you five tips when you shooting a video for compositing a green screen video, which covering the lighting tips, the camera tips, the clothing tips, the tips for using green screen sheet, and the tips for resolving motion blur in shooting videos.
 
 #### 1 Lighting tips in shooting a Green Screen Video
@@ -54,11 +58,19 @@ Don’t throw too much light onto the green background. That will create hotspot
 
 ![Lighting tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-lighting-tips.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Check out our picks of [the best lighting equipment for shooting videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2Camera tips in shooting a Green Screen Video
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
@@ -94,7 +106,15 @@ Besides compositing chroma keying videos in Filmora, you can also[stabilize your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -119,8 +139,21 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-gopro-max-360-vs-hero-11-which-is-the-best-gopro-video-camera/"><u>[New] 2024 Approved GoPro Max 360 VS Hero 11 Which Is the Best GoPro Video Camera?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-disabling-and-erasing-your-old-unused-linkedin-profile-for-2024/"><u>[New] Disabling and Erasing Your Old, Unused LinkedIn Profile for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-enhance-your-shorts-appeal-with-personalized-thumbnails/"><u>[New] In 2024, Enhance Your Shorts' Appeal with Personalized Thumbnails</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-exploring-the-spectrum-projectors-and-televisions-in-a-4k-world/"><u>[New] In 2024, Exploring the Spectrum Projectors & Televisions in a 4K World</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-tickletech-design-easy-entertaining-visuals/"><u>[New] TickleTech Design Easy, Entertaining Visuals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-which-device-delivers-top-tier-4k-visual-feast/"><u>[New] Which Device Delivers Top-Tier 4K Visual Feast?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-edit-and-elevate-instagrams-ultimate-toolkit-for-2024/"><u>[Updated] Edit & Elevate Instagram's Ultimate Toolkit for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-free-fb-links-breeze-through-the-process/"><u>[Updated] Free FB Links, Breeze Through the Process</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2023s-best-mobile-emulators-top-choices-for-your-classic-psp-adventures/"><u>2023'S Best Mobile Emulators Top Choices for Your Classic PSP Adventures</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-xiaomi-redmi-note-12t-pro-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Xiaomi Redmi Note 12T Pro Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-discover-apples-best-vr-gaming-titles-on-your-phone/"><u>In 2024, Discover Apple's Best VR Gaming Titles on Your Phone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-making-spherical-videos-the-iphone-way/"><u>In 2024, Making Spherical Videos The iPhone Way</u></a></li>
+<li><a href="https://extra-information.techidaily.com/quintessential-vr-cinematic-treasures/"><u>Quintessential VR Cinematic Treasures</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/the-ultimate-top-5-iphone-podcast-apps-guide-for-2024/"><u>The Ultimate Top 5 iPhone Podcast Apps Guide for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

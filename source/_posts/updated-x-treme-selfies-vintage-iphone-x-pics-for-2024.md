@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] X-Treme Selfies  Vintage iPhone X Pics for 2024\""
-date: 2024-12-18T09:09:07.264Z
-updated: 2024-12-21T18:54:32.912Z
+date: 2024-12-25T00:57:22.069Z
+updated: 2024-12-27T23:34:18.131Z
 tags: 
   - screen-recording
   - ai video
@@ -36,17 +36,13 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for iPhone portrait photos
 
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### For iPhone 7 Plus/8 Plus/X users
 
@@ -59,7 +55,7 @@ However, the Portrait Mode is only featured on iOS 10.1 or some more recent vers
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: 9to5mac
@@ -72,11 +68,19 @@ The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: imore
 
 Launch the Camera app, and swipe to the Portrait option, and then tap on the Camera Swap feature to start using the front camera on your iPhone. Find the Portrait Lightning feature in the camera's Portrait mode, then select one of the options provided by the Portrait Lightning such as Studio Light or Natural light, and proceed to snap a selfie by tapping on the shutter button.
 
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### For iPhone 8, 7 or older iPhones users
 
@@ -118,16 +122,12 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -155,20 +155,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-convert-srt-free-top-10-web-subtitle-services-for-2024/"><u>[New] Convert SRT Free Top 10 Web Subtitle Services for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-how-to-write-podcast-script-plus-10plus-free-examples/"><u>[Updated] 2024 Approved How To Write Podcast Script (Plus 10+ Free Examples)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ultimate-list-of-public-domain-picture-banks/"><u>[Updated] 2024 Approved Ultimate List of Public Domain Picture Banks</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-opening-and-managing-srt-files-seamlessly/"><u>[Updated] In 2024, Opening and Managing SRT Files Seamlessly</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-sprinting-into-the-digital-age-picks-on-vr-treadmills-for-2024/"><u>[Updated] Sprinting Into the Digital Age Picks on VR Treadmills for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-clear-path-to-crisp-videography-on-a-gopro-for-2024/"><u>[Updated] The Clear Path to Crisp Videography on a GoPro for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-ultimate-tutorial-for-full-utilization-of-final-cut-pro/"><u>[Updated] Ultimate Tutorial for Full Utilization of Final Cut Pro</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-illusion-of-movement-facial-motion-blur-with-picsart/"><u>2024 Approved Illusion of Movement Facial Motion Blur with Picsart</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/apex-craftsman-studio-evaluation-for-2024/"><u>Apex Craftsman Studio Evaluation for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/free-online-converter-convert-asfswf-files-with-moveavi-without-cost/"><u>Free Online Converter: Convert ASF/SWF Files with MoveAVI Without Cost</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-how-to-write-dialogue-or-narrative-script/"><u>In 2024, How to Write Dialogue or Narrative Script</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-sculpting-visual-stories-editing-vertical-videos-for-ig-in-fcpx/"><u>In 2024, Sculpting Visual Stories Editing Vertical Videos for IG in FCPX</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/key-selections-top-6-fb-lite-video-grabs/"><u>Key Selections Top 6 FB Lite Video Grabs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/premium-memory-compatible-with-sony-a7-cams/"><u>Premium Memory Compatible with Sony A7 Cams</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-motorola-moto-g73-5g-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Motorola Moto G73 5G</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-5-esteemed-platforms-for-easy-text-effect-implementation/"><u>[New] In 2024, 5 Esteemed Platforms for Easy Text Effect Implementation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-an-all-inclusive-examination-of-inshots-video-edits/"><u>[New] In 2024, An All-Inclusive Examination of InShot's Video Edits</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-breaking-down-the-fastest-green-screen-methods/"><u>[New] In 2024, Breaking Down the Fastest Green Screen Methods</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/avigating-the-undisclosed-terrain-of-youtube-archives-for-2024/"><u>[New] Navigating the Undisclosed Terrain of YouTube Archives for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-best-4k-gaming-laptops/"><u>[Updated] 2024 Approved Best 4K Gaming Laptops</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-supercharge-your-design-with-these-canva-insider-tips/"><u>[Updated] 2024 Approved Supercharge Your Design with These Canva Insider Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-chromatic-shift-strategies-for-skilled-alteration-for-2024/"><u>[Updated] Chromatic Shift Strategies for Skilled Alteration for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-efficient-routes-to-google-pixel-soundscapes/"><u>[Updated] Efficient Routes to Google Pixel Soundscapes</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/debunking-misconceptions-has-chatgpt-become-less-capable-or-is-it-still-powerful/"><u>Debunking Misconceptions: Has ChatGPT Become Less Capable, or Is It Still Powerful?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-passfab-iphone-13-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>In 2024, PassFab iPhone 13 Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-quintessential-stop-motion-gems-for-cinephiles/"><u>In 2024, Quintessential Stop-Motion Gems for Cinephiles</u></a></li>
+<li><a href="https://article-posts.techidaily.com/regaining-access-to-windows-photo-viewer-two-steps-for-windows-10-for-2024/"><u>Regaining Access to Windows Photo Viewer Two Steps for Windows 10 for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/seamless-entry-into-google-meet-with-device-use/"><u>Seamless Entry Into Google Meet with Device Use</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/the-ultimate-list-of-safe-and-speedy-video-convertors-for-windows-10-and-11-enthusiasts/"><u>The Ultimate List of Safe & Speedy Video Convertors for Windows 10 & 11 Enthusiasts</u></a></li>
+<li><a href="https://win-top.techidaily.com/windows-10mp4/"><u>Windows 10組み込みアプリを使用してMP4ファイル編集: ダウンロード不要!</u></a></li>
 </ul></div>
 

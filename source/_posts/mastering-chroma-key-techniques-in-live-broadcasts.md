@@ -1,7 +1,7 @@
 ---
 title: "Mastering Chroma Key Techniques in Live Broadcasts"
-date: 2024-12-19T07:34:02.541Z
-updated: 2024-12-21T19:35:26.207Z
+date: 2024-12-20T17:57:06.029Z
+updated: 2024-12-28T00:50:34.880Z
 tags: 
   - screen-recording
   - ai video
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b76
 The green screen has become the new hot-cake among gamers and other video streamers. It allows them to add the most magnetizing and unreal effects for their streams. These days, it has become easier than ever to set-up your green screen studio and creatively displays your hidden talent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to set-up your live streaming studio
@@ -50,13 +50,13 @@ If you want to set up a large broadcasting studio the camera you’ll need shoul
 
 ![sony hdc 5500 studio camera](https://images.wondershare.com/filmora/Mac-articles/sony-hdc-5500-studio-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For normal web or twitch streaming a high-quality webcam should be used. It should have good face tracking and great picture quality. **A 1080p resolution** with the capability of 30-60 frames is a bonus. There are some great cameras on the market that you can even land at **under $100**.
 
 ![clear one unite pro webcam](https://images.wondershare.com/filmora/Mac-articles/clear-one-unite-pro-webcam.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Green Screen
 
@@ -64,19 +64,23 @@ The green screen requirements are also different for different types of broadcas
 
 ![green screen for studio](https://images.wondershare.com/filmora/Mac-articles/green-screen-for-studio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For gamers and other streamers like beauty vloggers, twitch anchors, and YouTubers there are different kinds of green screens in the market depending on the budget. There are foldable ones that can fold into a circle like a small tent. They open up to a considerably decent size. These green screens need to be hanged to keep them standing and come at a considerably lower price range of around $40.
 
 ![foldable green screen](https://images.wondershare.com/filmora/Mac-articles/foldable-green-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Another option of the green screen for streamers is a collapsible green screen. It was introduced by Elgato and is easy to carry and easy to set-up. It can be adjusted to any height and can open and tear down in a matter of seconds. It comes with a relatively high price of around $150 but they are worth the money.
 
 Do remember that any green screen you use should be large enough to give your main subject space to move around. Apart from that, make sure you don’t have any green elements in your subject or your software will also make those areas disappear. **If your subject has blonde hair, a blue screen instead of a green screen is recommended.**
 
 ![elgato green screen stand](https://images.wondershare.com/filmora/Mac-articles/elgato-green-screen-stand.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Lights
 
@@ -100,10 +104,6 @@ To start a live stream you need to download [XSplit](https://www.xsplit.com/) br
 
 ![xsplit](https://images.wondershare.com/filmora/Mac-articles/xsplit.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Conclusion
 
 Green screens were a thing of luxury in the old times only to be used by filmmakers or news broadcasters. Now, with the current technology, it is possible to set up a green screen studio in your room. From gamers to vloggers, each one is trying to be as creative as possible to attract more viewers to the screen.
@@ -117,7 +117,7 @@ Learn More: [How to use OBS Streamlabs on Mac？>>>](https://tools.techidaily.co
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -145,24 +145,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-average-podcast-income-whats-the-payoff-in-2024/"><u>[New] Average Podcast Income What's the Payoff, In 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-cinematic-craftsman-corner-qanda-hub/"><u>[New] Cinematic Craftsman Corner Q&A Hub</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-high-speed-windows-viewer-for-images-for-2024/"><u>[New] High-Speed Windows Viewer for Images for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nlocking-permanent-turn-off-for-youtube-shorts/"><u>[New] Unlocking Permanent Turn-Off for YouTube Shorts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-unraveling-best-practices-for-effective-fb-healthcare-promos-for-2024/"><u>[New] Unraveling Best Practices for Effective FB Healthcare Promos for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-unveiling-the-secrets-of-m1-max-clips/"><u>[New] Unveiling the Secrets of M1 Max Clips</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-perfecting-movie-recording-your-multiplatform-strategy/"><u>[Updated] 2024 Approved Perfecting Movie Recording Your Multiplatform Strategy</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-quick-tips-for-setting-up-zoom-on-your-android-phonetablet/"><u>[Updated] 2024 Approved Quick Tips for Setting Up Zoom on Your Android Phone/Tablet</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-cutting-edge-methods-for-capturing-audio-in-audacity/"><u>[Updated] Cutting-Edge Methods for Capturing Audio in Audacity</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-essence-of-dji-inspire-2-distilled/"><u>[Updated] The Essence of DJI Inspire 2 Distilled</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-360-camera-buying-guide-how-to-choose-a-suitable-360-camera/"><u>2024 Approved 360 Camera Buying Guide How to Choose a Suitable 360 Camera</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-oppo-a79-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Oppo A79 5G Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-techniques-to-restore-logitech-mouse-scroll-wheel-functionality/"><u>Effective Techniques to Restore Logitech Mouse Scroll Wheel Functionality</u></a></li>
-<li><a href="https://driver-download.techidaily.com/fast-fix-for-acer-laptops-grab-the-free-wi-fi-driver-here/"><u>Fast Fix for Acer Laptops? Grab the Free Wi-Fi Driver Here!</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-inside-movavis-video-editor-plus-features/"><u>In 2024, Inside Movavi's Video Editor Plus Features</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-infinix-smart-8-hd-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Infinix Smart 8 HD? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/mspaint-your-creative-companion-in-windows-11/"><u>MSPaint, Your Creative Companion in Windows 11</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-ultimate-mix-of-soundtracks-and-visuals-adding-srt-to-mp4-for-2024/"><u>The Ultimate Mix of Soundtracks and Visuals Adding SRT to MP4 for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-101-croatian-phrases-your-travel-guides-essential-toolkit/"><u>Top 101 Croatian Phrases: Your Travel Guide's Essential Toolkit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-amplifying-obs-visual-appeal-with-free-high-quality-luts/"><u>[New] Amplifying OBS Visual Appeal with Free, High-Quality LUTs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-stream-on-the-go-youtube-via-mobile-for-understaffed-creators-for-2024/"><u>[New] Stream on the Go YouTube via Mobile for Understaffed Creators for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-tips-and-tricks-to-help-you-change-color-like-a-pro/"><u>[New] Tips and Tricks to Help You Change Color Like A Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unveiling-advanced-greenscreen-techniques-a-complete-guide-to-chroma-key-kinemaster/"><u>[Updated] 2024 Approved Unveiling Advanced Greenscreen Techniques A Complete Guide to Chroma Key (KineMaster)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-capturing-magic-in-motion-a-guide-to-hero5-timelapses-for-2024/"><u>[Updated] Capturing Magic in Motion A Guide to Hero5 Timelapses for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-add-timestamps-to-youtube-video-to-increase-views/"><u>2024 Approved How to Add Timestamps to YouTube Video to Increase Views</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725286914758-dvdmp4/"><u>转换DVD到MP4：专家推荐最佳软件与方法</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/elo-touch-screen-driver-download-for-windows/"><u>Elo Touch Screen Driver Download for Windows</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-xiaomi-civi-3-disney-100th-anniversary-edition-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Xiaomi Civi 3 Disney 100th Anniversary Edition Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-top-tier-hdr-camera-selection-made-easy/"><u>In 2024, Top-Tier HDR Camera Selection Made Easy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1722849511208-the-cut-and-cover-method-is-most-suitable-for-shallow-tunnels-but-can-be-very-disruptive-due-to-the-surface-excavation-required/"><u>The Cut-and-Cover Method Is Most Suitable for Shallow Tunnels but Can Be Very Disruptive Due to the Surface Excavation Required</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-showcase-top-4-ai-driven-plot-generators/"><u>The Ultimate Showcase: Top 4 AI-Driven Plot Generators</u></a></li>
 </ul></div>
 

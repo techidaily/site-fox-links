@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Snowy Scores  Winter 2022 Wonders Unveiled\""
-date: 2024-12-17T03:33:27.828Z
-updated: 2024-12-22T14:22:47.799Z
+date: 2024-12-23T23:58:15.356Z
+updated: 2024-12-28T04:46:24.289Z
 tags: 
   - screen-recording
   - ai video
@@ -27,7 +27,15 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
 
@@ -45,31 +53,23 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
-She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
 Born in America, Eileen Gu represented China at Winter Olympics and managed to win the gold medal in the inaugural freeski big air event. Therefore, she will go down in the history as the first woman to win the gold medal for freeski big air event. She stunned everyone by completing two off-axis rotations in the air.
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
@@ -87,11 +87,11 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
 
@@ -108,13 +108,13 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
@@ -132,7 +132,7 @@ Doping scandals have become a part of the Olympics and this year is no different
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
@@ -156,18 +156,19 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-blog.techidaily.com/fixed-discover-how-to-address-sudden-decreases-in-frames-per-second-fps/"><u>[Fixed] Discover How To Address Sudden Decreases in Frames Per Second (FPS)</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-crafting-musical-instagram-narratives-without/"><u>[New] 2024 Approved Crafting Musical Instagram Narratives (Without)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-picture-perfect-pairings-expert-comparison-of-top-8k-televisions/"><u>[New] 2024 Approved Picture Perfect Pairings Expert Comparison of Top 8K Televisions</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-creative-fusion-of-images-for-joyful-existence-for-2024/"><u>[New] Creative Fusion of Images for Joyful Existence for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-full-breakdown-razers-hd-webcam-experience/"><u>[New] Full Breakdown Razer's HD Webcam Experience</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-experience-the-next-wave-watching-fb-live-on-roku/"><u>[Updated] 2024 Approved Experience the Next Wave Watching FB Live on Roku</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ideal-vlogging-gear-the-best-15-cameras-ranked/"><u>[Updated] 2024 Approved Ideal Vlogging Gear The Best 15 Cameras Ranked</u></a></li>
-<li><a href="https://article-helps.techidaily.com/cinematic-clarity-premium-handheld-stabilizers-selection/"><u>Cinematic Clarity Premium Handheld Stabilizers Selection</u></a></li>
-<li><a href="https://fox-links.techidaily.com/detailed-methods-to-convert-tiktok-melodies-into-phone-ringtones/"><u>Detailed Methods to Convert TikTok Melodies Into Phone Ringtones</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-from-iphone-11-pro-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID from iPhone 11 Pro</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Honor 90 | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/no-price-point-digital-video-recorder-for-2024/"><u>No-Price Point Digital Video Recorder for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/unleashing-potential-the-easy-path-to-blending-linktree-with-tiktok-bios/"><u>Unleashing Potential The Easy Path to Blending Linktree with TikTok Bios</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-longest-flight-drone-champions-unveiled/"><u>[New] 2024 Approved Longest Flight Drone Champions Unveiled</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-best-slideshow-apps-iphone-series-8-series-12-for-2024/"><u>[New] Best Slideshow Apps (iPhone Series 8-Series 12) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-filmmakers-handbook-for-professional-gopro-videographers/"><u>[New] In 2024, The Filmmaker's Handbook for Professional Gopro Videographers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-ultimate-selection-of-compact-on-the-move-players-for-2024/"><u>[New] The Ultimate Selection of Compact, On-The-Move Players for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-three-tricks-for-transforming-videos-on-iphone-by-merging-melodies/"><u>[New] Three Tricks for Transforming Videos on iPhone by Merging Melodies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-engaging-podcast-openers-captivating-intro-lines/"><u>[Updated] In 2024, Engaging Podcast Openers Captivating Intro Lines</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-mastering-undersea-video-7-easy-to-follow-techniques/"><u>[Updated] In 2024, Mastering Undersea Video 7 Easy-to-Follow Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-ultimate-guide-top-7-superior-wet-proof-camcorders/"><u>[Updated] In 2024, Ultimate Guide Top 7 Superior Wet-Proof Camcorders</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-precision-in-podcast-promotion-timelines/"><u>[Updated] Precision in Podcast Promotion Timelines</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/descargar-y-convertir-videos-ts-a-formatos-flv-gratuitamente-mediante-movavi/"><u>Descargar Y Convertir Videos TS a Formatos FLV Gratuitamente Mediante Movavi</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/put-and-play-mkv-movies-on-redmi-note-13-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Put and play MKV movies on Redmi Note 13 5G</u></a></li>
+<li><a href="https://article-helps.techidaily.com/quickly-change-digital-pictures-darkness-level/"><u>Quickly Change Digital Pictures' Darkness Level</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleash-creative-potential-with-free-effs-for-2024/"><u>Unleash Creative Potential with Free Effs for 2024</u></a></li>
 </ul></div>
 

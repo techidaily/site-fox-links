@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Transform Your Images  Erase Backdrops with Canva Skills\""
-date: 2024-12-19T11:07:38.530Z
-updated: 2024-12-21T17:21:12.904Z
+date: 2024-12-21T03:52:18.965Z
+updated: 2024-12-27T18:49:04.059Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ Canva is beloved by bloggers and small businesses for its simple, intuitive desi
 
 Here's a quick step-by-step guide on how to use Canva to remove the background from an image on PC or mobile:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### On PC
 
 To remove the image's background in Canva using your PC, follow the steps below:
@@ -49,10 +53,6 @@ Step2 Click **"Create a Design"** and select **"Edit Photo."** Click the **"Use 
 
 ![remove an image background in canva on pc](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-canva-on-pc.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Now, you will be directed to a new tab. Select your image and click the **"Edit Image"** option from the top ribbon.
 
 Step4 From the left side menu, click **"Background Remover."** Wait for the background to be processed and click **"Erase."** You can also use the cursor brush to remove the sides manually.
@@ -61,6 +61,10 @@ Step4 From the left side menu, click **"Background Remover."** Wait for the back
 
 Once the background is disappeared, click **"Apply"** to save your changes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### On Mobile
 
 The following steps will help you remove the image's background in Canva using its mobile app. The steps for iOS and Android systems are similar, and here we use an Android telephone as an example:
@@ -68,10 +72,6 @@ The following steps will help you remove the image's background in Canva using i
 Step1 Install Canva from [App Store](https://apps.apple.com/us/app/canva-design-photo-video/id897446215) or [Google Play Store](https://play.google.com/store/apps/details?id=com.canva.editor&hl=en&gl=US) in first step. Launch the app and tap the purple "Plus" icon at the bottom-right of the screen.
 
 ![remove an image background in canva on mobile](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-canva-on-mobile.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Go to the **"More Ways To Create"** section and tap the **"See All"** option. Select your image and tap **"Create"** at the top right corner of the screen.
 
@@ -88,10 +88,6 @@ Follwing the above guidance, you can remove the image's background with Canva wi
 Canva's Erase and Restore function makes it easy to remove image backgrounds. [With **Erase**](#%5FTo%5Ferase%5Fan), you can select and erase specific elements from an image. [With **Restore**](#%5FTo%5Fundo%5Fan), you can undo any accidental erasures. Here's a quick overview of how to use these two functions:
 
 ![erase and restore options in canva](https://images.wondershare.com/filmora/article-images/2023/03/erase-and-restore-options-in-canva.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### To erase an element from an image
 
@@ -111,11 +107,19 @@ Step2 Click on the **area** you want to restore.
 
 **Note:** These tools are only available in the Canva web and desktop version.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Best Alternative Of Canva To Remove Images' Backgrounds
 
 Since Canva offers the "Background Remover" tool only in the premium version, you might want to use the best free alternative to Canva to help remove an image's Background. Therefore, [Wondershare Pixcut](https://pixcut.wondershare.com/) may be a good option for you.
 
 This online tool offers several advantages over similar devices, including a user-friendly interface, a wide range of editing options, and the ability to save edited images in up to 2000\*1502p quality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why Is PixCut The Best Option?
 
@@ -154,14 +158,6 @@ Step1 Visit the PixCut website and click the **"Upload Image"** option to import
 Step2 Let the tool process your image, and the background will be removed instantly. You can click the **"Download"** option to save the file on your PC or use the **"Manual Erase & Restore"** option to edit it further.
 
 ![remove an image background in pixcut](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-pixcut.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -180,7 +176,7 @@ Canva's Erase and Restore function makes it easy to remove image backgrounds. [W
 ![erase and restore options in canva](https://images.wondershare.com/filmora/article-images/2023/03/erase-and-restore-options-in-canva.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### To erase an element from an image
@@ -190,6 +186,10 @@ Step1 Select the **Erase** brush from the left panel under the **Background Remo
 Step2 Adjust the size of the **erase tool** to fit the element you want to remove.
 
 Step3 Select the **element** you want to remove.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### To undo an erase
 
@@ -202,7 +202,7 @@ Step2 Click on the **area** you want to restore.
 **Note:** These tools are only available in the Canva web and desktop version.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Best Alternative Of Canva To Remove Images' Backgrounds
@@ -241,10 +241,6 @@ PixCut also can remove watermarks from images, which can be handy when you want 
 
 ![wondershare pixcut](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here's how you can use the PixCut platform to remove an image's background in one click:
 
 Step1 Visit the PixCut website and click the **"Upload Image"** option to import your file. Alternatively, you can drag and drop your file on the page, copy it, and click **"Ctrl+V"** or paste the URL.
@@ -254,7 +250,11 @@ Step2 Let the tool process your image, and the background will be removed instan
 ![remove an image background in pixcut](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-pixcut.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -289,21 +289,20 @@ Hopefully, you've found this article helpful and can now optimize your images in
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-live-tv-streaming-guide-the-best-ten-and-their-comparison/"><u>[New] In 2024, Live TV Streaming Guide The Best Ten and Their Comparison</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-the-complete-android-auditory-guide-adding-personalized-sounds-and-ringtones/"><u>[New] In 2024, The Complete Android Auditory Guide Adding Personalized Sounds and Ringtones</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-mastering-the-art-of-pro-grade-gopro-videography/"><u>[New] Mastering the Art of Pro-Grade Gopro Videography</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-premier-stream-gear-with-superior-360-degree-cameras/"><u>[New] Premier Stream Gear with Superior 360-Degree Cameras</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unlock-the-potential-of-vr-video-on-your-iphone/"><u>[New] Unlock the Potential of VR Video on Your iPhone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-microsoft-hololens-demo-tomorrows-tech-today/"><u>[Updated] 2024 Approved Microsoft HoloLens Demo – Tomorrow’s Tech Today</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-comparing-two-powerhouses-of-live-broadcast-twitch-and-youtube/"><u>[Updated] Comparing Two Powerhouses of Live Broadcast Twitch & YouTube</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-conquering-consumer-attention-metaverse-marketing-tips/"><u>[Updated] Conquering Consumer Attention Metaverse Marketing Tips</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-enhancing-youtube-content-with-text-overlays/"><u>2024 Approved Enhancing YouTube Content with Text Overlays</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-innovative-uses-of-facebook-in-modern-project-coordination/"><u>8 Innovative Uses of Facebook in Modern Project Coordination</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-gionee-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Gionee</u></a></li>
-<li><a href="https://fox-links.techidaily.com/essential-iphone-recording-apps/"><u>Essential iPhone Recording Apps</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-itel-p40plus-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Itel P40+ to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme Narzo N55 | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-utilizing-tailored-volume-reduction-in-audacity/"><u>In 2024, Utilizing Tailored Volume Reduction in Audacity</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-artisans-guide-to-unique-photographic-assemblages/"><u>The Artisan's Guide to Unique Photographic Assemblages</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-best-affordable-video-capture-tools-for-budget-computers/"><u>[New] 2024 Approved Best Affordable Video Capture Tools for Budget Computers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-windows-movie-maker-turn-your-ideas-into-animated-reality/"><u>[New] 2024 Approved Windows Movie Maker Turn Your Ideas Into Animated Reality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-essential-text-to-speech-mac-tools-dont-miss-these/"><u>[New] Essential Text-to-Speech Mac Tools Don't Miss These</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-pioneering-the-path-to-instagram-reel-mastery/"><u>[New] In 2024, Pioneering the Path to Instagram Reel Mastery</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-step-by-step-guide-to-deepening-digital-conversations-for-2024/"><u>[New] Step-by-Step Guide to Deepening Digital Conversations for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-ideal-high-res-displays-the-best-5-for-ps5/"><u>[Updated] In 2024, Ideal High-Res Displays The Best 5 For PS5</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-travel-video-setup-must-have-items-checklist/"><u>[Updated] In 2024, Travel Video Setup Must-Have Items Checklist</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-zoom-for-fb-live-broadcasts-for-2024/"><u>[Updated] Mastering Zoom for FB Live Broadcasts for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-identifying-your-ideal-video-sharing-app-tiktok-or-youtubes-shorts/"><u>2024 Approved Identifying Your Ideal Video Sharing App TikTok or YouTubes' Shorts?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/expert-strategies-for-seamless-green-screening-in-kinemaster/"><u>Expert Strategies for Seamless Green Screening in KineMaster</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-version-of-hp-deskjet-3755-all-in-one-printer-software-now-available-for-download-windows-compatible-with-1087/"><u>Latest Version of HP DeskJet 3755 All-in-One Printer Software Now Available for Download - Windows Compatible with 10/8/7</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-superior-site-performance-and-seo-results/"><u>Leveraging Cookiebot Technology for Superior Site Performance and SEO Results</u></a></li>
+<li><a href="https://fox-links.techidaily.com/stream-your-audiovid-creations-here-for-2024/"><u>Stream Your AudioVid Creations Here for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-picks-for-40-televisions-industry-experts-choices-featured-on-zdnet/"><u>Top Picks for 40 Televisions : Industry Experts' Choices Featured on ZDNet</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-tips-overcoming-frequent-crashes-while-playing-genshin-impact-on-pc/"><u>Troubleshooting Tips: Overcoming Frequent Crashes While Playing Genshin Impact on PC</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering Close-Up Cinematography  Essential Guidelines\""
-date: 2024-12-19T00:20:13.212Z
-updated: 2024-12-22T03:58:01.269Z
+date: 2024-12-22T17:06:27.477Z
+updated: 2024-12-28T01:41:13.854Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ Any person having a photography background can learn the nuances of the macro vi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6 Tips For Making Macro Video
 
@@ -86,7 +90,7 @@ You may also add an extension tube which basically splits the focal distance in 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\. Depth of Field
@@ -100,7 +104,7 @@ But, you must remember that when the opening of the lens is small, the light req
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 6\. Composition
@@ -112,11 +116,7 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -126,7 +126,7 @@ Once you can master the above tips for making the macro video, you can easily sh
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -154,24 +154,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-clearing-up-instagrams-video-mishaps/"><u>[New] 2024 Approved Clearing Up Instagram's Video Mishaps</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-video-gear-for-youtube-starters/"><u>[New] 2024 Approved Essential Video Gear for YouTube Starters</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-ultimate-guide-to-no-charge-subtitle-makers-srt/"><u>[New] In 2024, The Ultimate Guide to No-Charge Subtitle Makers (SRT)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-6-game-changing-tactics-to-increase-watch-time-and-reduce-churn-rate/"><u>[Updated] 2024 Approved 6 Game-Changing Tactics to Increase Watch Time and Reduce Churn Rate</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-a-quick-walkthrough-of-new-user-registration-on-twitter/"><u>[Updated] A Quick Walkthrough of New User Registration on Twitter</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-share-screen-on-facebook-live-in-2024/"><u>[Updated] How to Share Screen on Facebook Live, In 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-restore-pristine-photos-easily-discover-top-10-online-enhancers/"><u>[Updated] Restore Pristine Photos Easily Discover Top 10 Online Enhancers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-timeless-trove-of-freely-shared-works/"><u>2024 Approved The Timeless Trove of Freely Shared Works</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-ultimate-showdown-vlc-versus-mpc-in-video-viewing/"><u>2024 Approved The Ultimate Showdown VLC Versus MPC in Video Viewing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-top-10-free-templates-for-engaging-presentations-and-slideshows/"><u>2024 Approved Top 10 Free Templates for Engaging Presentations and Slideshows</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-top-budget-friendly-sites-for-stunning-fx-on-videos/"><u>2024 Approved Top Budget-Friendly Sites For Stunning FX on Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-zoom-edge-advantage-essential-insights-for-format-alteration/"><u>2024 Approved Zoom Edge Advantage Essential Insights for Format Alteration</u></a></li>
-<li><a href="https://fox-links.techidaily.com/alives-sound-reduction-secrets-revealed/"><u>Alive's Sound Reduction Secrets Revealed</u></a></li>
-<li><a href="https://fox-links.techidaily.com/beam-me-up-optimal-webcam-choices-for-podcasts/"><u>Beam Me Up Optimal Webcam Choices for Podcasts</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-xiaomi-civi-3-disney-100th-anniversary-edition-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Xiaomi Civi 3 Disney 100th Anniversary Edition Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/best-gopro-editing-apps-for-iphone-and-android-phone/"><u>Best GoPro Editing Apps for iPhone and Android Phone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/best-in-class-slideshow-maker-xi-to-x-series-iphones-for-2024/"><u>Best-in-Class Slideshow Maker XI to X Series iPhones for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-audio-liberation-from-youtube-three-safe-methods/"><u>In 2024, Audio Liberation From YouTube Three Safe Methods</u></a></li>
-<li><a href="https://video-capture.techidaily.com/who-reigns-supreme-obs-vs-twitch-live-for-2024/"><u>Who Reigns Supreme? OBS vs Twitch Live for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-correcting-time-jumps-fixing-obs-studio-problems/"><u>[New] In 2024, Correcting Time Jumps Fixing OBS Studio Problems</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/pubg-solved-dxgidll-missing-error/"><u>[PUBG] Solved Dxgi.dll Missing Error</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-insiders-handbook-to-whatsapp-hidden-features/"><u>[Updated] 2024 Approved The Insider's Handbook to WhatsApp Hidden Features</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-6-alternative-apps-to-periscope-for-iphoneandroid-users-for-2024/"><u>[Updated] 6 Alternative Apps to Periscope for iPhone/Android Users for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-chime-into-chats-whatsapp-status-soundtracks/"><u>[Updated] Chime Into Chats WhatsApp Status Soundtracks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-inshot-alternatives-for-laptop-editors-for-2024/"><u>[Updated] Inshot Alternatives for Laptop Editors for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-popular-photos-the-backstory/"><u>[Updated] Popular Photos The Backstory</u></a></li>
+<li><a href="https://win-able.techidaily.com/boost-your-elden-ring-gaming-experience-solving-fps-drop-and-stutter-issues-in-minutes/"><u>Boost Your Elden Ring Gaming Experience: Solving FPS Drop & Stutter Issues in Minutes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/conveying-cinematic-dreams-through-screenwriting-for-2024/"><u>Conveying Cinematic Dreams Through Screenwriting for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/exploring-superior-wallet-airtags-beyond-apple-and-tile-insider-review-at-zdnet/"><u>Exploring Superior Wallet AirTags Beyond Apple and Tile - Insider Review at ZDNet</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-poco-c55-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-redmi-note-13-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Redmi Note 13 5G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-cutting-edge-strategies-for-choosing-best-fpv-drone-blades/"><u>In 2024, Cutting-Edge Strategies for Choosing Best FPV Drone Blades</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-editors-roadmap-to-perfection-in-fcp/"><u>In 2024, The Editor's Roadmap to Perfection in FCP</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-samsung-galaxy-f15-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Samsung Galaxy F15 5G FRP Bypass</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-to-do-if-your-iphone-6-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>What to do if your iPhone 6 has bad ESN or blacklisted IMEI?</u></a></li>
 </ul></div>
 

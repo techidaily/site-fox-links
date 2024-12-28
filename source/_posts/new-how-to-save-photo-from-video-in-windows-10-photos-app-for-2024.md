@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Save Photo From Video in Windows 10 Photos App for 2024"
-date: 2024-08-23T03:07:44.394Z
-updated: 2024-08-24T03:07:44.394Z
+date: 2024-12-25T01:27:37.557Z
+updated: 2024-12-28T03:35:28.342Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,10 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -58,6 +62,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
@@ -65,22 +73,21 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Alternative way to save photo from video
 
 When you want to save photo from video Windows 10 Photos but fail to do so, you can look for alternate ways that are fruitful. ‘ScreenShot’ is an online tool that enables you to capture and edit anything popping up on your screen. From webpages, windows, media files, menus, objects, to webcams, you can literally capture anything. It supports Mac, Windows PC, Android devices etc. it supports AVI, FLV, MPEG, WMV, MOV, and MKV files and enables you to add shapes, texts, lines, arrows, and stylish effects while editing the captured images. You can even upload images to cloud or social networking sites like Facebook, Google Plus, Twitter etc. The pictures are saved in JPG, PNG, BMP, GIF, and TIFF format on your computer. Automatic video capture at fixed intervals is also supported.
@@ -93,15 +100,9 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
@@ -109,8 +110,9 @@ We provided you some knowledge on how to save a photo from video Windows 10 Phot
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -134,4 +136,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-elevate-podcast-quality-with-advanced-garageband-editing-methods/"><u>[New] Elevate Podcast Quality with Advanced GarageBand Editing Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-immersive-visual-spectacle-gears-challenge-to-lgcam-for-2024/"><u>[New] Immersive Visual Spectacle Gear's Challenge to LGCam for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-20-word-formula-to-skyrocket-your-business-reach/"><u>[New] The 20-Word Formula to Skyrocket Your Business Reach</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-tips-for-perfecting-sound-tracks-start-with-auditions-fade-in-for-2024/"><u>[New] Tips for Perfecting Sound Tracks Start with Audition's Fade-In for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-crossos-vmix-replacement-tool/"><u>[Updated] 2024 Approved CrossOS VMix Replacement Tool</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-how-to-view-facebook-stories-anonymously/"><u>[Updated] 2024 Approved How to View Facebook Stories Anonymously</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-combine-audio-streams-into-powerpoint-flow/"><u>[Updated] Combine Audio Streams Into PowerPoint Flow</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-love-ballad-bingo-must-haves-on-the-list-of-proposals/"><u>[Updated] In 2024, Love Ballad Bingo Must-Haves on the List of Proposals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-ultimate-guide-to-internet-based-image-trimming-for-2024/"><u>[Updated] The Ultimate Guide to Internet-Based Image Trimming for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-efficiently-change-your-facebook-videos-into-mp3-songs/"><u>2024 Approved Efficiently Change Your Facebook Videos Into MP3 Songs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/compendium-of-camera-types-for-professional-videos/"><u>Compendium of Camera Types for Professional Videos</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-motorola-g24-power-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Motorola G24 Power in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-lava-yuva-3-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Lava Yuva 3 Activity | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-effective-techniques-to-enhance-video-reach-via-subtitle-file-sharing/"><u>In 2024, Effective Techniques to Enhance Video Reach via Subtitle File Sharing</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-overcoming-pixel-format-not-accelerated-errors-in-lwjgl/"><u>Troubleshooting Tips: Overcoming 'Pixel Format Not Accelerated' Errors in LWJGL</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/virtual-escapades-you-cant-afford-to-miss/"><u>Virtual Escapades You Can't Afford to Miss</u></a></li>
+</ul></div>
 
