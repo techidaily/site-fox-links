@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering Close-Up Cinematography  Essential Guidelines\""
-date: 2024-12-22T17:06:27.477Z
-updated: 2024-12-28T01:41:13.854Z
+date: 2025-01-05T17:10:58.439Z
+updated: 2025-01-06T16:11:27.819Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ Any person having a photography background can learn the nuances of the macro vi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6 Tips For Making Macro Video
@@ -79,6 +79,10 @@ The background of your macro video always remains blurred as you shoot it closel
 
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. DSLR Cameras
 
 For capturing the macro video, you can consider digital SLR camera. The macro lens of the digital SLR camera is a great option for capturing.
@@ -88,10 +92,6 @@ If you are a Canon user, you may opt for the 180 mm macro, 100 mm macro or the 6
 You may also add an extension tube which basically splits the focal distance in two equal halves and make the image size bigger but it decreases the depth of the field.
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 5\. Depth of Field
 
@@ -103,10 +103,6 @@ But, you must remember that when the opening of the lens is small, the light req
 
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 6\. Composition
 
 When you have low lights, ensuring a correct perspective on the subject with maximum focus area is quite difficult. You must have the right composition for your macro video.
@@ -116,7 +112,11 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -126,7 +126,7 @@ Once you can master the above tips for making the macro video, you can easily sh
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -154,21 +154,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-correcting-time-jumps-fixing-obs-studio-problems/"><u>[New] In 2024, Correcting Time Jumps Fixing OBS Studio Problems</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/pubg-solved-dxgidll-missing-error/"><u>[PUBG] Solved Dxgi.dll Missing Error</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-insiders-handbook-to-whatsapp-hidden-features/"><u>[Updated] 2024 Approved The Insider's Handbook to WhatsApp Hidden Features</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-6-alternative-apps-to-periscope-for-iphoneandroid-users-for-2024/"><u>[Updated] 6 Alternative Apps to Periscope for iPhone/Android Users for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-chime-into-chats-whatsapp-status-soundtracks/"><u>[Updated] Chime Into Chats WhatsApp Status Soundtracks</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-inshot-alternatives-for-laptop-editors-for-2024/"><u>[Updated] Inshot Alternatives for Laptop Editors for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-popular-photos-the-backstory/"><u>[Updated] Popular Photos The Backstory</u></a></li>
-<li><a href="https://win-able.techidaily.com/boost-your-elden-ring-gaming-experience-solving-fps-drop-and-stutter-issues-in-minutes/"><u>Boost Your Elden Ring Gaming Experience: Solving FPS Drop & Stutter Issues in Minutes</u></a></li>
-<li><a href="https://fox-links.techidaily.com/conveying-cinematic-dreams-through-screenwriting-for-2024/"><u>Conveying Cinematic Dreams Through Screenwriting for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/exploring-superior-wallet-airtags-beyond-apple-and-tile-insider-review-at-zdnet/"><u>Exploring Superior Wallet AirTags Beyond Apple and Tile - Insider Review at ZDNet</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-poco-c55-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-redmi-note-13-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Redmi Note 13 5G to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-cutting-edge-strategies-for-choosing-best-fpv-drone-blades/"><u>In 2024, Cutting-Edge Strategies for Choosing Best FPV Drone Blades</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-editors-roadmap-to-perfection-in-fcp/"><u>In 2024, The Editor's Roadmap to Perfection in FCP</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-samsung-galaxy-f15-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Samsung Galaxy F15 5G FRP Bypass</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-to-do-if-your-iphone-6-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>What to do if your iPhone 6 has bad ESN or blacklisted IMEI?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-browse-and-compare-leading-affordable-quality-webm-streamers/"><u>[New] Browse and Compare Leading Affordable, Quality WebM Streamers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hololens-review-pioneering-virtual-spacecraft/"><u>[New] HoloLens Review Pioneering Virtual Spacecraft</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-innovating-your-viewing-experience-android-and-vr-videos-for-2024/"><u>[New] Innovating Your Viewing Experience Android & VR Videos for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-true-to-life-shade-tweaker-for-2024/"><u>[New] True-to-Life Shade Tweaker for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-diminishing-decibels-a-guide-to-quieter-soundscapes-in-lumafusion/"><u>[Updated] 2024 Approved Diminishing Decibels A Guide to Quieter Soundscapes in Lumafusion</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-find-your-next-favorite-free-video-player-in-our-top-12-picks-pcmobile/"><u>[Updated] Find Your Next Favorite Free Video Player in Our Top 12 Picks (PC/Mobile)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-elevate-your-message-with-these-30-video-suggestions/"><u>2024 Approved Elevate Your Message with These 30 Video Suggestions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-premier-5-ios-photo-background-swap-apps/"><u>2024 Approved The Premier 5 iOS Photo Background Swap Apps</u></a></li>
+<li><a href="https://some-tips.techidaily.com/avoiding-critical-errors-with-your-apple-vision-pro-headset-protect-your-investment/"><u>Avoiding Critical Errors with Your Apple Vision Pro Headset - Protect Your Investment</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-xiaomi-civi-3-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/how-to-block-comments-on-windows-10-via-usb-keys-dual-method-guide/"><u>How to Block Comments on Windows 10 via USB Keys: Dual Method Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-effortless-igtv-video-downloads-ios-and-android-guide/"><u>In 2024, Effortless IGTV Video Downloads IOS & Android Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-sierra-sovereign-dvd-and-media-cutting-tools/"><u>In 2024, Sierra Sovereign Dvd & Media Cutting Tools</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Best Spy Watches For your Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/isolate-subject-a-step-by-step-guide-to-clear-borders/"><u>Isolate Subject – A Step-by-Step Guide to Clear Borders</u></a></li>
+<li><a href="https://fox-links.techidaily.com/leverage-smart-organization-in-mematic-for-2024/"><u>Leverage Smart Organization in Mematic for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/navigating-win11-like-a-pro-your-guidebook-for-2024/"><u>Navigating Win11 Like a Pro - Your Guidebook for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/tactical-phone-data-shift-android-to-iphone-for-2024/"><u>Tactical Phone Data Shift Android to iPhone for 2024</u></a></li>
 </ul></div>
 

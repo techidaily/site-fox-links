@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Snowy Scores  Winter 2022 Wonders Unveiled\""
-date: 2024-12-23T23:58:15.356Z
-updated: 2024-12-28T04:46:24.289Z
+date: 2024-12-30T16:06:40.530Z
+updated: 2025-01-06T17:20:04.161Z
 tags: 
   - screen-recording
   - ai video
@@ -28,13 +28,13 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
@@ -42,6 +42,10 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowboard cross at Beijing Winter Olympics. She broke the deadlock for the United States at Winter Olympics by giving her country the first gold. In fact, Lindsey Jacobellis had to wait 16 years to wind her maiden gold at the Olympics.
 
 ![lindsey jacobellis wins the gold medal](https://images.wondershare.com/filmora/article-images/lindsey-jacobellis-wins-the-gold-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
 
@@ -53,15 +57,15 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
@@ -87,11 +91,11 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
-The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
 
@@ -107,21 +111,17 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
@@ -132,7 +132,7 @@ Doping scandals have become a part of the Olympics and this year is no different
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
@@ -156,19 +156,21 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-longest-flight-drone-champions-unveiled/"><u>[New] 2024 Approved Longest Flight Drone Champions Unveiled</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-best-slideshow-apps-iphone-series-8-series-12-for-2024/"><u>[New] Best Slideshow Apps (iPhone Series 8-Series 12) for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-the-filmmakers-handbook-for-professional-gopro-videographers/"><u>[New] In 2024, The Filmmaker's Handbook for Professional Gopro Videographers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-ultimate-selection-of-compact-on-the-move-players-for-2024/"><u>[New] The Ultimate Selection of Compact, On-The-Move Players for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-three-tricks-for-transforming-videos-on-iphone-by-merging-melodies/"><u>[New] Three Tricks for Transforming Videos on iPhone by Merging Melodies</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-engaging-podcast-openers-captivating-intro-lines/"><u>[Updated] In 2024, Engaging Podcast Openers Captivating Intro Lines</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-mastering-undersea-video-7-easy-to-follow-techniques/"><u>[Updated] In 2024, Mastering Undersea Video 7 Easy-to-Follow Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-ultimate-guide-top-7-superior-wet-proof-camcorders/"><u>[Updated] In 2024, Ultimate Guide Top 7 Superior Wet-Proof Camcorders</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-precision-in-podcast-promotion-timelines/"><u>[Updated] Precision in Podcast Promotion Timelines</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/descargar-y-convertir-videos-ts-a-formatos-flv-gratuitamente-mediante-movavi/"><u>Descargar Y Convertir Videos TS a Formatos FLV Gratuitamente Mediante Movavi</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Honor 90 Lite? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/put-and-play-mkv-movies-on-redmi-note-13-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Put and play MKV movies on Redmi Note 13 5G</u></a></li>
-<li><a href="https://article-helps.techidaily.com/quickly-change-digital-pictures-darkness-level/"><u>Quickly Change Digital Pictures' Darkness Level</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unleash-creative-potential-with-free-effs-for-2024/"><u>Unleash Creative Potential with Free Effs for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-discovering-efficient-multitasking-with-ffxp/"><u>[New] 2024 Approved Discovering Efficient Multitasking with FFXP</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-pioneering-video-tech-s-camera-race/"><u>[New] Pioneering Video Tech 'S Camera Race</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlocking-the-secrets-of-srt-systems/"><u>[New] Unlocking the Secrets of SRT Systems</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-a-step-by-step-approach-to-enhanced-roblox-views-for-2024/"><u>[Updated] A Step-by-Step Approach to Enhanced Roblox Views for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-easy-start-the-definitive-guide-to-free-channel-openers-for-2024/"><u>[Updated] Easy Start The Definitive Guide to Free Channel Openers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-htc-vive-comfort-top-strategies-to-prevent-discomfort-for-2024/"><u>[Updated] HTC Vive Comfort Top Strategies to Prevent Discomfort for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-simplified-processes-generating-your-podcasts-rss-feed/"><u>[Updated] Simplified Processes Generating Your Podcast's RSS Feed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unlocking-potential-an-in-depth-look-at-vivocut-editing-for-2024/"><u>[Updated] Unlocking Potential An In-Depth Look at VivoCut Editing for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/essential-top-10-live-streamers-android-and-iphone-edition-for-2024/"><u>Essential Top 10 Live Streamers Android & iPhone Edition for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/from-still-to-moving-adding-animated-effects-to-your-text-ig-stories-for-2024/"><u>From Still to Moving Adding Animated Effects to Your Text IG Stories for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-get-the-best-sound-experience-with-newly-installed-soundmax-drivers-on-windows/"><u>How to Get the Best Sound Experience with Newly Installed SoundMAX Drivers on Windows</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-battery-life-to-final-cut-a-drone-editors-journey/"><u>In 2024, From Battery Life to Final Cut A Drone Editor's Journey</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unboxing-the-secrets-to-stunning-shorts-thumbnails/"><u>In 2024, Unboxing the Secrets to Stunning Shorts Thumbnails</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/journey-to-picture-perfection-iphone-tips-for-stunning-skylines/"><u>Journey to Picture Perfection IPhone Tips for Stunning Skylines</u></a></li>
+<li><a href="https://win-dash.techidaily.com/overcome-compatibility-errors-solve-your-hp-beats-headphones-sound-issues-in-modern-windows-os/"><u>Overcome Compatibility Errors: Solve Your HP Beats Headphones' Sound Issues in Modern Windows OS</u></a></li>
+<li><a href="https://win-special.techidaily.com/tauschen-sie-die-festplatte-schnell-und-sicher-auf-eine-solid-state-drive-um-anleitung-fur-anfanger/"><u>Tauschen Sie Die Festplatte Schnell Und Sicher Auf Eine Solid State Drive Um - Anleitung Für Anfänger</u></a></li>
 </ul></div>
 

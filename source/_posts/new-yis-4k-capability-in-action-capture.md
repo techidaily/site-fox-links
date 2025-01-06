@@ -1,7 +1,7 @@
 ---
 title: "[New] Yi's 4K Capability in Action Capture"
-date: 2024-08-23T03:03:22.122Z
-updated: 2024-08-24T03:03:22.122Z
+date: 2025-01-01T16:58:36.625Z
+updated: 2025-01-06T18:03:39.229Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
 
 **You may also like:** [Top 15 Best Action Cameras >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Complete Review for Yi 4k Action Camera
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01FU9ZIMU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01FU9ZIMU&linkId=8ffea9b2da130000b205cf9367ce3ccf
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
  Let us start with the hardware part. Yi 4k looks almost same as that of GoPro device, even the waterproof case appears somewhat like GoPro product. Some resemblance is found in mobile applications as well as in mounting systems. The front side of Yi 4k is equipped with a lens and LED that provides current camera status indication. The 2.2 inch wide LCD screen is protected with Gorilla Glass whereas on top portion you will find holes for speaker and dual microphone. On the right side, a small flap is covering MicroUSB charging port and the left side is left bare.
 
 ![yi-4k-product](https://images.wondershare.com/filmora/article-images/yi-4k-product.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Specifications
 
@@ -74,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
  Want to know more about the best accessories for Xiaomi Yi 4K action camera? Check [Best Accessories for YI 4K Action Camera in 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![yi-4k-unboxing-](https://images.wondershare.com/filmora/article-images/yi-4k-unboxing-.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Features
 
@@ -131,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -154,8 +170,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-crafting-the-perfect-ringtone-for-your-ios-device/"><u>[New] 2024 Approved Crafting the Perfect Ringtone for Your iOS Device</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-a-beginners-guide-to-adding-depth-with-text-in-photoshop/"><u>[New] A Beginner's Guide to Adding Depth with Text in Photoshop</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-practices-for-youtube-video-brightness-and-contrast/"><u>[New] Best Practices for YouTube Video Brightness and Contrast</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-bring-your-video-to-life-with-cropping-adding-and-tweaking-audio-in-canva/"><u>[New] In 2024, Bring Your Video to Life with Cropping, Adding, & Tweaking Audio in Canva</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-uploading-and-sharing-gifs-on-instagram-step-by-step-approach/"><u>[Updated] 2024 Approved Uploading & Sharing GIFs on Instagram Step-by-Step Approach</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-webcam-capture-basics-for-hp-and-chromebook-owners/"><u>[Updated] 2024 Approved Webcam Capture Basics for HP and Chromebook Owners</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-chronicle-crafters-collective-select-seventeen/"><u>[Updated] Chronicle Crafters Collective - Select Seventeen</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-dynamic-book-summary-vids/"><u>[Updated] Dynamic Book Summary Vids</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-android-and-iphone-select-top-tier-mobile-multimedia-tools/"><u>[Updated] In 2024, Android & iPhone Select Top-Tier Mobile Multimedia Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-crafting-co-branded-narratives-for-youtube-audiences/"><u>[Updated] In 2024, Crafting Co-Branded Narratives for YouTube Audiences</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/macbook-showdown-deciding-whether-macbook-pro-or-macbook-air-fits-your-needs-techtalkzdnet/"><u>MacBook Showdown: Deciding Whether MacBook Pro or MacBook Air Fits Your Needs | TechTalkZDNet</u></a></li>
+<li><a href="https://blog-min.techidaily.com/new-judicial-decision-your-bitcoin-may-now-be-illegitimate-ownership-under-law/"><u>New Judicial Decision: Your Bitcoin May Now Be Illegitimate Ownership Under Law</u></a></li>
+<li><a href="https://fox-links.techidaily.com/optimal-transformation-tool-for-hd-videos/"><u>Optimal Transformation Tool for HD Videos</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solve-the-imessage-disconnection-problem-on-your-iphone-with-these-tips/"><u>Solve the iMessage Disconnection Problem on Your iPhone with These Tips</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

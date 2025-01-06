@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The New Director’s Toolkit  15 Basic Cinematography Movements\""
-date: 2024-12-26T22:17:03.598Z
-updated: 2024-12-28T01:27:51.121Z
+date: 2024-12-31T16:25:00.661Z
+updated: 2025-01-06T17:40:38.789Z
 tags: 
   - screen-recording
   - ai video
@@ -59,7 +59,7 @@ With this type of [shot in the film](https://tools.techidaily.com/wondershare/fi
 ![Establishing Shot](https://images.wondershare.com/filmora/filmorapro/establishing-shot.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Extreme Long Shot
@@ -69,10 +69,6 @@ This type of camera shot is taken from a long distance. This brings the audience
 You will also allow the audience to know the emotional relationship to the environment where there is no need to show the character.
 
 ![Extreme Long Shot](https://images.wondershare.com/filmora/filmorapro/extreme-long-shot.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Long Shot
 
@@ -103,7 +99,11 @@ The purpose of this shot is to keep the character looking natural.
 ![Medium Shot](https://images.wondershare.com/filmora/filmorapro/medium-shot.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Close-Up shot
@@ -115,7 +115,7 @@ This shot basically provides what you miss in the [medium shot](https://tools.te
 ![Close-Up shot](https://images.wondershare.com/filmora/filmorapro/close-up-shot.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. Extreme Close Up
@@ -134,13 +134,17 @@ These types of shots are taken keeping the camera exactly at the [human eye leve
 
 ![Eye Shots](https://images.wondershare.com/filmora/filmorapro/eye-shots.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. High Shots
 
 High angled shots, unsurprisingly are recorded from the level above than the eye. Basically, this shot type is used to give the weak, unsafe or the terrified impact of the subject.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. Low Shots
 
@@ -148,15 +152,15 @@ Contrary to the above, this type of shot in the film is taken from the level bel
 
 ![Low Shots](https://images.wondershare.com/filmora/filmorapro/low-shots.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 11\. Tilt shots
 
 To give an effect of uneasy psychological state to the audience, on should go for the tilt shots.
 
 These types of camera shots are taken by setting the camera at an angle on it roll axis to unlevel the horizon line.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 12\. Over-the-Shoulder Shot
 
@@ -169,7 +173,7 @@ Also, the subject in these shots, faces the camera making their neck and shoulde
 ![Over-the-Shoulder Shot](https://images.wondershare.com/filmora/filmorapro/over-the-shoulder-shot.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 13\. Cut-In
@@ -197,7 +201,7 @@ For example, looking through the binoculars and shooting only where the characte
 ![Point of View Shot](https://images.wondershare.com/filmora/filmorapro/point-of-view-shot.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -209,10 +213,6 @@ We hope you learnt well from this article and from now on will keep in mind all 
 Please help us by sharing your views on this so that we will update you with more such information. Thanks!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -239,22 +239,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-comprehensive-insight-into-high-end-hdr-cameras/"><u>[New] 2024 Approved Comprehensive Insight Into High-End HDR Cameras</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-ultimate-windows-11-hacks-and-tips/"><u>[New] 2024 Approved Ultimate Windows 11 Hacks and Tips</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-auditcast-inspection/"><u>[Updated] 2024 Approved AuditCast Inspection</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-masterclass-in-media-magic-with-magix-video-pro-x/"><u>[Updated] In 2024, Masterclass in Media Magic with Magix Video Pro X</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-making-classroom-content-video-editing-insights-for-2024/"><u>[Updated] Making Classroom Content Video Editing Insights for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-uniting-brands-and-youtube-for-maximum-impact/"><u>[Updated] Uniting Brands & YouTube for Maximum Impact</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-your-first-steps-in-the-digital-world-course-recommendations/"><u>2024 Approved Your First Steps in the Digital World Course Recommendations</u></a></li>
-<li><a href="https://fox-links.techidaily.com/elevate-canva-creations-with-these-10-secrets/"><u>Elevate Canva Creations with These 10 Secrets</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-beginners-top-8-camera-options-35mm-to-pands/"><u>In 2024, Beginner’s Top 8 Camera Options (35Mm to P&S)</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-best-value-4k-photography-equipment/"><u>In 2024, Best Value 4K Photography Equipment</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-breathe-new-life-into-your-ig-story-with-simple-animated-text-tips/"><u>In 2024, Breathe New Life Into Your IG Story with Simple Animated Text Tips</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-lava-blaze-curve-5g-easily-by-drfone-android/"><u>In 2024, How To Unlock a Lava Blaze Curve 5G Easily?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Xiaomi Redmi 12 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/platform-blackout-alert-fb-wa-insta-offline-today/"><u>Platform Blackout Alert: FB, WA, Insta Offline Today</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/sculpt-your-media-techniques-for-excising-audio-in-iphones-and-mac-videos-for-2024/"><u>Sculpt Your Media Techniques for Excising Audio in iPhones & Mac Videos for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/smooth-photo-and-video-flow-pc-to-iphone-upload-for-2024/"><u>Smooth Photo & Video Flow PC-to-iPhone Upload for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-routes-turning-pinterest-vids-into-music-files-for-2024/"><u>Ultimate Routes Turning Pinterest Vids Into Music Files for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-caption-kings-and-queens-top-10-mobile-writing-aids-iosandroid-for-2024/"><u>[New] Caption Kings and Queens Top 10 Mobile Writing Aids (iOS/Android) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-picture-perfection-ranking-of-photo-grid-tools-for-2024/"><u>[New] Picture Perfection Ranking of Photo Grid Tools for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-capture-flawless-footage-top-choices-of-tripods-for-youtubers/"><u>[Updated] Capture Flawless Footage Top Choices of Tripods for YouTubers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-realme-v30-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Realme V30 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixed-fortnite-initial-start-up-problems/"><u>Fixed Fortnite Initial Start-Up Problems</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-vivo-y200e-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Vivo Y200e 5G Phone</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-repair-a-non-functional-hp-display-unit-fixed/"><u>How to Repair a Non-Functional HP Display Unit (FIXED)</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/is-updating-your-audio-device-driver-essential-insights-by-yl-computing/"><u>Is Updating Your Audio Device Driver Essential? - Insights by YL Computing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/navigating-through-post-production-color-nuances-for-2024/"><u>Navigating Through Post-Production Color Nuances for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/top-30-visionary-insights-on-virtual-realms/"><u>Top 30 Visionary Insights on Virtual Realms</u></a></li>
 </ul></div>
 
