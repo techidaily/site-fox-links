@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Integrate Sound & Filter Magic Into Your Windows 10 Photos App"
-date: 2025-01-08T02:33:41.074Z
-updated: 2025-01-13T03:52:28.627Z
+date: 2025-01-11T17:40:11.946Z
+updated: 2025-01-18T16:09:13.363Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -53,6 +49,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 **Step 2**: Choose the video you want to add filters. Click **New video** at top > Custom video with music.
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
@@ -75,7 +75,7 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
@@ -83,13 +83,13 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -99,7 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,16 +127,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/utting-edge-gear-for-aspiring-youtube-stars-for-2024/"><u>[New] Cutting-Edge Gear for Aspiring YouTube Stars for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-secrets-to-shooting-exceptional-micro-videos/"><u>[New] In 2024, Secrets to Shooting Exceptional Micro Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-ultimate-guide-to-convert-srt-to-txt-in-minutes-2023/"><u>[New] Ultimate Guide to Convert SRT to TXT in Minutes 2023</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-unlocking-the-potential-storing-insta-media-on-your-phone-for-2024/"><u>[New] Unlocking the Potential Storing Insta Media on Your Phone for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-audio-artists-almanac-your-guide-to-video-submission/"><u>[Updated] 2024 Approved Audio Artists' Almanac Your Guide to Video Submission</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-starting-point-for-film-designers/"><u>[Updated] 2024 Approved The Starting Point for Film Designers</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-hidden-features-top-30-unknown-window-11-tips/"><u>[Updated] Hidden Features Top 30 Unknown WINDOW 11 Tips</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-pin-to-play-the-ultimate-free-pinterest-video-download-guide/"><u>[Updated] In 2024, Pin-to-Play The Ultimate Free Pinterest Video Download Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-nokia-c12-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Nokia C12 | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/top-8-best-selfie-sticks-in-iphone-2024-review/"><u>Top 8 Best Selfie Sticks in iPhone 2024 Review</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/ultimate-gadget-insights-from-toms-hardware-experts/"><u>Ultimate Gadget Insights From Tom's Hardware Experts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-8-ultimate-online-photo-mosaic-compiler/"><u>[New] In 2024, 8 Ultimate Online Photo Mosaic Compiler</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-turning-gaming-moments-into-legacy-proven-methods-for-documenting-your-sims-journey-in-sims-4-for-2024/"><u>[New] Turning Gaming Moments Into Legacy Proven Methods for Documenting Your Sims' Journey in Sims 4 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-comprehensively-reviewing-the-ricoh-theta-s-system/"><u>2024 Approved Comprehensively Reviewing the Ricoh Theta S System</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-crafting-superior-recordings-a-guide-to-audacity/"><u>2024 Approved Crafting Superior Recordings A Guide to Audacity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-directory-of-various-visual-recording-devices/"><u>2024 Approved Directory of Various Visual Recording Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-giving-life-a-curtain-call-blackout-in-pro/"><u>2024 Approved Giving Life a Curtain Call Blackout in Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-how-to-save-your-video-tweets-as-high-quality-mp3-files/"><u>2024 Approved How to Save Your Video Tweets as High-Quality MP3 Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-laughlineart-memogallery/"><u>2024 Approved LaughLineArt MemoGallery</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-spiritual-soundtracks-where-to-find-christian-tunes/"><u>2024 Approved Spiritual Soundtracks Where to Find Christian Tunes</u></a></li>
+<li><a href="https://some-tips.techidaily.com/behind-the-screens-zdnets-expert-approach-to-smartphone-evaluation-and-review/"><u>Behind the Screens: ZDNet's Expert Approach to Smartphone Evaluation and Review</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/custom-python-script-for-a-quieter-streamlined-experience-with-the-nzxt-kraken-aio-beat-fan-noise-and-bulky-apps/"><u>Custom Python Script for a Quieter, Streamlined Experience with the NZXT Kraken AIO - Beat Fan Noise & Bulky Apps</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-crafting-compelling-online-livestreams-from-a-single-source/"><u>In 2024, Crafting Compelling Online Livestreams From a Single Source</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/recording-your-live-feed-without-spending-a-dime-for-2024/"><u>Recording Your Live Feed without Spending a Dime for 2024</u></a></li>
 </ul></div>
 

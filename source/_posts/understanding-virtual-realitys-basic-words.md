@@ -1,7 +1,7 @@
 ---
 title: "Understanding Virtual Reality's Basic Words"
-date: 2025-01-11T21:14:45.202Z
-updated: 2025-01-12T21:43:34.812Z
+date: 2025-01-17T16:10:10.648Z
+updated: 2025-01-18T20:17:30.916Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/3a153ca8f2151a31f0bfcdf6fa8070d85fd583f87
 
 It is a kind of highly controlled physical system which assists in the simulation of display motion into the real motion senses in the VR world. It provides life to all captured digital elements and let users believe that they are playing with a world of all living things.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Eye Tracking
 
 Eye Tracking works the same as that of head tracking and assists to keep users eye in motion as per the requirement of VR stuff. HMD assists in proper tracking of eye and head with integration to VR content, if you talk about VR games then this feature makes you feel the reality inside the gaming world and when you have to aim at targets then they can be controlled like real-world movements.
@@ -44,7 +48,7 @@ Eye Tracking works the same as that of head tracking and assists to keep users e
 Here we are going to talk about the sensors that track the movement of users' heads and keeps images moving in such a manner that they match head positions perfectly. For example, if you are using an Oculus Rift then the head tracking feature will force your head to look up, down, right, and left so that you can see the world in the way virtual reality wish to make you see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Motion Tracking
@@ -59,32 +63,32 @@ When you are looking at a series of images in the world of Virtual reality then 
 
 This term will be more often used when you enter the world of Virtual Reality because it is associated with reading and hearing abilities in VR technology. In simple terms, HMDs are the specialized form of hardware that is responsible to deliver VR experience to users. It is designed in shape of a helmet or goggle that users can strap on their faces easily or can wear on their heads. The usage depends upon the requirements of your VR gear because some sensors work with head tracking whereas others do not need such elements.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Latency
 
 If you have ever experienced the world of Virtual Reality then you surely might have noticed that whenever you move your head in the directive motion then the visuals do not keep up accordingly, this is called latency. This is an unpleasant thing about Virtual Reality that adds a limitation to match virtual world with the real world. The lag caused by this latency period is a complaint from VR content users and it occurs due to a variety of reasons.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Immersion
 
 The combination of VR and MR leads to immersive experience of users where high-end manipulations can be done on images, sounds as well as other stimuli so that they can stay alive in an artificial environment.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Field of View (FOV)
 
 The term Field of View presents the angle of the visual field in degrees where it is important to keep FoV higher to that immersion can be extended to a higher end of the scale. Technically, the viewing angle of the human eye reaches up to 200 degrees thus it becomes important to raise the angle of FoV so that higher immersion can be resulted.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Screen Resolution
 
 Screen resolution actually describes the number of pixels to be displayed on-screen during Virtual Reality scenes. Same as the concept of television monitor or computer screen, more number of pixels mean much better resolution and much clearer as well as the realistic quality of images. The technology of Virtual Reality serves with awesome resolution and cameras developed for capturing such images are designed to add more number of pixels per frame. With specially developed VR headsets, the screen is divided into two portions that are observed by each eye separately and the screen door effects added to VR technology makes users feel like they are watching through a door.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -100,10 +104,6 @@ It is simply the process of overlaying digital elements or data on the real worl
 The convergence of Virtual and Augmented reality is known as mixed reality. MR creates a blend of the virtual world into the physical space and it has the power to bring life into digital elements resulted from highly advanced camera units and VR+AR gears.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -130,15 +130,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-pro-level-mac-audio-logging-tools-uncover-the-top-5/"><u>[New] 2024 Approved Pro-Level Mac Audio Logging Tools Uncover the Top 5</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-boosting-joy-in-packet-opening-top-tips/"><u>[New] In 2024, Boosting Joy in Packet Opening Top Tips</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-inside-spaces-weaving-in-the-essence-of-daylight/"><u>[New] In 2024, Inside Spaces Weaving in the Essence of Daylight</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-tips-for-crafting-an-engaging-video-closure-on-youtub/"><u>[New] In 2024, Tips for Crafting an Engaging Video Closure on YouTub</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-procedure-for-effective-auditory-recordings-on-windows-11/"><u>[Updated] In 2024, Procedure for Effective Auditory Recordings on Windows 11</u></a></li>
-<li><a href="https://win-able.techidaily.com/master-your-gaming-experience-no-more-praey-crashes-on-pc/"><u>Master Your Gaming Experience: No More Praey Crashes on PC!</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/maximizing-performance-the-advantages-of-the-expanded-screen-in-apples-iphone-12-pro-max-review/"><u>Maximizing Performance: The Advantages of the Expanded Screen in Apple's iPhone 12 Pro Max Review</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96028111-9781591433040-reign-of-the-anunnaki/"><u>Reign of the Anunnaki | Free Book</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/king-from-youtube-shorts-easy-and-permanent-for-2024/"><u>Unlinking From YouTube Shorts - Easy and Permanent for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/unraveling-the-excellence-a-guide-to-choosing-best-titling-talents-online-for-2024/"><u>Unraveling the Excellence A Guide To Choosing Best Titling Talents Online for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-implement-xps-video-editing-suite-instantly/"><u>[New] 2024 Approved Implement XP's Video Editing Suite Instantly</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-ultimate-list-6-videos-that-grab-attention/"><u>[New] 2024 Approved The Ultimate List 6 Videos That Grab Attention</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-best-8-screenshot-and-video-editing-tools-for-phones/"><u>[New] In 2024, The Best 8 Screenshot & Video Editing Tools for Phones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-elevating-windows-10-photos-incorinaste-aesthetics-and-soundscape/"><u>[Updated] 2024 Approved Elevating Windows 10 Photos Incorinaste Aesthetics & Soundscape</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-art-of-zoom-setup-ensuring-smooth-video-conferencing/"><u>[Updated] 2024 Approved The Art of Zoom Setup Ensuring Smooth Video Conferencing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-best-10-volume-magnifiers-for-windowsmacos/"><u>[Updated] Best 10 Volume Magnifiers for Windows/MacOS</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-elevate-your-farming-adventures-with-stardews-top-7-mods-for-2024/"><u>[Updated] Elevate Your Farming Adventures with Stardew's Top 7 Mods for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-elevating-your-tiktok-presence-by-merging-bio-and-linktree/"><u>[Updated] In 2024, Elevating Your TikTok Presence by Merging Bio & Linktree</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-amazon-prime-and-twitter-most-shared-and-liked-shows-23/"><u>2024 Approved Amazon Prime and Twitter Most Shared & Liked Shows, '23</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-from-shoot-to-spectacle-editing-techniques-for-drones/"><u>In 2024, From Shoot to Spectacle Editing Techniques for Drones</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-leading-android-and-ios-timer-tools-reviewed-your-big-day-planners-must-haves/"><u>In 2024, Leading Android & iOS Timer Tools Reviewed Your Big Day Planner's Must-Haves</u></a></li>
+<li><a href="https://fox-links.techidaily.com/navigating-through-video-editing-delight-filmoras-core-traits-for-2024/"><u>Navigating Through Video Editing Delight Filmora's Core Traits for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/next-gen-psvr-experience-essential-upcoming-games-to-watch/"><u>Next Gen PSVR Experience Essential Upcoming Games to Watch</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/obtain-the-most-recent-windows-compatible-audio-drivers-from-msi-today/"><u>Obtain the Most Recent Windows-Compatible Audio Drivers From MSI Today</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-digital-connection-hubs-exploring-facebook-twitter-instagram-and-youtubes-impact/"><u>The Digital Connection Hubs: Exploring Facebook, Twitter, Instagram & YouTube's Impact</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-f14-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy F14 5G Phone Network-Ready</u></a></li>
 </ul></div>
 

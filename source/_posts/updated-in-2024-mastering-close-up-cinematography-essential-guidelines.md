@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering Close-Up Cinematography  Essential Guidelines\""
-date: 2025-01-09T01:43:01.520Z
-updated: 2025-01-12T17:13:37.515Z
+date: 2025-01-17T21:08:57.725Z
+updated: 2025-01-18T22:56:40.757Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ Any person having a photography background can learn the nuances of the macro vi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6 Tips For Making Macro Video
 
 The difference between the macro video and the macro photo mainly depends on the light acquisition.
@@ -69,10 +73,6 @@ Try to get great visual perspectives or angles by bracing the camera on the tree
 
 ![Tripod](https://images.wondershare.com/filmora/article-images/oconnor-ultimate-1030d-fluid-head-30l-cf-tripod.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\. Background
 
 The background of your macro video always remains blurred as you shoot it closely. But, the background color is visible so, choosing it correctly is vital. The color of the background must compliment your composition’s color and must be chosen creatively.
@@ -80,7 +80,7 @@ The background of your macro video always remains blurred as you shoot it closel
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. DSLR Cameras
@@ -92,10 +92,6 @@ If you are a Canon user, you may opt for the 180 mm macro, 100 mm macro or the 6
 You may also add an extension tube which basically splits the focal distance in two equal halves and make the image size bigger but it decreases the depth of the field.
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 5\. Depth of Field
 
@@ -116,7 +112,11 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -126,7 +126,7 @@ Once you can master the above tips for making the macro video, you can easily sh
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -154,19 +154,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-discovering-the-peak-of-mobile-photo-collages-for-tech-users/"><u>[New] 2024 Approved Discovering the Peak of Mobile Photo Collages for Tech Users</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-navigating-the-world-of-instagram-endorsements-five-essential-steps/"><u>[New] 2024 Approved Navigating the World of Instagram Endorsements Five Essential Steps</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-pinnacle-of-3d-entertainment-premium-blu-ray-decks/"><u>[New] In 2024, Pinnacle of 3D Entertainment Premium Blu-Ray Decks</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-top-5-omnidirectional-recording-gadgets/"><u>[New] In 2024, Top 5 Omnidirectional Recording Gadgets</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-instagram-success-secrets-8-steps-to-becoming-a-top-poster-for-2024/"><u>[New] Instagram Success Secrets 8 Steps to Becoming a Top Poster for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-unlock-windows-xp-professional-for-media-development-for-2024/"><u>[New] Unlock Windows XP Professional for Media Development for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-optimal-record-solution-chromebook-edition/"><u>[Updated] In 2024, Optimal Record Solution Chromebook Edition</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-legality-of-recording-on-youtube-platform/"><u>[Updated] Legality of Recording on YouTube Platform?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-win-over-product-sponsors-in-the-youtube-arena/"><u>2024 Approved How to Win Over Product Sponsors in the YouTube Arena</u></a></li>
-<li><a href="https://windows11.techidaily.com/correcting-windows-11-upgrade-problem-code-0x800f0922/"><u>Correcting Windows 11 Upgrade Problem - Code 0X800f0922</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/how-to-protect-and-restore-your-mac-hard-drive-using-encryption-techniques-video-explanation/"><u>How To Protect and Restore Your Mac Hard Drive Using Encryption Techniques | Video Explanation</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-vivo-y17s-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Vivo Y17s FRP In 3 Different Ways</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-basics-of-ussd-comprehensive-overview-of-unstructured-supplementary-service-data/"><u>The Basics of USSD: Comprehensive Overview of Unstructured Supplementary Service Data</u></a></li>
-<li><a href="https://fox-links.techidaily.com/unveiling-the-wonders-of-phantoms-chrono-inversion/"><u>Unveiling the Wonders of Phantom’s Chrono Inversion</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-embarking-on-a-digital-persona-makeover-tiktok-username-transformation-techniques/"><u>[New] Embarking on a Digital Persona Makeover TikTok Username Transformation Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-art-of-shots-essential-tips-for-capturing-great-iphone-images/"><u>[New] The Art of Shots Essential Tips for Capturing Great iPhone Images</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-all-encompassing-capture-suite-detailed-app-evaluations/"><u>[Updated] 2024 Approved All-Encompassing Capture Suite - Detailed App Evaluations</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-essential-tips-and-templates-for-impactful-ig-footage/"><u>[Updated] In 2024, Essential Tips & Templates for Impactful IG Footage</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-premium-power-supplies-for-gopro-hero5-genuine-and-3rd-party/"><u>[Updated] In 2024, Premium Power Supplies for GoPro Hero5 Genuine and 3Rd-Party</u></a></li>
+<li><a href="https://fox-links.techidaily.com/10-freepaid-luts-for-canon-camera-for-2024/"><u>10 Free/Paid LUTs for Canon Camera for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-androids-fastest-video-speed-adjusters/"><u>2024 Approved Android's Fastest Video Speed Adjusters</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-crafting-stories-the-ultimate-youtube-channel-list/"><u>2024 Approved Crafting Stories - The Ultimate YouTube Channel List</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-droning-made-simple-top-picks-for-kids-and-newbies/"><u>2024 Approved Droning Made Simple Top Picks for Kids & Newbies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-funny-facades-top-quality-free-meme-files/"><u>2024 Approved Funny Facades Top-Quality, FREE Meme Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-gimbal-guide-for-the-ultimate-4k-shot-experience/"><u>2024 Approved Gimbal Guide for the Ultimate 4K Shot Experience</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-innovative-color-grading-integrating-free-lut-resources/"><u>2024 Approved Innovative Color Grading Integrating FREE LUT Resources</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-original-design-potential-utilize-free-logo-templates-and-customization-tools/"><u>2024 Approved Original Design Potential Utilize FREE Logo Templates & Customization Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-proven-strategies-for-implementing-visual-enhancements-in-media/"><u>2024 Approved Proven Strategies for Implementing Visual Enhancements in Media</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-iphones-masterclass-perfect-your-pictures-with-simple-edits-for-2024/"><u>FREE iPhones Masterclass Perfect Your Pictures with Simple Edits for 2024</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/maximizing-system-speed-and-stability-with-yl-software-strategies/"><u>Maximizing System Speed and Stability with YL Software Strategies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-ultimate-guide-to-override-secure-boottpm-on-win11-using-rufus/"><u>The Ultimate Guide to Override Secure Boot/TPM on Win11 Using Rufus</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-ultimate-ranking-for-vraction-cams-not-like-gopro-for-2024/"><u>The Ultimate Ranking for VR/Action Cams, Not Like GoPro for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/worried-about-your-privacy-with-chatgpt-learn-the-steps-to-disconnect/"><u>Worried About Your Privacy with ChatGPT? Learn the Steps to Disconnect</u></a></li>
 </ul></div>
 
