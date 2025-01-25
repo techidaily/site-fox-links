@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Integrate Sound & Filter Magic Into Your Windows 10 Photos App"
-date: 2025-01-11T17:40:11.946Z
-updated: 2025-01-18T16:09:13.363Z
+date: 2025-01-19T19:13:53.743Z
+updated: 2025-01-25T03:06:32.967Z
 tags: 
   - screen-recording
   - ai video
@@ -51,7 +51,7 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
@@ -61,6 +61,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 **Step 5**: Just select one you like. Preview it and then click Done.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -75,7 +79,7 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
@@ -83,14 +87,10 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -99,7 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,18 +127,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-8-ultimate-online-photo-mosaic-compiler/"><u>[New] In 2024, 8 Ultimate Online Photo Mosaic Compiler</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-turning-gaming-moments-into-legacy-proven-methods-for-documenting-your-sims-journey-in-sims-4-for-2024/"><u>[New] Turning Gaming Moments Into Legacy Proven Methods for Documenting Your Sims' Journey in Sims 4 for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-comprehensively-reviewing-the-ricoh-theta-s-system/"><u>2024 Approved Comprehensively Reviewing the Ricoh Theta S System</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-crafting-superior-recordings-a-guide-to-audacity/"><u>2024 Approved Crafting Superior Recordings A Guide to Audacity</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-directory-of-various-visual-recording-devices/"><u>2024 Approved Directory of Various Visual Recording Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-giving-life-a-curtain-call-blackout-in-pro/"><u>2024 Approved Giving Life a Curtain Call Blackout in Pro</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-how-to-save-your-video-tweets-as-high-quality-mp3-files/"><u>2024 Approved How to Save Your Video Tweets as High-Quality MP3 Files</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-laughlineart-memogallery/"><u>2024 Approved LaughLineArt MemoGallery</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-spiritual-soundtracks-where-to-find-christian-tunes/"><u>2024 Approved Spiritual Soundtracks Where to Find Christian Tunes</u></a></li>
-<li><a href="https://some-tips.techidaily.com/behind-the-screens-zdnets-expert-approach-to-smartphone-evaluation-and-review/"><u>Behind the Screens: ZDNet's Expert Approach to Smartphone Evaluation and Review</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/custom-python-script-for-a-quieter-streamlined-experience-with-the-nzxt-kraken-aio-beat-fan-noise-and-bulky-apps/"><u>Custom Python Script for a Quieter, Streamlined Experience with the NZXT Kraken AIO - Beat Fan Noise & Bulky Apps</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-crafting-compelling-online-livestreams-from-a-single-source/"><u>In 2024, Crafting Compelling Online Livestreams From a Single Source</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/recording-your-live-feed-without-spending-a-dime-for-2024/"><u>Recording Your Live Feed without Spending a Dime for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/alancing-act-proper-techniques-for-stable-photos/"><u>[New] Balancing Act Proper Techniques for Stable Photos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-future-proofing-your-mp4s-srt-integration-hacks-for-2024/"><u>[New] Future-Proofing Your MP4s SRT Integration Hacks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-bonds-before-buying-subscription-strategies/"><u>[New] In 2024, Building Bonds Before Buying Subscription Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevating-youtube-performance-consistency-in-cc-usage/"><u>[New] In 2024, Elevating YouTube Performance Consistency in CC Usage</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamlining-the-search-for-spotless-stock-visuals/"><u>[New] Streamlining the Search for Spotless Stock Visuals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-handhinas-and-lenses-for-journey-shots/"><u>[Updated] Handhinas and Lenses for Journey Shots</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pro-level-stabilization-systems-for-streaming-content/"><u>[Updated] Pro-Level Stabilization Systems for Streaming Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-recovering-the-solitary-sound-device-for-2024/"><u>[Updated] Recovering the Solitary Sound Device for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unleashing-visual-impact-techniques-for-ai-text-depth/"><u>[Updated] Unleashing Visual Impact Techniques for AI Text Depth</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-yuneec-typhoon-h-examined-an-extensive-review/"><u>[Updated] Yuneec Typhoon H Examined An Extensive Review</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/elevate-your-game-day-with-top-tier-sound-quality-save-big-now-at-amazon-the-1-rated-speaker-system-reviewed-by-zdnet/"><u>Elevate Your Game Day with Top-Tier Sound Quality! Save Big Now at Amazon – The #1 Rated Speaker System Reviewed by ZDNET</u></a></li>
+<li><a href="https://fox-links.techidaily.com/how-to-optimize-playback-settings-in-snapchat-applications-for-2024/"><u>How To Optimize Playback Settings in Snapchat Applications for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/mainstream-non-k-cpus-affected-by-critical-instability-no-fix-planned-impact-on-high-performance-series-revealed/"><u>Mainstream 'Non-K' CPUs Affected by Critical Instability, No Fix Planned - Impact on High-Performance Series Revealed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/solo-stardom-in-the-podcast-universe/"><u>Solo Stardom in the Podcast Universe</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering AE  Integrating Custom Typefaces for 2024\""
-date: 2025-01-12T19:45:21.151Z
-updated: 2025-01-18T21:06:39.750Z
+date: 2025-01-22T03:44:32.306Z
+updated: 2025-01-25T05:21:02.711Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ After Effects is one of the most promising video editing applications available 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How to add fonts to After Effects?
 
 Adding fonts to any video editor is a crucial part because texts add a story to the video projects. They have a great impact on the cinematic quality of any video. For informative videos, the style of font decides the tone in which the texts are displayed.
@@ -40,6 +36,10 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * For adding the Adobe Fonts to After Effects, you will first need to enable them by signing in to the Creative Cloud application on your desktop. To do that, first, open the Creative Cloud, navigate to Assets, and click on Fonts.
 
 ![enable fonts adobe after effects](https://images.wondershare.com/filmora/article-images/2022/07/enable-fonts-adobe-after-effects.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * This will direct you to the official website of Adobe Fonts where you can enable the fonts for your After Effects application. Once you are done with that click on the "Browse Fonts" and then in the opened tab, you will see a variety of fonts with their specified categories.
 
@@ -87,7 +87,7 @@ These features also include adding texts and changing the fonts of those texts o
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -96,10 +96,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -112,12 +108,16 @@ These features also include adding texts and changing the fonts of those texts o
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -127,7 +127,7 @@ These features also include adding texts and changing the fonts of those texts o
 * After you are done, click "save" and the text effects will be added to your videos successfully.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -158,17 +158,16 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-the-detailed-breakdown-of-fbm-transcription-techniques-for-2024/"><u>[New] The Detailed Breakdown of FBM Transcription Techniques for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-the-impact-of-multi-view-video-technology-on-home-surveillance/"><u>[New] The Impact of Multi-View Video Technology on Home Surveillance</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-unlock-iphone-video-potential-mastering-8-essential-filmmaking-skills-for-2024/"><u>[New] Unlock iPhone Video Potential Mastering 8 Essential Filmmaking Skills for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-screencast-o-matic-review/"><u>[Updated] 2024 Approved Screencast-O-Matic Review</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-school-based-videography-crafting-quality-content/"><u>[Updated] In 2024, School-Based Videography Crafting Quality Content</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-time-loop-mastery-how-to-rewind-iphone-media/"><u>[Updated] Time-Loop Mastery How to Rewind iPhone Media</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-blending-images-with-moving-screens-on-iphone/"><u>2024 Approved Blending Images with Moving Screens on iPhone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/augmented-reality-stickers-by-google-unveiled-and-compared-for-2024/"><u>Augmented Reality Stickers by Google Unveiled and Compared for 2024</u></a></li>
-<li><a href="https://win-tips.techidaily.com/guide-top-software-tools-for-ssd-migration/"><u>Guide: Top Software Tools for SSD Migration</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-the-artisan-editor-refining-video-transitions-with-inshot/"><u>In 2024, The Artisan Editor Refining Video Transitions with Inshot</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211457968-9781839388538-skinwalker-ranch/"><u>Skinwalker Ranch | Free Book</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/stop-the-cyber-trickery-say-no-to-googles-bard-app-download/"><u>Stop the Cyber Trickery: Say No to Google's Bard App Download</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-visual-aesthetics-boost-integrating-black-bar-and-box-frame-for-social-media/"><u>[New] 2024 Approved Visual Aesthetics Boost Integrating Black Bar & Box Frame for Social Media</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-noiseless-speech-transcription-services-for-2024/"><u>[New] Noiseless Speech Transcription Services for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-discovering-samsungs-updated-ultrablade-k850/"><u>[Updated] 2024 Approved Discovering Samsung's Updated UltraBlade K850</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-professional-screenshot-and-recorder-win10-edition/"><u>[Updated] 2024 Approved Professional Screenshot & Recorder, Win10 Edition</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/aggregate-rankings-of-the-ultimate-magsafe-wallet-collection-expertly-tested-and-analyzed/"><u>Aggregate Rankings of the Ultimate MagSafe Wallet Collection : Expertly Tested and Analyzed</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-as-a-reliable-source-for-wellbeayer-info/"><u>ChatGPT as a Reliable Source for Wellbeayer Info</u></a></li>
+<li><a href="https://fox-links.techidaily.com/digital-choices-for-content-creators-sound-or-sight-focus-for-2024/"><u>Digital Choices for Content Creators Sound or Sight Focus for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/enhancing-your-arc-browser-tabs-with-smart-spacing-techniques-a-complete-guide/"><u>Enhancing Your Arc Browser Tabs with Smart Spacing Techniques: A Complete Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/game-masters-guide-to-4k-monitors-for-2024/"><u>Game Masters' Guide to 4K Monitors for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-open-your-iphone-xs-without-a-home-button-by-drfone-ios/"><u>How To Open Your iPhone XS Without a Home Button</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-your-digital-storytelling-via-merged-youtube-media/"><u>Unifying Your Digital Storytelling via Merged YouTube Media</u></a></li>
 </ul></div>
 

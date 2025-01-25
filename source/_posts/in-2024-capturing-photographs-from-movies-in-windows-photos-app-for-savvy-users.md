@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Capturing Photographs From Movies in Windows Photos App for Savvy Users"
-date: 2025-01-17T16:28:48.261Z
-updated: 2025-01-18T22:02:37.803Z
+date: 2025-01-23T16:13:54.293Z
+updated: 2025-01-25T02:03:05.835Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,10 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -61,14 +65,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
@@ -78,7 +78,7 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
@@ -88,10 +88,6 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -105,18 +101,22 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,20 +143,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-navigate-through-apples-best-in-class-virtual-reality-games/"><u>[New] 2024 Approved Navigate Through Apple's Best-in-Class Virtual Reality Games</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-choosing-the-right-instagram-video-size-a-2023-guide-for-2024/"><u>[Updated] Choosing the Right Instagram Video Size - A 2023 Guide for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-pro-camera-selection-guide-top-10-films-tools-ranked/"><u>[Updated] Pro Camera Selection Guide - Top 10 Films Tools Ranked</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-vanguard-of-radio-theatre-composition/"><u>2024 Approved The Vanguard of Radio-Theatre Composition</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-unlock-youtubes-potential-with-expert-picture-posting-techniques/"><u>2024 Approved Unlock YouTube's Potential with Expert Picture Posting Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-upholders-of-popularity-the-10-most-loved-reddit-stories/"><u>2024 Approved Upholders of Popularity The 10 Most Loved Reddit Stories</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-videobrill-studio-affordable-video-editors-guide/"><u>2024 Approved Videobrill Studio Affordable Video Editors Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/3-simple-methods-to-brighten-a-video-on-iphone/"><u>3 Simple Methods to Brighten a Video on iPhone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/advanced-techniques-for-sharper-screen-collaboration/"><u>Advanced Techniques for Sharper Screen Collaboration</u></a></li>
-<li><a href="https://fox-links.techidaily.com/chronology-conundrum-best-podcast-times-for-2024/"><u>Chronology Conundrum Best Podcast Times for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/enhance-your-office-correspondence-skills-using-chatgpt-effective-strategies-inside/"><u>Enhance Your Office Correspondence Skills Using ChatGPT - Effective Strategies Inside!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Motorola G54 5G? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Poco X6 Pro? | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209838360-9781495111679-soul-realized-unlocking-the-sacred-keys-to-becoming-a-divine-human/"><u>Soul Realized: Unlocking the Sacred Keys to Becoming a Divine Human | Free Book</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/step-up-your-wellness-journey-a-thorough-examination-of-the-portable-cubefeatterramat-for-active-lifestyles/"><u>Step Up Your Wellness Journey: A Thorough Examination of the Portable CubeFeatTerraMat for Active Lifestyles</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-ultimate-companion-for-creating-unique-metaverse-avatars/"><u>[New] 2024 Approved The Ultimate Companion for Creating Unique Metaverse Avatars</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-avoiding-ambiguity-clear-dating-of-digital-pics/"><u>[New] Avoiding Ambiguity Clear Dating of Digital Pics</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-innovativemovaviscreenx-a-tech-enthusiasts-review-for-2024/"><u>[New] InnovativeMovaviScreenX A Tech Enthusiast’s Review for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-complete-picture-toolwizs-app-masterclass-for-2024/"><u>[New] The Complete Picture Toolwiz's App Masterclass for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-10-secret-windows-11-tips-and-tricks-for-2024/"><u>[Updated] 10 Secret Windows 11 Tips and Tricks for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-secure-and-simple-the-top-10-trusted-online-transformers/"><u>[Updated] 2024 Approved Secure and Simple The Top 10 Trusted Online Transformers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-boost-your-imagery-title-placement-techniques-on-video-clips-with-photos/"><u>[Updated] Boost Your Imagery Title Placement Techniques on Video Clips with Photos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-dive-into-samsung-ue590-high-res-freesync-tv-for-2024/"><u>[Updated] Dive Into Samsung UE590 High-Res, FreeSync TV for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-gaining-traction-effective-seo-techniques-for-youtube-videos/"><u>[Updated] Gaining Traction Effective SEO Techniques for YouTube Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-10-screenshot-enhancers-ios-and-android-sticker-edition-for-2024/"><u>[Updated] Top 10 Screenshot Enhancers IOS & Android Sticker Edition for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/4k-durable-laptop-vs-dell-latitude-a-comprehensive-torture-test-showdown-zdnet/"><u>$4K Durable Laptop Vs. Dell Latitude: A Comprehensive Torture Test Showdown! | ZDNet</u></a></li>
+<li><a href="https://fox-links.techidaily.com/elite-writers-of-aural-narratives-for-2024/"><u>Elite Writers of Aural Narratives for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-saving-on-cloud-space-expenses-detailed-analysis-and-tips/"><u>In 2024, Saving on Cloud Space Expenses Detailed Analysis & Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-ultimate-conversion-handbook-srt-to-various-formats/"><u>In 2024, Ultimate Conversion Handbook SRT to Various Formats</u></a></li>
+<li><a href="https://driver-error.techidaily.com/netgear-a6210-driver-free-download-and-update-for-your-windows-87/"><u>Netgear a6210 Driver Free Download & Update for Your Windows 8/7</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-mohu-blade-television-antenna-analysis-trendsetting-design-and-remarkable-interior-signal-strength/"><u>Top Mohu Blade Television Antenna Analysis: Trendsetting Design and Remarkable Interior Signal Strength</u></a></li>
+<li><a href="https://win11.techidaily.com/unlocking-your-files-preventing-read-only-in-win11/"><u>Unlocking Your Files: Preventing Read-Only in Win11</u></a></li>
 </ul></div>
 
