@@ -1,7 +1,7 @@
 ---
 title: "Seamless iPhone Photography During Video for 2024"
-date: 2024-12-03T19:34:06.125Z
-updated: 2024-12-07T04:35:31.402Z
+date: 2025-01-26T10:15:26.925Z
+updated: 2025-02-02T12:19:30.460Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ thumbnail: https://thmb.techidaily.com/f6689b1ce3b098830c1181e612252ff5b928460b4
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to shoot a still photo and record a video simultaneously on your iPhone
@@ -49,13 +49,13 @@ thumbnail: https://thmb.techidaily.com/f6689b1ce3b098830c1181e612252ff5b928460b4
 
 ![](https://images.wondershare.com/filmora/article-images/take-photo-while-recording-videos-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image resource: igeeksblog.com
 
 * Now, to take a still, just tap on the white 'take picture' button that can be noticed at the left of the red button. The screen will flicker each time you press the button to take the photo.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The drawbacks of taking photos and videos simultaneously
 
@@ -73,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/f6689b1ce3b098830c1181e612252ff5b928460b4
 | **iPhone 7 series**  | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Extract frames from video
@@ -81,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/f6689b1ce3b098830c1181e612252ff5b928460b4
  If you are one of those who wish to **take photos while recording videos** without compromising the quality, we are glad to inform you that there is a solution for this. You can easily extract a specific frame from the recorded video keeping the standard resolution quality via Wondershare Filmora and will never be bothered about missing anything interesting from the video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why Choose Wondershare Filmora?
@@ -94,11 +94,11 @@ thumbnail: https://thmb.techidaily.com/f6689b1ce3b098830c1181e612252ff5b928460b4
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
 
@@ -125,18 +125,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-solution-how-to-brighten-a-video-on-android-for-2024/"><u>[New] [Solution] How to Brighten a Video on Android for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-ultimate-guide-to-the-best-free-image-overlay-tools-for-mobile/"><u>[New] 2024 Approved Ultimate Guide to the Best Free Image Overlay Tools for Mobile</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-above-the-mainstage-significant-youtube-meetings-for-2024/"><u>[New] Above the Mainstage Significant YouTube Meetings for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-crafted-clicks-guide-to-software-and-sites-for-superior-photo-framing-for-2024/"><u>[New] Crafted Clicks Guide to Software & Sites for Superior Photo Framing for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-from-pc-to-smartphone-the-essential-guide-to-hulu-recording/"><u>[New] In 2024, From PC to Smartphone The Essential Guide to Hulu Recording</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-mastering-vimeo-video-integration-in-ppts-for-2024/"><u>[New] Mastering Vimeo Video Integration in PPTs for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-picarts-quick-shield-for-facial-features/"><u>[Updated] PicArt's Quick Shield for Facial Features</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-ultimate-4k-aerial-experience-with-xiaomis-drone-for-2024/"><u>[Updated] The Ultimate 4K Aerial Experience with Xiaomi's Drone for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/effective-methods-for-stable-windows-11-photos-viewing/"><u>Effective Methods for Stable Windows 11 Photos Viewing</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cing-resilience-against-online-detractors/"><u>Embracing Resilience Against Online Detractors</u></a></li>
-<li><a href="https://extra-information.techidaily.com/exploring-alternatives-to-magixs-acid-pro/"><u>Exploring Alternatives to Magix's ACID Pro</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/hassle-free-methods-to-enhance-your-dell-studio-17-7072-g7-with-latest-graphics-card-software/"><u>Hassle-Free Methods to Enhance Your Dell Studio 17-7072 G7 With Latest Graphics Card Software</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-hue-transformations-in-post-production/"><u>Mastering Hue Transformations in Post-Production</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-10-best-live-streaming-services-for-church-you-should-know-for-2024/"><u>[New] 10 Best Live Streaming Services for Church You Should Know for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-exclusive-insight-into-mematics-app-features/"><u>[New] 2024 Approved Exclusive Insight Into Mematic's App Features</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-kinemaster-unveiled-the-best-game-on-your-android-device/"><u>[New] 2024 Approved KineMaster Unveiled The Best Game on Your Android Device</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-mastering-transitions-fading-techniques-in-premiere-pro/"><u>[New] 2024 Approved Mastering Transitions Fading Techniques in Premiere Pro</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-conquering-video-production-hurdles-essential-filmora-tips-and-tricks/"><u>[New] Conquering Video Production Hurdles Essential Filmora Tips & Tricks</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-discover-the-prime-lineup-of-affordable-cutting-tools-for-2024/"><u>[New] Discover the Prime Lineup of Affordable Cutting Tools for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-dissecting-xvideohubs-capabilities-in-a-full-breakdown-review/"><u>[New] Dissecting XVideoHub's Capabilities in a Full Breakdown Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-elevate-visual-stories-editing-music-for-canva-clips/"><u>[New] Elevate Visual Stories Editing Music for Canva Clips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-yt-buzz-top-music-video-responses-and-why-they-roar/"><u>[Updated] 2024 Approved YT Buzz Top Music Video Responses & Why They Roar</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-hazy-days-no-more-ensuring-clean-gopro-images-for-2024/"><u>[Updated] Hazy Days No More Ensuring Clean GoPro Images for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-pivot-from-srt-to-professional-audio-standards-with-confidence/"><u>[Updated] Pivot From SRT to Professional Audio Standards with Confidence</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/ending-quicktime-capture-immediate-steps-for-2024/"><u>Ending QuickTime Capture Immediate Steps for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-fix-a-constant-loading-screen-in-sea-of-thieves-a-step-by-step-guide/"><u>How to Fix a Constant Loading Screen in Sea of Thieves - A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-essential-steps-to-proficiently-employing-iphone-x-animoji/"><u>In 2024, Essential Steps to Proficiently Employing iPhone X Animoji</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-from-0-to-million-views-the-ultimate-content-blueprint/"><u>In 2024, From 0 to Million Views The Ultimate Content Blueprint</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quicken-windows-playback-for-yuzu-games/"><u>Quicken Windows Playback for Yuzu Games</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/top-rated-tools-for-transferring-hard-drive-data-from-hdd-to-wd-solid-state-drives/"><u>Top Rated Tools for Transferring Hard Drive Data From HDD to WD Solid State Drives</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-trailer-magic-top-video-editing-software-for-mac-and-pc-for-2024/"><u>Updated Trailer Magic Top Video Editing Software for Mac and PC for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/yakuza-embrace-the-dragon-in-action-the-definitive-pc-game-experience/"><u>Yakuza: Embrace the Dragon in Action - The Definitive PC Game Experience</u></a></li>
 </ul></div>
 

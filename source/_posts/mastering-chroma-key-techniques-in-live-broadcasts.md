@@ -1,7 +1,7 @@
 ---
 title: "Mastering Chroma Key Techniques in Live Broadcasts"
-date: 2024-12-31T17:53:38.409Z
-updated: 2025-01-06T16:23:57.851Z
+date: 2025-01-26T19:32:17.544Z
+updated: 2025-02-01T18:46:00.144Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b76
 
 The green screen has become the new hot-cake among gamers and other video streamers. It allows them to add the most magnetizing and unreal effects for their streams. These days, it has become easier than ever to set-up your green screen studio and creatively displays your hidden talent.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to set-up your live streaming studio
 
 To set up a green screen studio, there are some things you’ll need to be equipped with first. You’ll need to know which camera to use, which green screen to use, and which lights your broadcast requires.
@@ -51,7 +55,7 @@ For normal web or twitch streaming a high-quality webcam should be used. It shou
 ![clear one unite pro webcam](https://images.wondershare.com/filmora/Mac-articles/clear-one-unite-pro-webcam.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Green Screen
@@ -60,23 +64,19 @@ The green screen requirements are also different for different types of broadcas
 
 ![green screen for studio](https://images.wondershare.com/filmora/Mac-articles/green-screen-for-studio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 For gamers and other streamers like beauty vloggers, twitch anchors, and YouTubers there are different kinds of green screens in the market depending on the budget. There are foldable ones that can fold into a circle like a small tent. They open up to a considerably decent size. These green screens need to be hanged to keep them standing and come at a considerably lower price range of around $40.
 
 ![foldable green screen](https://images.wondershare.com/filmora/Mac-articles/foldable-green-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Another option of the green screen for streamers is a collapsible green screen. It was introduced by Elgato and is easy to carry and easy to set-up. It can be adjusted to any height and can open and tear down in a matter of seconds. It comes with a relatively high price of around $150 but they are worth the money.
 
 Do remember that any green screen you use should be large enough to give your main subject space to move around. Apart from that, make sure you don’t have any green elements in your subject or your software will also make those areas disappear. **If your subject has blonde hair, a blue screen instead of a green screen is recommended.**
 
 ![elgato green screen stand](https://images.wondershare.com/filmora/Mac-articles/elgato-green-screen-stand.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Lights
 
@@ -87,6 +87,10 @@ If it is a straight background two high-powered lights should be enough. However
 For small setups, the most commonly used set-up is the three-point set-up. It is a formation of a triangle with a key light, fill light, and a backlight to cover the subject or the talent. For a green screen, one light on each side would do the job of providing enough light to keep the screen lit.
 
  ![lighting guide for a green screen](https://images.wondershare.com/filmora/Mac-articles/lighting-guide-for-a-green-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The two things to remember about lighting are that there is should be no shadow in the background and the green screen should be lit across evenly. It may take some time for you to learn the correct ways but practice and observation will make it perfect.
 
@@ -110,14 +114,10 @@ Learn More: [How to use OBS Streamlabs on Mac？>>>](https://tools.techidaily.co
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -145,22 +145,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-captivating-movement-a-guide-to-perfect-canon-timelapses/"><u>[New] 2024 Approved Captivating Movement A Guide to Perfect Canon Timelapses</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-step-by-step-instructions-on-chromes-pip-across-all-platforms/"><u>[New] 2024 Approved Step-by-Step Instructions on Chrome’s PIP Across All Platforms</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-android-audio-recording-tips-no-root-required-for-2024/"><u>[New] Android Audio Recording Tips - No Root Required for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-digital-dominion-for-techno-gamers-for-2024/"><u>[New] Digital Dominion for Techno Gamers for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-fundamentals-of-writing-captivating-videography-scripts/"><u>[New] Fundamentals of Writing Captivating Videography Scripts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-inside-polarr-the-powerhouse-photo-toolkit/"><u>[New] In 2024, Inside Polarr The Powerhouse Photo Toolkit</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-the-great-growers-guide-the-best-farmer-games/"><u>[Updated] 2024 Approved The Great Growers' Guide The Best Farmer Games</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-fixing-the-quake-tips-for-steadying-gopro-videos/"><u>[Updated] Fixing the Quake Tips for Steadying GoPro Videos</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-y27-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Vivo Y27 5G Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Motorola Moto G04? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-harnessing-the-power-of-burst-mode-for-dynamic-videos/"><u>In 2024, Harnessing the Power of Burst Mode for Dynamic Videos</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-vivo-y77t-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Vivo Y77t FRP?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/innovative-techniques-to-elevate-your-gopro-work/"><u>Innovative Techniques to Elevate Your GoPro Work</u></a></li>
-<li><a href="https://fox-links.techidaily.com/navigating-zoomed-details-for-team-collaboration-on-ms-teams/"><u>Navigating Zoomed Details for Team Collaboration on MS Teams</u></a></li>
-<li><a href="https://fox-links.techidaily.com/pioneering-the-space-of-podcast-logos-and-identity-for-2024/"><u>Pioneering the Space of Podcast Logos & Identity for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/stellar-recovery-for-exchange-testimonial-by-fabio-goncalves-it/"><u>Stellar Recovery for Exchange Testimonial by Fabio Goncalves (IT</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-8-best-website-for-3d-graffiti-fonts/"><u>[New] 8 Best Website for 3D Graffiti Fonts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effortless-audio-extraction-best-youtube-to-mp3-tools-list/"><u>[Updated] 2024 Approved Effortless Audio Extraction Best YouTube to MP3 Tools List</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-createwinfx-movies/"><u>[Updated] In 2024, CreateWinFX Movies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-ultimate-essential-guide-for-beginners-in-final-cut-pro/"><u>[Updated] In 2024, The Ultimate Essential Guide for Beginners in Final Cut Pro</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024s-most-economical-cloud-stores-revealed/"><u>2024'S Most Economical Cloud Stores Revealed</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tial-steps-to-designing-exceptional-youtube-thumbnails/"><u>Essential Steps to Designing Exceptional YouTube Thumbnails</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-step-by-step-method-instagram-collage-wonders/"><u>In 2024, A Step-by-Step Method Instagram Collage Wonders</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Honor Magic 5? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/vive-review-step-into-the-next-dimension/"><u>Vive Review Step Into the Next Dimension</u></a></li>
 </ul></div>
 
