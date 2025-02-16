@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Elevate Your Mobile Music Collection with InShot"
-date: 2025-01-26T01:41:50.265Z
-updated: 2025-02-02T05:22:57.190Z
+date: 2025-01-31T22:05:11.698Z
+updated: 2025-02-03T17:49:29.232Z
 tags: 
   - screen-recording
   - ai video
@@ -61,10 +61,6 @@ Step 6: At this point, hit the "Track" button and move to the "My Music" section
 
 ![use spotify song in inshot](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. How to Import Music from Apple Music to InShot?
 
 Apple Music offers a variety of tracks to its users. The only drawback of using Apple Music tracks is its DRM protection. Due to this protection, the tracks from Apple Music cannot be used on other platforms like InShot. Here, a question arises about how to import music to InShot if you cannot use it directly from Apple Music.
@@ -74,10 +70,6 @@ The answer to this question is DRmare Apple Music Converter. This tool is used t
 Step 1: To start the process, set DRmare Apple Music Converter on your computer. Then open the convertor and start importing the already downloaded Apple Music files. This could be done by pressing the "Add Files" button.
 
 ![import apple music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 2: You can set the output audio format for the files. For this, move to the "Format" icon and click on it. A new window will appear in front of you. You can change the audio format, adjust the bit rate, audio channel, etc. Once satisfied, hit the ‘OK’ button to save the changes.
 
@@ -123,237 +115,9 @@ Step 6: Once you have selected your music, hit the "Use" button so that it is ad
 
 ![insert music to your video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-13.jpg)
 
-Click here to learn [how to add transitions on Inshot](https://tools.techidaily.com/wondershare/filmora/download/).
-
-### Bottom Line
-
-The article talked about InShot musically and also taught you how to add music to InShot video on iPhone and Android, both phones. The article discussed in detail about how to use InShot but if you are looking for some other editors, then let us share about Wondershare Filmora.
-
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a very powerful video editing software that is available for both Windows and macOS. You can easily download the software and use all its features for free. The software is not just an editor; but instead, it is more like a teaching platform where you can learn and polish your skills to become the best.
-
-Filmora owns a massive asset library that consists of hundreds of effects, filters, sound effects, stickers, and a lot more fun elements that can bring beauty to your content after editing. Wondershare Filmora has proved itself as the best editing software.
-
-#### Wondershare Filmora
-
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-02 [How to Import Music from Apple Music to InShot?](#part2)
-
-03 [How to Add Music to InShot Videos?](#part3)
-
-## Part 1\. How to Import Music from Spotify to InShot?
-
-You can add music and sound effects to your videos with InShot. Multiple music applications could be used for this purpose, yet Spotify does not support this. Spotify is only available for online streaming on the application and the web player. You cannot import music from Spotify to InShot directly, but with an indirect medium, the job could be done.
-
-The answer to how to import music from Spotify to InShot is using a third-party tool to convert Spotify music to the file format that is accepted by InShot. Tunelf Spotibeat Music Converter could be used to convert Spotify music. Now let us talk about the steps that will guide you to convert Spotify music to import it to InShot.
-
-Step 1: First of all, launch Tunelf and find the music or album you want to convert from the music converter. Then, you should right-click on the Spotify item and copy its URL. Move to Tunelf interface and paste the URL in the search bar, and hit the "+" button.
-
-![add your spotify songs](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-1.jpg)
-
-Step 2: You can customize the parameters of the song by selecting the ‘Menu’ option and then moving to "Preferences." From there, you have to hit the "Convert" option and set the parameters.
-
-![set the songs output format](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-2.jpg)
-
-Step 3: Once you have set the output parameters, you can now download the Spotify songs to any downloadable format by just clicking on the "Convert" button.
-
-![spotify song is converting](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-3.jpg)
-
-Step 4: For Android users, connect your mobile device to your laptops using a USB wire and then transfer the downloaded music to their mobile. In comparison, iOS users can use iTunes to transfer the music to their iPhones.
-
-Step 5: Now, create a new project on InShot. Hit the "Video" title to create or load any video when you enter the editing interface, head over to the "Music" tab from the toolbar available at the bottom of the screen.
-
-Step 6: At this point, hit the "Track" button and move to the "My Music" section. Now browse the song that you converted from Spotify and click on the ‘Use’ button to load it.
-
-![use spotify song in inshot](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-4.jpg)
-
-## Part 2\. How to Import Music from Apple Music to InShot?
-
-Apple Music offers a variety of tracks to its users. The only drawback of using Apple Music tracks is its DRM protection. Due to this protection, the tracks from Apple Music cannot be used on other platforms like InShot. Here, a question arises about how to import music to InShot if you cannot use it directly from Apple Music.
-
-The answer to this question is DRmare Apple Music Converter. This tool is used to convert the Apple Music tracks into plain audio formats that are supported by InShot editor. If you have never used the convertor before, then the following steps will help you learn it.
-
-Step 1: To start the process, set DRmare Apple Music Converter on your computer. Then open the convertor and start importing the already downloaded Apple Music files. This could be done by pressing the "Add Files" button.
-
-![import apple music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-5.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-Step 2: You can set the output audio format for the files. For this, move to the "Format" icon and click on it. A new window will appear in front of you. You can change the audio format, adjust the bit rate, audio channel, etc. Once satisfied, hit the ‘OK’ button to save the changes.
-
-![set apple music output](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-6.jpg)
-
-Step 3: Lastly, to download the converted files from DRmare Apple Music Converter, press the "Convert" button. You can find the converted files on your computer.
-
-![apple music converted](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-Step 4: To import the files to InShot, firstly connect your Android phone or iPhone to your computer using a USB cable. Then locate and transfer the converted music files to your phone.
-
-Step 5: At this point, launch the InShot app on your phone and create a new project. When the editing interface opens, move to the "Music" tab from the bottom.
-
-Step 6: Click on the "Track" button and select the option of "My Music." You can now select the converted Apple Music file to add it into the InShot’s library and then select the "Use" option to add it to the video.
-
-![add your apple music to inshot](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Part 3\. How to Add Music to InShot Videos?
-
-The brilliant editing application InShot is available for both Android phones and iPhones. You can [edit your videos from Inshot platform](https://tools.techidaily.com/wondershare/filmora/download/) and also add songs to it so that your content becomes interesting. People who are new to this might think about how to add music to InShot videos. So, here we are to clarify all your questions and confusion.
-
-The following section of this article will share the steps that will guide you in adding music to your InShot videos within minutes and with great ease.
-
-Step 1: To start the process, you should first install the InShot application on your Android phone or iPhone. Then, open the app.
-
-Step 2: From the main screen, you have to select the "Video" menu. Once that is selected, then create a new editing project.
-
-![select the option of video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-9.jpg)
-
-Step 3: Once you are on the editing interface, locate and then import the video that you want to edit and add a song.
-
-![choose your video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-10.jpg)
-
-Step 4: Now, from the options at the bottom of the screen, move to the "Music" tab. Then click on the "Tracks" menu to select the song that you want to add to your video.
-
-![tap on the option of music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-11.jpg)
-
-Step 5: You can either use the music provided by the InShot application by selecting the 'Featured' tab. Or else, by selecting the "My Music" tab, you can import your favorite music from your device to the app.
-
-![choose your music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-Step 6: Once you have selected your music, hit the "Use" button so that it is added to your video. Lastly, you can customize and adjust the song the way you like it.
-
-![insert music to your video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-13.jpg)
-
-Click here to learn [how to add transitions on Inshot](https://tools.techidaily.com/wondershare/filmora/download/).
-
-### Bottom Line
-
-The article talked about InShot musically and also taught you how to add music to InShot video on iPhone and Android, both phones. The article discussed in detail about how to use InShot but if you are looking for some other editors, then let us share about Wondershare Filmora.
-
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a very powerful video editing software that is available for both Windows and macOS. You can easily download the software and use all its features for free. The software is not just an editor; but instead, it is more like a teaching platform where you can learn and polish your skills to become the best.
-
-Filmora owns a massive asset library that consists of hundreds of effects, filters, sound effects, stickers, and a lot more fun elements that can bring beauty to your content after editing. Wondershare Filmora has proved itself as the best editing software.
-
-#### Wondershare Filmora
-
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-02 [How to Import Music from Apple Music to InShot?](#part2)
-
-03 [How to Add Music to InShot Videos?](#part3)
-
-## Part 1\. How to Import Music from Spotify to InShot?
-
-You can add music and sound effects to your videos with InShot. Multiple music applications could be used for this purpose, yet Spotify does not support this. Spotify is only available for online streaming on the application and the web player. You cannot import music from Spotify to InShot directly, but with an indirect medium, the job could be done.
-
-The answer to how to import music from Spotify to InShot is using a third-party tool to convert Spotify music to the file format that is accepted by InShot. Tunelf Spotibeat Music Converter could be used to convert Spotify music. Now let us talk about the steps that will guide you to convert Spotify music to import it to InShot.
-
-Step 1: First of all, launch Tunelf and find the music or album you want to convert from the music converter. Then, you should right-click on the Spotify item and copy its URL. Move to Tunelf interface and paste the URL in the search bar, and hit the "+" button.
-
-![add your spotify songs](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-1.jpg)
-
-Step 2: You can customize the parameters of the song by selecting the ‘Menu’ option and then moving to "Preferences." From there, you have to hit the "Convert" option and set the parameters.
-
-![set the songs output format](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-2.jpg)
-
-Step 3: Once you have set the output parameters, you can now download the Spotify songs to any downloadable format by just clicking on the "Convert" button.
-
-![spotify song is converting](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-Step 4: For Android users, connect your mobile device to your laptops using a USB wire and then transfer the downloaded music to their mobile. In comparison, iOS users can use iTunes to transfer the music to their iPhones.
-
-Step 5: Now, create a new project on InShot. Hit the "Video" title to create or load any video when you enter the editing interface, head over to the "Music" tab from the toolbar available at the bottom of the screen.
-
-Step 6: At this point, hit the "Track" button and move to the "My Music" section. Now browse the song that you converted from Spotify and click on the ‘Use’ button to load it.
-
-![use spotify song in inshot](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Part 2\. How to Import Music from Apple Music to InShot?
-
-Apple Music offers a variety of tracks to its users. The only drawback of using Apple Music tracks is its DRM protection. Due to this protection, the tracks from Apple Music cannot be used on other platforms like InShot. Here, a question arises about how to import music to InShot if you cannot use it directly from Apple Music.
-
-The answer to this question is DRmare Apple Music Converter. This tool is used to convert the Apple Music tracks into plain audio formats that are supported by InShot editor. If you have never used the convertor before, then the following steps will help you learn it.
-
-Step 1: To start the process, set DRmare Apple Music Converter on your computer. Then open the convertor and start importing the already downloaded Apple Music files. This could be done by pressing the "Add Files" button.
-
-![import apple music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-5.jpg)
-
-Step 2: You can set the output audio format for the files. For this, move to the "Format" icon and click on it. A new window will appear in front of you. You can change the audio format, adjust the bit rate, audio channel, etc. Once satisfied, hit the ‘OK’ button to save the changes.
-
-![set apple music output](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-6.jpg)
-
-Step 3: Lastly, to download the converted files from DRmare Apple Music Converter, press the "Convert" button. You can find the converted files on your computer.
-
-![apple music converted](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-Step 4: To import the files to InShot, firstly connect your Android phone or iPhone to your computer using a USB cable. Then locate and transfer the converted music files to your phone.
-
-Step 5: At this point, launch the InShot app on your phone and create a new project. When the editing interface opens, move to the "Music" tab from the bottom.
-
-Step 6: Click on the "Track" button and select the option of "My Music." You can now select the converted Apple Music file to add it into the InShot’s library and then select the "Use" option to add it to the video.
-
-![add your apple music to inshot](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-8.jpg)
-
-## Part 3\. How to Add Music to InShot Videos?
-
-The brilliant editing application InShot is available for both Android phones and iPhones. You can [edit your videos from Inshot platform](https://tools.techidaily.com/wondershare/filmora/download/) and also add songs to it so that your content becomes interesting. People who are new to this might think about how to add music to InShot videos. So, here we are to clarify all your questions and confusion.
-
-The following section of this article will share the steps that will guide you in adding music to your InShot videos within minutes and with great ease.
-
-Step 1: To start the process, you should first install the InShot application on your Android phone or iPhone. Then, open the app.
-
-Step 2: From the main screen, you have to select the "Video" menu. Once that is selected, then create a new editing project.
-
-![select the option of video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-9.jpg)
-
-Step 3: Once you are on the editing interface, locate and then import the video that you want to edit and add a song.
-
-![choose your video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-10.jpg)
-
-Step 4: Now, from the options at the bottom of the screen, move to the "Music" tab. Then click on the "Tracks" menu to select the song that you want to add to your video.
-
-![tap on the option of music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-11.jpg)
-
-Step 5: You can either use the music provided by the InShot application by selecting the 'Featured' tab. Or else, by selecting the "My Music" tab, you can import your favorite music from your device to the app.
-
-![choose your music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-12.jpg)
-
-Step 6: Once you have selected your music, hit the "Use" button so that it is added to your video. Lastly, you can customize and adjust the song the way you like it.
-
-![insert music to your video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-13.jpg)
 
 Click here to learn [how to add transitions on Inshot](https://tools.techidaily.com/wondershare/filmora/download/).
 
@@ -441,9 +205,245 @@ Step 2: From the main screen, you have to select the "Video" menu. Once that is 
 
 ![select the option of video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-9.jpg)
 
+Step 3: Once you are on the editing interface, locate and then import the video that you want to edit and add a song.
+
+![choose your video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-10.jpg)
+
+Step 4: Now, from the options at the bottom of the screen, move to the "Music" tab. Then click on the "Tracks" menu to select the song that you want to add to your video.
+
+![tap on the option of music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-11.jpg)
+
+Step 5: You can either use the music provided by the InShot application by selecting the 'Featured' tab. Or else, by selecting the "My Music" tab, you can import your favorite music from your device to the app.
+
+![choose your music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-12.jpg)
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Step 6: Once you have selected your music, hit the "Use" button so that it is added to your video. Lastly, you can customize and adjust the song the way you like it.
+
+![insert music to your video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-13.jpg)
+
+Click here to learn [how to add transitions on Inshot](https://tools.techidaily.com/wondershare/filmora/download/).
+
+### Bottom Line
+
+The article talked about InShot musically and also taught you how to add music to InShot video on iPhone and Android, both phones. The article discussed in detail about how to use InShot but if you are looking for some other editors, then let us share about Wondershare Filmora.
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a very powerful video editing software that is available for both Windows and macOS. You can easily download the software and use all its features for free. The software is not just an editor; but instead, it is more like a teaching platform where you can learn and polish your skills to become the best.
+
+Filmora owns a massive asset library that consists of hundreds of effects, filters, sound effects, stickers, and a lot more fun elements that can bring beauty to your content after editing. Wondershare Filmora has proved itself as the best editing software.
+
+#### Wondershare Filmora
+
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+02 [How to Import Music from Apple Music to InShot?](#part2)
+
+03 [How to Add Music to InShot Videos?](#part3)
+
+## Part 1\. How to Import Music from Spotify to InShot?
+
+You can add music and sound effects to your videos with InShot. Multiple music applications could be used for this purpose, yet Spotify does not support this. Spotify is only available for online streaming on the application and the web player. You cannot import music from Spotify to InShot directly, but with an indirect medium, the job could be done.
+
+The answer to how to import music from Spotify to InShot is using a third-party tool to convert Spotify music to the file format that is accepted by InShot. Tunelf Spotibeat Music Converter could be used to convert Spotify music. Now let us talk about the steps that will guide you to convert Spotify music to import it to InShot.
+
+Step 1: First of all, launch Tunelf and find the music or album you want to convert from the music converter. Then, you should right-click on the Spotify item and copy its URL. Move to Tunelf interface and paste the URL in the search bar, and hit the "+" button.
+
+![add your spotify songs](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-1.jpg)
+
+Step 2: You can customize the parameters of the song by selecting the ‘Menu’ option and then moving to "Preferences." From there, you have to hit the "Convert" option and set the parameters.
+
+![set the songs output format](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-2.jpg)
+
+Step 3: Once you have set the output parameters, you can now download the Spotify songs to any downloadable format by just clicking on the "Convert" button.
+
+![spotify song is converting](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-3.jpg)
+
+Step 4: For Android users, connect your mobile device to your laptops using a USB wire and then transfer the downloaded music to their mobile. In comparison, iOS users can use iTunes to transfer the music to their iPhones.
+
+Step 5: Now, create a new project on InShot. Hit the "Video" title to create or load any video when you enter the editing interface, head over to the "Music" tab from the toolbar available at the bottom of the screen.
+
+Step 6: At this point, hit the "Track" button and move to the "My Music" section. Now browse the song that you converted from Spotify and click on the ‘Use’ button to load it.
+
+![use spotify song in inshot](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-4.jpg)
+
+## Part 2\. How to Import Music from Apple Music to InShot?
+
+Apple Music offers a variety of tracks to its users. The only drawback of using Apple Music tracks is its DRM protection. Due to this protection, the tracks from Apple Music cannot be used on other platforms like InShot. Here, a question arises about how to import music to InShot if you cannot use it directly from Apple Music.
+
+The answer to this question is DRmare Apple Music Converter. This tool is used to convert the Apple Music tracks into plain audio formats that are supported by InShot editor. If you have never used the convertor before, then the following steps will help you learn it.
+
+Step 1: To start the process, set DRmare Apple Music Converter on your computer. Then open the convertor and start importing the already downloaded Apple Music files. This could be done by pressing the "Add Files" button.
+
+![import apple music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-5.jpg)
+
+Step 2: You can set the output audio format for the files. For this, move to the "Format" icon and click on it. A new window will appear in front of you. You can change the audio format, adjust the bit rate, audio channel, etc. Once satisfied, hit the ‘OK’ button to save the changes.
+
+![set apple music output](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-6.jpg)
+
+Step 3: Lastly, to download the converted files from DRmare Apple Music Converter, press the "Convert" button. You can find the converted files on your computer.
+
+![apple music converted](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Step 4: To import the files to InShot, firstly connect your Android phone or iPhone to your computer using a USB cable. Then locate and transfer the converted music files to your phone.
+
+Step 5: At this point, launch the InShot app on your phone and create a new project. When the editing interface opens, move to the "Music" tab from the bottom.
+
+Step 6: Click on the "Track" button and select the option of "My Music." You can now select the converted Apple Music file to add it into the InShot’s library and then select the "Use" option to add it to the video.
+
+![add your apple music to inshot](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 3\. How to Add Music to InShot Videos?
+
+The brilliant editing application InShot is available for both Android phones and iPhones. You can [edit your videos from Inshot platform](https://tools.techidaily.com/wondershare/filmora/download/) and also add songs to it so that your content becomes interesting. People who are new to this might think about how to add music to InShot videos. So, here we are to clarify all your questions and confusion.
+
+The following section of this article will share the steps that will guide you in adding music to your InShot videos within minutes and with great ease.
+
+Step 1: To start the process, you should first install the InShot application on your Android phone or iPhone. Then, open the app.
+
+Step 2: From the main screen, you have to select the "Video" menu. Once that is selected, then create a new editing project.
+
+![select the option of video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-9.jpg)
+
+Step 3: Once you are on the editing interface, locate and then import the video that you want to edit and add a song.
+
+![choose your video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-10.jpg)
+
+Step 4: Now, from the options at the bottom of the screen, move to the "Music" tab. Then click on the "Tracks" menu to select the song that you want to add to your video.
+
+![tap on the option of music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-11.jpg)
+
+Step 5: You can either use the music provided by the InShot application by selecting the 'Featured' tab. Or else, by selecting the "My Music" tab, you can import your favorite music from your device to the app.
+
+![choose your music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-12.jpg)
+
+Step 6: Once you have selected your music, hit the "Use" button so that it is added to your video. Lastly, you can customize and adjust the song the way you like it.
+
+![insert music to your video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Click here to learn [how to add transitions on Inshot](https://tools.techidaily.com/wondershare/filmora/download/).
+
+### Bottom Line
+
+The article talked about InShot musically and also taught you how to add music to InShot video on iPhone and Android, both phones. The article discussed in detail about how to use InShot but if you are looking for some other editors, then let us share about Wondershare Filmora.
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a very powerful video editing software that is available for both Windows and macOS. You can easily download the software and use all its features for free. The software is not just an editor; but instead, it is more like a teaching platform where you can learn and polish your skills to become the best.
+
+Filmora owns a massive asset library that consists of hundreds of effects, filters, sound effects, stickers, and a lot more fun elements that can bring beauty to your content after editing. Wondershare Filmora has proved itself as the best editing software.
+
+#### Wondershare Filmora
+
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+02 [How to Import Music from Apple Music to InShot?](#part2)
+
+03 [How to Add Music to InShot Videos?](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 1\. How to Import Music from Spotify to InShot?
+
+You can add music and sound effects to your videos with InShot. Multiple music applications could be used for this purpose, yet Spotify does not support this. Spotify is only available for online streaming on the application and the web player. You cannot import music from Spotify to InShot directly, but with an indirect medium, the job could be done.
+
+The answer to how to import music from Spotify to InShot is using a third-party tool to convert Spotify music to the file format that is accepted by InShot. Tunelf Spotibeat Music Converter could be used to convert Spotify music. Now let us talk about the steps that will guide you to convert Spotify music to import it to InShot.
+
+Step 1: First of all, launch Tunelf and find the music or album you want to convert from the music converter. Then, you should right-click on the Spotify item and copy its URL. Move to Tunelf interface and paste the URL in the search bar, and hit the "+" button.
+
+![add your spotify songs](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-1.jpg)
+
+Step 2: You can customize the parameters of the song by selecting the ‘Menu’ option and then moving to "Preferences." From there, you have to hit the "Convert" option and set the parameters.
+
+![set the songs output format](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Step 3: Once you have set the output parameters, you can now download the Spotify songs to any downloadable format by just clicking on the "Convert" button.
+
+![spotify song is converting](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-3.jpg)
+
+Step 4: For Android users, connect your mobile device to your laptops using a USB wire and then transfer the downloaded music to their mobile. In comparison, iOS users can use iTunes to transfer the music to their iPhones.
+
+Step 5: Now, create a new project on InShot. Hit the "Video" title to create or load any video when you enter the editing interface, head over to the "Music" tab from the toolbar available at the bottom of the screen.
+
+Step 6: At this point, hit the "Track" button and move to the "My Music" section. Now browse the song that you converted from Spotify and click on the ‘Use’ button to load it.
+
+![use spotify song in inshot](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-4.jpg)
+
+## Part 2\. How to Import Music from Apple Music to InShot?
+
+Apple Music offers a variety of tracks to its users. The only drawback of using Apple Music tracks is its DRM protection. Due to this protection, the tracks from Apple Music cannot be used on other platforms like InShot. Here, a question arises about how to import music to InShot if you cannot use it directly from Apple Music.
+
+The answer to this question is DRmare Apple Music Converter. This tool is used to convert the Apple Music tracks into plain audio formats that are supported by InShot editor. If you have never used the convertor before, then the following steps will help you learn it.
+
+Step 1: To start the process, set DRmare Apple Music Converter on your computer. Then open the convertor and start importing the already downloaded Apple Music files. This could be done by pressing the "Add Files" button.
+
+![import apple music](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-5.jpg)
+
+Step 2: You can set the output audio format for the files. For this, move to the "Format" icon and click on it. A new window will appear in front of you. You can change the audio format, adjust the bit rate, audio channel, etc. Once satisfied, hit the ‘OK’ button to save the changes.
+
+![set apple music output](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-6.jpg)
+
+Step 3: Lastly, to download the converted files from DRmare Apple Music Converter, press the "Convert" button. You can find the converted files on your computer.
+
+![apple music converted](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Step 4: To import the files to InShot, firstly connect your Android phone or iPhone to your computer using a USB cable. Then locate and transfer the converted music files to your phone.
+
+Step 5: At this point, launch the InShot app on your phone and create a new project. When the editing interface opens, move to the "Music" tab from the bottom.
+
+Step 6: Click on the "Track" button and select the option of "My Music." You can now select the converted Apple Music file to add it into the InShot’s library and then select the "Use" option to add it to the video.
+
+![add your apple music to inshot](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 3\. How to Add Music to InShot Videos?
+
+The brilliant editing application InShot is available for both Android phones and iPhones. You can [edit your videos from Inshot platform](https://tools.techidaily.com/wondershare/filmora/download/) and also add songs to it so that your content becomes interesting. People who are new to this might think about how to add music to InShot videos. So, here we are to clarify all your questions and confusion.
+
+The following section of this article will share the steps that will guide you in adding music to your InShot videos within minutes and with great ease.
+
+Step 1: To start the process, you should first install the InShot application on your Android phone or iPhone. Then, open the app.
+
+Step 2: From the main screen, you have to select the "Video" menu. Once that is selected, then create a new editing project.
+
+![select the option of video](https://images.wondershare.com/filmora/article-images/2021/import-music-to-inshot-video-editor-9.jpg)
 
 Step 3: Once you are on the editing interface, locate and then import the video that you want to edit and add a song.
 
@@ -503,14 +503,22 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-top-alternative-to-samsungs-360-vr-camera-for-2024/"><u>[New] Top Alternative to Samsung’s 360 VR Camera for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-crafting-comedy-mastering-kinemaster/"><u>[Updated] 2024 Approved Crafting Comedy Mastering KineMaster</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-enhance-imagery-in-canva-the-ultimate-10-guide/"><u>[Updated] Enhance Imagery in Canva - The Ultimate 10 Guide</u></a></li>
-<li><a href="https://driver-error.techidaily.com/error-22-addressed-device-now-online/"><u>Error 22 Addressed; Device Now Online</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-breaking-barriers-on-frozen-grounds-olympic-snowboard-speed-showdown/"><u>In 2024, Breaking Barriers on Frozen Grounds - Olympic Snowboard Speed Showdown</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-effective-strategies-for-advertising-with-spotify/"><u>In 2024, Effective Strategies for Advertising with Spotify</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-infinix-smart-7-hd-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Infinix Smart 7 HD with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-tecno-spark-20-proplus-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Tecno Spark 20 Pro+</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-art-of-words-on-the-screen-crafting-clear-concise-dialogue/"><u>The Art of Words on the Screen Crafting Clear, Concise Dialogue</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-guide-to-crafting-impressive-android-time-lapses-2enas/"><u>[New] In 2024, The Ultimate Guide to Crafting Impressive Android Time-Lapses (2Enas)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-luminous-levels-in-android-videography/"><u>[New] Luminous Levels in Android Videography</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-upgrading-made-easy-your-guide-to-smooth-tech-transitions-for-2024/"><u>[New] Upgrading Made Easy Your Guide to Smooth Tech Transitions for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-winning-at-facebook-health-promotion-campaigns/"><u>[New] Winning at Facebook Health Promotion Campaigns</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-pioneering-techniques-in-documentary-scripting/"><u>[Updated] 2024 Approved Pioneering Techniques in Documentary Scripting</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-maximizing-impact-livestreaming-360-degree-video-magic-on-youtube/"><u>[Updated] In 2024, Maximizing Impact Livestreaming 360-Degree Video Magic on YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-livestream-lifelines-combatting-common-interruption-issues-on-fb/"><u>[Updated] Livestream Lifelines Combatting Common Interruption Issues on FB</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-channel-aspirations-reach-and-secure-10k-views-for-youtube-partner-perks/"><u>2024 Approved Channel Aspirations – Reach and Secure 10K Views for YouTube Partner Perks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/customize-your-view-with-this-diy-guide-for-google-vr-gear-for-2024/"><u>Customize Your View with This DIY Guide for Google VR Gear for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-acer-aspire-5100-drivers-today/"><u>Download and Install Acer Aspire 5100 Drivers Today</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/experience-vivid-visual-delight-with-asus-new-laptop-top-rated-for-its-exceptional-oled-screen-rigorously-tested-against-100plus-competitors/"><u>Experience Vivid Visual Delight with Asus' New Laptop - Top-Rated for Its Exceptional OLED Screen, Rigorously Tested Against 100+ Competitors</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-iphone-6s-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On iPhone 6s in the Best Ways</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-funny-meme-on-macbook/"><u>New How to Make a Funny Meme on MacBook</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/on-hold-for-the-chatgpt-app-opt-for-this-acclaimed-open-source-program-instead-now-available/"><u>On Hold for the ChatGPT App? Opt for This Acclaimed Open Source Program Instead – Now Available</u></a></li>
+<li><a href="https://fox-links.techidaily.com/premium-picks-superior-vr-game-choices-for-the-cardboard-enthusiast/"><u>Premium Picks Superior VR Game Choices for the Cardboard Enthusiast</u></a></li>
+<li><a href="https://windows11.techidaily.com/swift-approach-to-bypass-cant-add-your-folder-now-error-in-windows-onedrive-drive/"><u>Swift Approach to Bypass 'Can't Add Your Folder Now' Error in Windows OneDrive Drive</u></a></li>
+<li><a href="https://fox-links.techidaily.com/top-10-tools-to-shield-photographic-work/"><u>Top 10 Tools to Shield Photographic Work</u></a></li>
 </ul></div>
 

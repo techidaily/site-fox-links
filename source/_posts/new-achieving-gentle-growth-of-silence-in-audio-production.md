@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving Gentle Growth of Silence in Audio Production"
-date: 2025-01-31T16:05:14.974Z
-updated: 2025-02-02T08:56:51.610Z
+date: 2025-01-27T21:58:25.163Z
+updated: 2025-02-03T16:08:10.734Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ Step1 The first and foremost task to do is the successful installation of FL Stu
 ![open fl studio](https://images.wondershare.com/filmora/article-images/2022/07/open-fl-studio.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Open your FL Studio window on your pc or mac. Then, choose the right volume parameter for the creation of automation in your FL studio. You can do it using the mixer channel method.
@@ -48,7 +48,7 @@ Step3 After getting the volume parameter, now you will need to create automation
 ![create automation clips fl studio](https://images.wondershare.com/filmora/article-images/2022/07/create-automation-clips-fl-studio.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After selecting that, there will be an addition of a new automation clip to the playlist.
@@ -69,6 +69,10 @@ Step1 The first thing you have to do is successfully install the Filmora softwar
 
 ![install filmora software](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 To fade audio in, you have to go to the audio setting. Then drag the pointer to the fade-in option which is present on the right and then apply the duration.
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
@@ -77,19 +81,15 @@ Step3 If you want your audio to fade out, again go to the audio setting. Then dr
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
 
-## Related FAQs of FL Studio Audio Editing
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Related FAQs of FL Studio Audio Editing
 
 ### 1\. How to fade out FL studio mobile?
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. How to crescendo in FL studio?
 
@@ -109,9 +109,17 @@ Step2 To fade audio in, you have to go to the audio setting. Then drag the point
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Related FAQs of FL Studio Audio Editing
 
@@ -119,17 +127,9 @@ No matter which audio editing software, what matters is the learning outcome. Le
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. What is declicking mode FL studio?
 
@@ -159,22 +159,18 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-editorpromax-digest-full-review-on-androvid-editor/"><u>[New] EditorProMax Digest – Full Review on AndroVid Editor</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-13-best-ways-to-make-money-on-reddit-no-experience-needed/"><u>[New] In 2024, 13 Best Ways to Make Money on Reddit - No Experience Needed</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-capture-brilliance-essential-lighting-hacks-for-iphone/"><u>[New] In 2024, Capture Brilliance Essential Lighting Hacks for IPhone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-twitch-replay-magic-stream-control-secrets/"><u>[New] In 2024, Twitch Replay Magic Stream Control Secrets</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-boredom-be-gone-find-joy-with-these-top-15-humorists/"><u>[Updated] 2024 Approved Boredom Be Gone Find Joy with These Top 15 Humorists</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-screencapture-evaluation-interface/"><u>[Updated] 2024 Approved ScreenCapture Evaluation Interface</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-drone-category-definitions-for-2024/"><u>[Updated] Drone Category Definitions for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-can-image-smoothing-simplify-photo-editing/"><u>[Updated] In 2024, Can Image Smoothing Simplify Photo Editing?</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-tier-camera-setups-reviewed-for-new-windows-11-users/"><u>[Updated] In 2024, Top-Tier Camera Setups Reviewed for New Windows 11 Users</u></a></li>
-<li><a href="https://win-able.techidaily.com/assassins-creed-valhalla-on-pc-how-to-eliminate-gameplay-interruptions-and-improve-performance/"><u>Assassin's Creed Valhalla on PC - How to Eliminate Gameplay Interruptions and Improve Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-small-trackers-revealed-primetrackings-review-guide-to-choose-the-right-size-for-maximum-safety-and-ease-of-use/"><u>Best Small Trackers Revealed - PrimeTracking's Review Guide to Choose The Right Size For Maximum Safety and Ease Of Use</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-maximize-your-streams-impact-our-recommendations-for-best-9-filters/"><u>In 2024, Maximize Your Stream's Impact Our Recommendations for Best 9 Filters</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-the-composers-craft-crossfade-in-logic-pro-x/"><u>In 2024, The Composer's Craft - Crossfade in Logic Pro X</u></a></li>
-<li><a href="https://some-tips.techidaily.com/topmost-bargains-at-best-buy-in-june-2024-exclusive-finds/"><u>Topmost Bargains at Best Buy in June 2024: Exclusive Finds</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlocking-disneyplus-content-use-this-8-digit-code-to-log-in-begin-registration-here/"><u>Unlocking Disney+ Content: Use This 8-Digit Code to Log In - Begin Registration Here!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-discovering-linuxs-top-screenshots-tools/"><u>[New] Discovering Linux's Top Screenshots Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-intense-moment-capture-iphone-burst-mode/"><u>[New] In 2024, Intense Moment Capture IPhone Burst Mode</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-livestreaming-facebook-made-simple-for-all-tech-users/"><u>[New] Livestreaming Facebook Made Simple for All Tech Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-get-acquainted-a-quick-guide-to-windows-11-basics/"><u>[Updated] 2024 Approved Get Acquainted A Quick Guide to Windows 11 Basics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-best-free-webm-players-how-to-play-webm-video-files-in-2024/"><u>[Updated] Best Free WebM Players How to Play WebM Video Files, In 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-facebook-verification-how-to-get-the-blue-verified-badge-easily-for-2024/"><u>[Updated] Facebook Verification How to Get the Blue Verified Badge (Easily) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-essential-tips-for-choosing-tiktok-screenshots/"><u>[Updated] In 2024, Essential Tips for Choosing TikTok Screenshots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-leading-streamers-top-ten-picks-revealed-for-2024/"><u>[Updated] Leading Streamers' Top Ten Picks Revealed for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-exploring-av1s-superiority-over-vp9/"><u>2024 Approved Exploring AV1's Superiority Over VP9</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-tecno-camon-20-pro-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Tecno Camon 20 Pro 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-oppo-a58-4g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Oppo A58 4G Phone that is Locked?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/step-up-to-stardom-10-pro-tips-for-pixlr-excellence/"><u>Step up to Stardom 10 Pro Tips for Pixlr Excellence</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-to-correct-error-30005-failed-file-creation-code-32/"><u>Steps to Correct Error 30005: Failed File Creation, Code 32</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Speedy Glimpse Through Windows Files for 2024"
-date: 2025-01-28T19:26:38.586Z
-updated: 2025-02-02T07:51:10.169Z
+date: 2025-02-02T22:57:36.573Z
+updated: 2025-02-03T21:40:53.508Z
 tags: 
   - screen-recording
   - ai video
@@ -25,10 +25,6 @@ Windows operating system comes with an inbuilt file preview feature embedded in 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Download Quick Look App on Microsoft Store
 
 If your computer is always handling documents, spreadsheets, PDFs, presentations, images, and other files, it’s probably time to install **QuickLook for Mac** and Windows. This intelligent program lets you quickly preview files without opening them on separate apps. Just think of it as the “file viewer” feature on Windows File Explorer, which allows you to view files before loading online or opening them on local apps. Of course, this can help you know which app can open the file and if it’s the correct file to open.
@@ -41,10 +37,6 @@ Step1 Open Microsoft Store and search for QuickLook. Make sure you select the op
 
 ![search for quicklook for windows on Microsoft store](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Once you find QuickLook, click “Get it” to download and install the app in your Windows operating system. At around 60MB, installing this preview app should be quick and easy.
 
 Step3 After successfully installing QuickLook, head to File Explorer and select any file you want to preview. Press the “Space” bar on your keyboard to view the file.
@@ -52,7 +44,7 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 ![preview video on quicklook for windows](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
@@ -71,12 +63,16 @@ Step2 Scroll down and download the .msi file. After downloading the installation
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
@@ -92,7 +88,7 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Frequently Asked Questions
@@ -108,6 +104,10 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 #### 3\. Can QuickLook for Mac edit files?
 
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,19 +143,21 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-5-best-photo-video-maker-with-music-you-should-know/"><u>[New] 2024 Approved 5 Best Photo Video Maker With Music You Should Know</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-new-layer-on-sony-s3700-blu-ray-play/"><u>[New] 2024 Approved New Layer on Sony S3700 Blu-Ray PLAY</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-unlocking-the-secrets-of-firefoxs-pip-mode/"><u>[New] 2024 Approved Unlocking the Secrets of Firefox's PIP Mode</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-boost-engagement-using-obs-for-youtube-and-twitch-audiences/"><u>[New] In 2024, Boost Engagement Using OBS for YouTube & Twitch Audiences</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-discover-hassle-free-video-opener-templates/"><u>[New] In 2024, Discover Hassle-Free Video Opener Templates</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-escalate-your-channel-with-a-swift-move-towards-youtube-partner-status/"><u>[New] In 2024, Escalate Your Channel with a Swift Move Towards YouTube Partner Status</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-quick-and-easy-creating-beautifully-detailed-slow-motion-videos-in-mobile-apps/"><u>[Updated] Quick and Easy Creating Beautifully Detailed Slow Motion Videos in Mobile Apps</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210809809-9781608688579-awaken-your-multidimensional-soul/"><u>Awaken Your Multidimensional Soul | Free Book</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/exploring-the-extensive-features-of-logitechs-4k-cam/"><u>Exploring the Extensive Features of Logitech's 4K Cam</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-fabulous-review-and-diverse-options/"><u>In 2024, Fabulous Review & Diverse Options</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-realme-12-proplus-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Realme 12 Pro+ 5G without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/movavi-mp3-m4b/"><u>Movavi MP3 から M4Bへの変換 - 無料で使えるオンラインツール</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-by-step-tutorial-for-mounting-blinks-outdoor-4-camera-floodlight-system/"><u>Step-by-Step Tutorial for Mounting Blink's Outdoor 4-Camera Floodlight System</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-power-of-perception-iconic-podcast-design-tips/"><u>The Power of Perception Iconic Podcast Design Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-classic-comedy-time-machine-the-goofy-tape-journey/"><u>[New] Classic Comedy Time Machine The Goofy Tape Journey</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-boosting-visual-and-auditory-composition-with-custom-filters-and-melodies-windows-10-photos/"><u>[New] In 2024, Boosting Visual & Auditory Composition with Custom Filters & Melodies (Windows 10 Photos)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-navigating-virtual-meetings-tips-for-effectively-using-zoom-in-emails-for-2024/"><u>[New] Navigating Virtual Meetings Tips for Effectively Using Zoom in Emails for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-pushing-boundaries-a-roundup-of-the-best-nft-generators-available/"><u>[New] Pushing Boundaries A Roundup of the Best NFT Generators Available</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-discover-the-leading-free-online-photo-editing-platforms/"><u>[Updated] 2024 Approved Discover the Leading Free Online Photo Editing Platforms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-how-to-bring-your-ideas-to-life-in-win-movie-maker/"><u>[Updated] 2024 Approved How to Bring Your Ideas to Life in Win Movie Maker</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-harmonizing-hues-the-filmmakers-palette-guide/"><u>[Updated] In 2024, Harmonizing Hues The Filmmaker's Palette Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-4-remedies-enhancing-iphone-hdr-images-in-premiere-pro-for-2024/"><u>[Updated] Top 4 Remedies Enhancing iPhone HDR Images in Premiere Pro for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-from-novice-to-experienced-6-strategies-for-quick-verification-on-instagram/"><u>2024 Approved From Novice to Experienced 6 Strategies for Quick Verification on Instagram</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/are-there-newer-options-to-replace-the-classic-turing-test-in-ai/"><u>Are There Newer Options to Replace the Classic Turing Test in AI?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/elite-6-software-for-audiovisual-translation/"><u>Elite 6 Software for Audio/Visual Translation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/future-proof-files-top-5-cloud-services-for-peak-performance/"><u>Future-Proof Files Top 5 Cloud Services for Peak Performance</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-oneplus-11-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your OnePlus 11 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-iphone-transfer-transfer-contact-from-apple-iphone-6-plus-to-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>In 2024, iPhone Transfer Transfer Contact from Apple iPhone 6 Plus to iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-the-top-virtualdub-replacements-for-video-editing-enthusiasts-and-pros/"><u>Updated In 2024, The Top Virtualdub Replacements for Video Editing Enthusiasts and Pros</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-say-goodbye-to-boring-videos-top-time-lapse-apps-for-iphone-and-android-users/"><u>Updated Say Goodbye to Boring Videos Top Time-Lapse Apps for iPhone and Android Users</u></a></li>
 </ul></div>
 

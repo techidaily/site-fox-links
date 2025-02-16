@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Best Collection for Enlivening Text"
-date: 2025-01-31T08:48:38.243Z
-updated: 2025-02-02T08:51:35.520Z
+date: 2025-01-29T18:15:11.187Z
+updated: 2025-02-03T19:46:28.369Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ Glitch text effect is a trendy effect that gets the viewers’ attention immedia
 ![glitch text effect toolkit ae](https://images.wondershare.com/filmora/article-images/2022/07/glitch-text-effect-toolkit-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Liquid Text Animation
@@ -49,6 +49,10 @@ There is always a high demand for dynamic text animations in After Effects. This
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
@@ -56,7 +60,7 @@ If you want to add texts and titles in your video that looks like the games mean
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
@@ -65,15 +69,15 @@ In this pack, you will find unique text effects, and you can animate text with k
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Text Library
 
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
 
@@ -82,11 +86,7 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
@@ -96,7 +96,7 @@ You get eleven styles of elements in the pack, and you can customize the designs
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -133,14 +133,19 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-advances-in-syma-x8c-flight-autonomy-for-2024/"><u>[New] Advances in Syma X8C Flight Autonomy for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/urating-the-best-video-game-openers-on-yt-no-money-max-impact-for-2024/"><u>[New] Curating the Best Video Game Openers on YT No Money, Max Impact for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-laughing-lane-the-no-10-guide-to-memelore-for-2024/"><u>[New] Laughing Lane - The No. 10 Guide to Memelore for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-art-of-influence-essential-marketing-expressions-explained-for-2024/"><u>[New] The Art of Influence Essential Marketing Expressions Explained for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-ultimate-comparison-gopro-hero-vs-yi-4k-action-camera-updates-for-2024/"><u>[New] Ultimate Comparison GoPro Hero Vs. Yi 4K Action Camera Updates for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-stylish-and-functional-the-top-10-gear-for-sj4000-enthusiasts/"><u>[Updated] In 2024, Stylish and Functional The Top 10 Gear for SJ4000 Enthusiasts</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/convert-your-videos-free-of-cost-m4v-to-mp4-streaming-conversion-by-movavi-without-fuss/"><u>Convert Your Videos Free of Cost! M4V to MP4 Streaming Conversion by Movavi Without Fuss</u></a></li>
-<li><a href="https://video-capture.techidaily.com/greatest-7-web-based-recording-tools-2023-for-2024/"><u>Greatest 7 Web-Based Recording Tools 2023 for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-heavy-lift-airborne-titans-drone-leaders-guide/"><u>[New] 2024 Approved Heavy-Lift Airborne Titans - Drone Leaders Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-reviewing-microsoft-hololens-the-3d-interactive-future/"><u>[New] 2024 Approved Reviewing Microsoft HoloLens The 3D Interactive Future</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-fist-of-legends-highest-rated-kung-fu-virtual-battles-for-2024/"><u>[New] Fist of Legends Highest-Rated Kung Fu Virtual Battles for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-the-beginners-guide-to-weekly-virtual-office-hours/"><u>[New] In 2024, The Beginner's Guide to Weekly Virtual Office Hours</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-whatsapp-voice-dialogues-explained/"><u>[New] WhatsApp Voice Dialogues Explained</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-evaluating-video-coders-are-you-team-av1-or-vp9/"><u>[Updated] 2024 Approved Evaluating Video Coders Are You Team Av1 or VP9?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-ultimate-top-16-free-video-tools-for-pcs/"><u>[Updated] In 2024, Ultimate Top 16 Free Video Tools for PCs</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-elevate-your-content-with-jujutsu-kaisen-on-tiktok/"><u>2024 Approved Elevate Your Content with Jujutsu Kaisen on TikTok</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-poco-c51-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Poco C51? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-restore-camera-functionality-on-your-surface-book-pro-cued-in-version-4-running-windows-11/"><u>How to Restore Camera Functionality on Your Surface Book (Pro Cued in Version 4) Running Windows 11</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/illuminating-brilliance-photoshops-best-hdr-methods/"><u>Illuminating Brilliance Photoshop's Best HDR Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-earnings-via-sponsored-youtube-videos/"><u>Mastering Earnings via Sponsored YouTube Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/tucked-into-narratives-a-review-of-evening-storytelling-videos-for-2024/"><u>Tucked Into Narratives A Review of Evening Storytelling Videos for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Virtual Journey  Past to Present\""
-date: 2025-01-31T16:27:34.456Z
-updated: 2025-02-02T07:24:46.303Z
+date: 2025-01-27T21:46:30.939Z
+updated: 2025-02-04T00:17:26.716Z
 tags: 
   - screen-recording
   - ai video
@@ -40,16 +40,12 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## VR development in 1930s
 
 In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in which individuals can watch a holographic recording of virtual stories including touch and smell. This amazing vision of the future would actually turn into what we think of as virtual-reality today. While it's difficult to introduce touch and smell elements into the average virtual-reality experience, these are visions that creators have in mind for the very near future of virtual-reality experiences. It's amazing to think that 85+ years ago, people were already thinking about creating simulation experiences using technology. We still think of these types of plans as we look towards the future of VR. With rapidly changing technology however, these improvements to the VR simulation experience may be far closer than decades away.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## VR development in 1960s
@@ -57,7 +53,7 @@ In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in wh
 VR headsets actually started development in the 1960s. Just 30 years from the original thought of a VR headset, Ivann Sutherland created the very first VR headset for use with military applications. Using a specialized military software as well as a motion control platform, the first VR headsets were designed for use in training exercises. These VR training tools have now become the standard in the military for training for flight exercises, combat situations and more. An immersive experience is definitely required to push military personnel and prepare them in a safe training environment before they enter into the field. Many air forces around the world require an extensive amount of VR training simulations before they will even let a pilot into one of their aircraft. With the initial development using specialized software and motion controls, VR research would continue to pave the way for training in the military and beyond. Today’s military VR headsets are far more advanced, compact and immersive and these training programs as well as the technology will continue to develop a little bit faster than some of the products that we might find as regular consumers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## VR development in 1990s
@@ -65,12 +61,16 @@ VR headsets actually started development in the 1960s. Just 30 years from the or
 VR headsets begin to make their way into a few arcade games for simulations and Nintendo announced the first home VR system. Virtual Boy was one of the first home systems available for use with a widespread appeal. Sega also introduced a Sega VR headset for the Sega Genesis console in the year 1993\. These wraparound prototypes had stereo sound, LCD screens and head tracking. Technical development in this VR headset doom the project and the cost of the headset was extensive making it a massive flop for Sega. The Virtual Boy however was a 3-D game console that experienced a little more success. Virtual Boy was released in North America at a price of $180\. The games were entirely made in red and black and there were only a few pieces of software available with the device. Users would wear a VR headset and control the action on a regular Nintendo controller. Unfortunately the console was very uncomfortable to use and because of the lack of games as well as the lack of color, it didn't present the same strong sales as the other Nintendo consoles out at the time.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## VR development in 2014
 
 Oculus VR represents the latest revolution in VR technology. When Facebook officially acquired the Oculus VR system, this showed that virtual-reality was becoming a huge concern for many of the world's top developers. Although the Oculus Rift was formed out of a kickstarter campaign in 2012, the deal in 2014 represented a huge boost in their funding and confidence. Later in 2015, Oculus began to acquire other companies like Surreal Vision and built partnerships with Samsung to develop the Samsung gear VR. As one of the leading companies in VR development, Oculus has fully functioning VR systems for consumers to purchase and use at home. With support for a wide range of applications and further applications being developed for specific use with their VR systems, this was a huge leap forward for VR. After gaining international attention with the demand after the Facebook deal, this would propel many other developers into creating their own VR development firms. Oculus in a way started a brand-new VR renaissance with a call to create immersive and simulated experiences for the average consumer. Previous VR headsets were very technical and inaccessible for the average computer user, but with plug-and-play compatibility and a wide host of supported applications, Oculus gave the average consumer hope that they can enjoy VR again.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## VR development in 2016 and beyond
 
@@ -81,7 +81,7 @@ The future of VR looks very bright and with so many new devices in development i
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -109,16 +109,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-expert-tips-for-photo-hdr-mastery-in-photoshop/"><u>[New] 2024 Approved Expert Tips for Photo-HDR Mastery in Photoshop</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-uncomplicated-methodology-win-os-clownvoice-tweaking-guide/"><u>[New] 2024 Approved Uncomplicated Methodology Win-OS Clownvoice Tweaking Guide</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-diverse-alternatives-to-winmovie-editor-applications/"><u>[Updated] 2024 Approved Diverse Alternatives to WinMovie Editor Applications</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-pro-gamers-top-5-soundtrack-devices/"><u>2024 Approved Pro Gamers' Top 5 Soundtrack Devices</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/how-to-easily-change-iso-to-mp4-the-best-guide-and-free-apps/"><u>How To Easily Change ISO to MP4 : The Best Guide & Free Apps</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-vivo-v29e-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Vivo V29e is off? | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-essential-10-fcp-plugin-tools/"><u>In 2024, Essential 10 FCP Plugin Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-step-by-step-guide-for-ios-users-jpgpng-to-pdf-transformation/"><u>In 2024, Step-by-Step Guide for iOS Users JPG/PNG to PDF Transformation</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210965578-9781088221839-spell-jars-for-beginners/"><u>Spell Jars for Beginners | Free Book</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-ranking-oled-laptop-picks-comprehensive-reviews-by-tech-experts-pcmag/"><u>Top-Ranking OLED Laptop Picks : Comprehensive Reviews by Tech Experts | PCMag</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-comprehensive-guide-to-minimalist-uavs-for-2024/"><u>[New] Comprehensive Guide to Minimalist UAVs for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-elevate-hd-imagery-comprehensive-guide-for-windows-enthusiasts/"><u>[New] Elevate HD Imagery Comprehensive Guide for Windows Enthusiasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-prime-websites-to-acquire-custom-youtube-ringtones/"><u>[New] Prime Websites to Acquire Custom YouTube Ringtones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-step-into-the-realm-of-3d-graffiti-a-guide-to-10-exceptional-websites-for-2024/"><u>[New] Step Into the Realm of 3D Graffiti A Guide to 10 Exceptional Websites for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-themes-made-easy-by-the-coolest-logo-and-icon-stores-online/"><u>[New] YouTube Themes Made Easy by the Coolest Logo & Icon Stores Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-enhance-user-experience-top-free-speech-to-text-apps-for-mac-revealed/"><u>[Updated] 2024 Approved Enhance User Experience Top Free Speech-to-Text Apps for Mac Revealed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-filmora-fusion-a-comprehensible-comparative-guide/"><u>[Updated] In 2024, Filmora Fusion A Comprehensible Comparative Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-pixel-problems-non-existent-videos-on-a6400/"><u>[Updated] In 2024, Pixel Problems Non-Existent Videos on A6400</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-windows-10-zoom-integration-essentials-for-2024/"><u>[Updated] Mastering Windows 10 Zoom Integration Essentials for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783012-9781594776304-a-psychonauts-guide-to-the-invisible-landscape/"><u>A Psychonaut's Guide to the Invisible Landscape | Free Book</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/get-your-insignia-ethernet-converter-driver-here/"><u>Get Your Insignia Ethernet Converter Driver Here!</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-nokia-c210-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-lava-blaze-2-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Lava Blaze 2 Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-ttml-xml-and-beyond-creating-flawless-srts-for-audio-files/"><u>In 2024, TTML, XML & Beyond Creating Flawless SRTs for Audio Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-iphones-playlist-paradise-podcast-edition/"><u>Mastering iPhone's Playlist Paradise Podcast Edition</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-realme-11-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Realme 11 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-ultimate-list-of-independent-mobile-games-play-without-a-network-android/"><u>The Ultimate List of Independent Mobile Games - Play Without a Network (Android)</u></a></li>
 </ul></div>
 

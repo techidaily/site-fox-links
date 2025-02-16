@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  System Prerequisites for Running Big Sur on Macs\""
-date: 2024-07-29T06:25:47.440Z
-updated: 2024-07-30T06:25:47.440Z
+date: 2025-01-28T17:29:42.848Z
+updated: 2025-02-03T17:11:52.950Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/fa549a8f4ea78a6f19c6043f8b4168f45b8a02a01
 
 # macOS 11 Big Sur: System and Hardware Requirements
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -34,8 +31,9 @@ Finally, the most awaited moment of the **macOS 11Big Sur** release took place i
 Many Mac users have come across this confusion as Mac's system requirements have gone through a couple of updates regarding Catalina, High Sierra, and Mojave. So, with no delay, let's get into the **macOS Big Sur requirements** in detail.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: System Requirements for macOS 11 Big Sur
 
 First, let’s look at the **Big Sur system requirements** in this session.
@@ -49,8 +47,9 @@ First, let’s look at the **Big Sur system requirements** in this session.
 **Features:** Some features require an Apple ID or a compatible internet service provider.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Hardware Requirements - Mac Models Compatible with macOS 11 Big Sur
 
 So, what are the **macOS Big Sur hardware requirements** that my Mac device should meet for the successful accomplishment of the upgrade? The Mac devices compatible with the **Big Sur minimum requirements** are as follows:
@@ -72,6 +71,10 @@ So, what are the **macOS Big Sur hardware requirements** that my Mac device shou
 2. Mac Pro (2013 or later)
 
 Another option to check **macOS Big Sur hardware requirements** about your Mac model is to click the “Apple’s” icon on the top-left of the screen and choose the “About This Mac” option to check the **macOS Big Sur compatibility**.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Tips on Using macOS 11 Big Sur
 
@@ -98,9 +101,9 @@ Never want your screen or notification screen to be crowded by stacked by app no
 Once limited to the iMessaging app of iPhone and iPad, the messaging app in macOS 11 Big Sur is dramatically better. You can make use of Memojis and GIFs too at present. Yes, right from your Mac, you can send personalized Memojis to others.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus Tip: The Best Video Editor for macOS 11 Big Sur
 
 Once you upgrade to the all-new macOS 11 Big Sur following the above-discussed **macOS Big Sur minimum requirements**, the problem or complication arises when you need to find the compatible apps or software to be installed on the device. Especially if you are looking out for a beautiful video creator/editor application for your MacBook with OS 11 Big Sur, is it possible to find the best video editor as per **macOS Big Sur system requirements**? Yes, sure you can, where [**Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/) comes to the remembrance.
@@ -113,22 +116,15 @@ Designed exclusively for the inspired, discover the real world of storytelling w
 * Completely compatible with macOS 10.12 or later to 11, and Apple M1, Filmora is designed professionally usable by beginners as well.
 * Create without limits, as you can try Wondershare Filmora for free to hit play on your imagination.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Now that we have discussed the **Big Sur Mac requirements** in terms of system and hardware put the tactics discussed above in this article for smooth handling of Big Sur. Besides, whatever Mac version upgrade, MacBook Pro models jump by a year or so. Without a doubt, Wondershare Filmora will continue to be the all-in-one [Mac video editor](https://tools.techidaily.com/wondershare/filmora/download/) of all time!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -153,4 +149,23 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-simplified-guide-to-free-youtube-card-designing/"><u>[New] 2024 Approved Simplified Guide to Free YouTube Card Designing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unlock-the-power-of-pinterest-top-5-free-extractors-at-hand/"><u>[New] 2024 Approved Unlock the Power of Pinterest Top 5 Free Extractors at Hand</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-srt-file-uploads-on-social-platforms-step-by-step-guide/"><u>[New] Mastering SRT File Uploads on Social Platforms Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-ultimate-list-7-mac-focused-vids/"><u>[New] Ultimate List 7 Mac-Focused Vids</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-best-voice-altering-software-for-your-virtual-persona/"><u>[Updated] In 2024, The Best Voice-Altering Software for Your Virtual Persona</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-double-edged-sword-of-virtual-reality-for-2024/"><u>[Updated] The Double-Edged Sword of Virtual Reality for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-10-invisible-observers-of-instagram-stories/"><u>2024 Approved Top 10 Invisible Observers of Instagram Stories</u></a></li>
+<li><a href="https://fox-links.techidaily.com/elite-gopro-hero5-black-charger-kits-genuine-and-counterparts/"><u>Elite GoPro Hero5 Black Charger Kits, Genuine and Counterparts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/extensive-review-capturing-every-angle-with-gear-360/"><u>Extensive Review Capturing Every Angle with Gear 360</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-essential-apps-for-professional-video-editing-on-androidpc/"><u>In 2024, Essential Apps for Professional Video Editing on Android/PC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-samsung-galaxy-xcover-7-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Samsung Galaxy XCover 7 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-banners-makers-10plus-online-tools-to-create-channel-art/"><u>In 2024, Youtube Banners Makers 10+ Online Tools to Create Channel Art</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-phasmophobia-game-issues-top-2024-patch-notes-and-solutions/"><u>Resolving Phasmophobia Game Issues: Top 2024 Patch Notes & Solutions</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-ranking-the-best-slow-motion-video-editing-programs/"><u>Updated Ranking the Best Slow Motion Video Editing Programs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/virtual-spaces-for-real-solutions-for-2024/"><u>Virtual Spaces for Real Solutions for 2024</u></a></li>
+</ul></div>
 

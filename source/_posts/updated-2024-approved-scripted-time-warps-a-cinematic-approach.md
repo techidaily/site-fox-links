@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Scripted Time Warps  A Cinematic Approach\""
-date: 2025-01-30T05:32:04.922Z
-updated: 2025-02-02T03:02:00.099Z
+date: 2025-01-27T17:47:58.261Z
+updated: 2025-02-03T23:12:05.589Z
 tags: 
   - screen-recording
   - ai video
@@ -59,9 +59,17 @@ First, wrap the colorful divider around the LED light or any other light you're 
 
 ![wrap the led light with a plastic binder](https://images.wondershare.com/filmora/article-images/2023/04/wrap-the-led-light-with-a-plastic-binder.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Shoot the video now, and experiment with adding suspense, terror, and cheerful effects with various colors.
 
 ![final results after changing led light by colorful binders](https://images.wondershare.com/filmora/article-images/2023/04/final-results-after-changing-led-light-by-colorful-binders.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After setting the lights, now it's time to check the camera!
 
@@ -78,6 +86,10 @@ After setting all equipment, now it's time to allow the character to perform in 
 For the first round, the subject has to do acting for the daytime script. Let the character do their performance according to the screenplay.
 
 In this article, we are doing a daytime performance in the first round. For this, the subject should go from right to left to step over for night time dimension.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### #1 night-time lighting setup
 
@@ -97,11 +109,11 @@ In this round, the subject should start from the right to left and perform stepp
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-**Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
 
 ### #3 cross line between two rounds
 
@@ -169,6 +181,10 @@ Find the spot where the subject steps over in the nighttime clip, and select the
 
 ![marker 3 on the nighttime clip](https://images.wondershare.com/filmora/article-images/2023/04/marker-3-on-the-nighttime-clip.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After marking the points on the clips, then you have to align and adjust the clips!
 
 ##### Step6Align the markers
@@ -182,10 +198,6 @@ To make sure that the video will play smoothly, you ensure the correct alignment
 For better alignment of the clips, trim the nighttime clip where marker one is pointed. It is the point where the subject presses the button from the remote.
 
 ![trim the nighttime clip at marker 1](https://images.wondershare.com/filmora/article-images/2023/04/trim-the-nighttime-clip-at-marker-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After alignment and trimming points, the timeline is finalized, then add the mask effects for a fascinating look.
 
@@ -201,6 +213,10 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 
 ![shape mask from the utility section](https://images.wondershare.com/filmora/article-images/2023/04/shape-mask-from-the-utility-section.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * After that, double-click on the nighttime clips, which will show the settings section of the clip.
 * Go to the Video Effects section and change the shape mask settings.
 * Tweak the mask settings until the nighttime clip appears on the left and the daytime clip with the character on the right.
@@ -210,6 +226,10 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 Play the video again and check out the smoothness of the actions. As we have already marked the points, that's why the actions match with each other and give an equivalent look!
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note:** If your video actions are not aligning with each other, then adjust again according to the requirements.
 
@@ -223,19 +243,11 @@ To show the energy pack between two time-travel clips, you have to add the effec
 
 ![elemental effects](https://images.wondershare.com/filmora/article-images/2023/04/elemental-effects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** After dropping the effect, ensure that it starts simultaneously when the nighttime clip appears on the screen.
 
 ![after adding the elemental energy effect](https://images.wondershare.com/filmora/article-images/2023/04/after-adding-the-elemental-energy-effect.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Resize the effect according to the clip for a better look.
 
@@ -248,10 +260,6 @@ To apply the chromatic effect after the power pack effect, follow the below step
 * Find the Distortion section and select the chromatic aberration effect.
 
 ![chromatic aberration effect from distortion](https://images.wondershare.com/filmora/article-images/2023/04/chromatic-aberration-effect-from-distortion.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
@@ -316,7 +324,7 @@ First, wrap the colorful divider around the LED light or any other light you're 
 ![wrap the led light with a plastic binder](https://images.wondershare.com/filmora/article-images/2023/04/wrap-the-led-light-with-a-plastic-binder.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Shoot the video now, and experiment with adding suspense, terror, and cheerful effects with various colors.
@@ -357,10 +365,6 @@ In this round, the subject should start from the right to left and perform stepp
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
 
 ### #3 cross line between two rounds
@@ -377,16 +381,12 @@ You can also create a marking by using anything in yours. We are using the midli
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
 
 ![cross line between two rounds](https://images.wondershare.com/filmora/article-images/2023/04/cross-line-between-two-rounds.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After shooting all the clips, it's time to edit them on Filmora. To do this, check out the step to step guide below.
@@ -444,10 +444,6 @@ After marking the points on the clips, then you have to align and adjust the cli
 To make sure that the video will play smoothly, you ensure the correct alignment of the clips. For this, grab the nighttime clip on the timeline and move it until marker three is roughly aligned with marker two.
 
 ![align markers 2 and 3 with each other](https://images.wondershare.com/filmora/article-images/2023/04/align-markers-2-and-3-with-each-other.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step7Trim the clips
 
@@ -533,6 +529,10 @@ Congratulations! You have all done with the time travel teleportation effects an
 
 ![final results of time travel teleportation effects](https://images.wondershare.com/filmora/article-images/2023/04/final-results-of-time-travel-teleportation-effects.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you want to change the effects, then you can easily switch from the stock of the Wondershare Filmora. It gives unlimited creative and fun effects to interact with more audiences daily.
 
 ## Conclusion
@@ -569,24 +569,20 @@ Create for you and add different effects and experiment with new features. You w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-professional-panoramic-vision-leading-360-cameras-of-2023/"><u>[New] 2024 Approved Professional Panoramic Vision Leading 360° Cameras of 2023</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-best-bigger-picture-tvs-ranked-10-for-2024/"><u>[New] Best Bigger Picture TVs Ranked #10 for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-deep-investigation-into-ustream-and-its-competitors/"><u>[New] Deep Investigation Into Ustream & Its Competitors</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-multitasking-sync-many-yt-videos-simultaneously/"><u>[New] In 2024, Mastering Multitasking Sync Many YT Videos Simultaneously</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-your-guide-to-top-rated-church-streaming-platforms/"><u>[New] In 2024, Your Guide to Top-Rated Church Streaming Platforms</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-bygone-brilliance-art-beyond-intellectual-property/"><u>[Updated] Bygone Brilliance Art Beyond Intellectual Property</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-ensuring-authenticity-as-you-aspire-for-one-million-video-watches-for-2024/"><u>[Updated] Ensuring Authenticity as You Aspire for One Million Video Watches for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-expert-tips-on-softening-volume-in-logic-pro-mixes/"><u>[Updated] In 2024, Expert Tips on Softening Volume in Logic Pro Mixes</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-premium-fonts-with-dynamic-movement/"><u>[Updated] In 2024, Premium Fonts with Dynamic Movement</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-quick-tips-for-quality-animation-in-movie-maker/"><u>[Updated] Quick Tips for Quality Animation in Movie Maker</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-selecting-the-perfect-timing-for-b-roll-insertion/"><u>[Updated] Selecting the Perfect Timing for B Roll Insertion</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-ultimate-guide-to-scrolling-through-engaging-youtube-remarks-for-2024/"><u>[Updated] The Ultimate Guide to Scrolling Through Engaging YouTube Remarks for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/mastering-the-art-of-swift-periscope-broadcasts/"><u>Mastering the Art of Swift Periscope Broadcasts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/quick-fixes-to-resume-paused-stream-on-facebook/"><u>Quick Fixes to Resume Paused Stream on Facebook</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-process-to-fix-pet-eye-issues-in-pictures/"><u>Step-by-Step Process to Fix Pet Eye Issues in Pictures</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-art-of-converting-photographs-into-cinematic-videography-with-pixiz-for-2024/"><u>The Art of Converting Photographs Into Cinematic Videography with Pixiz for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-future-of-filming-xs-100is-bold-journey/"><u>The Future of Filming XS 100I's Bold Journey</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/vigorvault-games-best-speedy-software-for-systems/"><u>VigorVault Games - Best Speedy Software for Systems</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/1728469781041-windows-115/"><u>データがなくなった? Windows 11アップグレードからこれをする方法:5つ</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-precision-cuts-in-kinemaster-transition-essentials/"><u>[New] In 2024, Precision Cuts in Kinemaster Transition Essentials</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-reviewing-the-powerhouse-of-magixs-photo-toolkit-for-2024/"><u>[New] Reviewing the Powerhouse of MAGIX's Photo Toolkit for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-complete-breakdown-inside-google-podcasts-application/"><u>[Updated] 2024 Approved Complete Breakdown Inside Google Podcasts Application</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-maximize-your-video-impact-with-free-vimeo-editing/"><u>[Updated] Maximize Your Video Impact with FREE Vimeo Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-aloneness-in-depth-review-of-3dr-tech/"><u>[Updated] Navigating Aloneness In-Depth Review of '3DR' Tech</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-transforming-unboxing-into-art-for-2024/"><u>[Updated] Transforming Unboxing Into Art for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-stories-expanding-audiences-top-three-methods-for-2024/"><u>Engaging Stories, Expanding Audiences Top Three Methods for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-master-the-algorithm-top-youtube-seo-tips-and-techniques/"><u>In 2024, Master the Algorithm Top YouTube SEO Tips and Techniques</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-share-live-feeds-skip-the-retweet-tactics/"><u>In 2024, Share Live Feeds Skip the Retweet Tactics</u></a></li>
+<li><a href="https://win11.techidaily.com/methods-to-resolve-non-bootable-device-drivers-on-win11/"><u>Methods to Resolve Non-Bootable Device Drivers on Win11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/step-into-tomorrow-latest-apps-and-gaming-on-windows-10/"><u>Step Into Tomorrow Latest Apps & Gaming on Windows 10</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-essentials-of-blurring-photo-borders-for-2024/"><u>The Essentials of Blurring Photo Borders for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-rated-magsafe-wallets-comprehensive-reviews-by-industry-experts-techradar/"><u>Top-Rated MagSafe Wallets : Comprehensive Reviews by Industry Experts | TechRadar</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ultimate-guide-securely-integrating-tiktok-profile-links/"><u>Ultimate Guide Securely Integrating TikTok Profile Links</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/xbox-fanatics-manual-perfect-your-screenshot-skills/"><u>Xbox Fanatics' Manual Perfect Your Screenshot Skills</u></a></li>
 </ul></div>
 
