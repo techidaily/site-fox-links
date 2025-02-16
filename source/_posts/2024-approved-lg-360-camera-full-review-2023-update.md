@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  LG 360 Camera Full Review -2023 Update\""
-date: 2024-08-08T09:45:55.264Z
-updated: 2024-08-09T09:45:55.264Z
+date: 2025-02-14T20:14:42.375Z
+updated: 2025-02-15T20:15:26.282Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/38a10dded96ded9495ccb2173f240c20a69acb6b4
 
 # LG 360 Camera Full Review
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
@@ -39,14 +36,12 @@ We have entered into an era of 360-degree videos where the market is going to re
 * [Part 3: Pros and Cons at a glance](#part3)
 * [Part 4: Should I buy](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![LG 360 Cam Review](https://images.wondershare.com/filmora/article-images/lg-360-cam-review.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1 Complete Review
 
 There are so many things to know about LG 360-degree camera. It comes with lots of incredible features and users must be aware of its capabilities before buying it. Following review will help you to know that how this specially designed camera unit can be a beneficial option for you:
@@ -57,9 +52,6 @@ During the very first announcement for LG 360-degree camera, the company heads a
 
 **Design**
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![LG 360 Cam Design](https://images.wondershare.com/filmora/article-images/lg-360-cam-details.jpg)
 
 The first appearance of this camera unit will definitely bring a smile on your face with its compact design and very lightweight construction. It will give you a feeling that you are now going to enter into the dreamy world of 360-degree videos. If you compare it with other competitors then it will look somewhat like Ricoh Theta camera unit where a plastic sheet uses to slide comfortably on lenses while protecting them from slipping off your pocket. Whenever you need to shoot a new video, you can simply click on the camera button provided on the panel.
@@ -70,10 +62,11 @@ Experts suggest that it is much better to mount this camera unit on a flat suppo
 
 **Where to Use**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ![LG 360 Cam  - Where to use](https://images.wondershare.com/filmora/article-images/lg-360-cam-where-to-use.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You will love to capture photographs as well as videos with this advanced camera unit at wedding receptions, parties and at outdoor events with friends. There are lots of things to explore with LG 360-degree unit and its amazing camera clarity will never let your memories fade out. Those who are selfie lovers can prefer to use this compact and easy-to-use camera unit for capturing everything in a stunning way.
 
@@ -88,6 +81,10 @@ As far as we are concerned with the video quality of of device, there is no doub
 There are two buttons on the device; one is the power button and another is the shutter release button. The easy to use cap managed application will let you do anything you want on your captured videos as well as photographs. For making connectivity with Android and iOS, it is possible to use this incredible application. If you want to transfer your collection of captured shots and videos to some other device then use Wi-Fi and Bluetooth features. For full spherical effect prefer to share photos on Google Street view or on Facebook.
 
 Check this video to watch a complete LG 360 Cam review
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2 Basic specs
 
@@ -106,6 +103,10 @@ Check this video to watch a complete LG 360 Cam review
 | **Image Resolution**     | 5660 x 2830 (16M)                                       | **Video resolution**  | 2560 x 1280 (30fps)                  |
 | **Image format**         | JPEG                                                    | **Video File Format** | MP4(MPEG-4 AVC) and Audio : 5.1Ch)   |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3 Pros and Cons at a glance
 
 Before buying a new device, we often prefer to go through its pros and cons so that a better decision can be made on time. Below are some important details about pros and cons of LG 360 degree camera unit:
@@ -120,19 +121,15 @@ Before buying a new device, we often prefer to go through its pros and cons so t
 | Limited sharing capabilities for photos and videos                               |                                                                                                                                                                                   |
 | Do not have water resistant body Internal storage space is not usable            |                                                                                                                                                                                   |
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Part 4 Should I buy
 
 If we talk about the price tag then $200 is really cheaper as compared to other camera units present in the market. This camera unit is suitable for beginners as well as professionals and the best thing to note is that its lightweight and compact design allows users to handle it properly. It provides you lots of controls and easy managing features so without any doubt it is a must buy product that will definitely serve for your 360 degree capturing needs.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -157,6 +154,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-strategies-for-swiftly-locating-forgotten-reddit-threads/"><u>[New] 2024 Approved Strategies for Swiftly Locating Forgotten Reddit Threads</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-secret-sauce-for-stellar-telegram-campaigns/"><u>[New] 2024 Approved The Secret Sauce for Stellar Telegram Campaigns</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-ultimate-mac-visuals-plus-acoustics-scribing-tool/"><u>[New] 2024 Approved Ultimate Mac Visuals + Acoustics Scribing Tool</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-a-filmmakers-guide-to-quick-and-clear-marine-video/"><u>[New] A Filmmaker’s Guide to Quick and Clear Marine Video</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-futures-filmmaking-favourites-top-10-camcorders-2024-edition/"><u>[New] Future's Filmmaking Favourites Top 10 Camcorders, 2024 Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-recovering-the-solitary-sound-device-for-2024/"><u>[New] Recovering the Solitary Sound Device for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-is-apple-m1-macbook-air-good-for-video-editing-in-2024/"><u>[Updated] Is Apple M1 MacBook Air Good for Video Editing, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/ace-applications-transforming-videos-for-tweet/"><u>Ace Applications Transforming Videos for Tweet</u></a></li>
+<li><a href="https://fox-links.techidaily.com/comprehensive-guide-to-unrestricted-photo-archives/"><u>Comprehensive Guide to Unrestricted Photo Archives</u></a></li>
+<li><a href="https://program-issues.techidaily.com/conquer-the-unending-wait-strategies-for-fixing-apex-legends-startup-delays/"><u>Conquer the Unending Wait: Strategies for Fixing Apex Legends Startup Delays</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/demystifying-edge-intelligence-insights-into-its-operational-framework/"><u>Demystifying Edge Intelligence: Insights Into Its Operational Framework</u></a></li>
+<li><a href="https://discover-best.techidaily.com/driven-with-cookiebot-technology-enhance-your-websites-performance/"><u>Driven with Cookiebot Technology: Enhance Your Website's Performance</u></a></li>
+<li><a href="https://blog-min.techidaily.com/expert-remote-help-desk-and-purchase-guidance-for-winx-pro-hd-video-transcoding-toolkit/"><u>Expert Remote Help Desk & Purchase Guidance for WinX Pro HD Video Transcoding Toolkit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-learn-to-sharpen-images-blur-and-excise-background-edges/"><u>In 2024, Learn to Sharpen Images Blur and Excise Background Edges</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-bose-qc35-ii-journey-an-insiders-look/"><u>The Bose QC35 II Journey - An Insider's Look</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/ultimate-tutorial-on-broadcasting-content-from-huawei-p30-to-your-smart-tv/"><u>Ultimate Tutorial on Broadcasting Content From Huawei P30 to Your Smart TV</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-chatgpts-latest-innovations-enabling-web-browsing-and-plugin-capabilities-in-the-beta/"><u>Unlocking ChatGPT's Latest Innovations: Enabling Web Browsing & Plugin Capabilities in the Beta</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-the-top-stop-motion-animation-solutions-for-mac-and-pc/"><u>Updated The Top Stop Motion Animation Solutions for Mac and PC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/xsplits-prowess-in-streaming-the-obs-counterargument-for-2024/"><u>XSplit's Prowess in Streaming? The OBS Counterargument for 2024</u></a></li>
+</ul></div>
 

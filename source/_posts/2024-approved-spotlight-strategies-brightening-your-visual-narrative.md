@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Spotlight Strategies  Brightening Your Visual Narrative\""
-date: 2024-08-08T09:45:24.952Z
-updated: 2024-08-09T09:45:24.952Z
+date: 2025-02-11T20:27:36.501Z
+updated: 2025-02-15T18:46:59.254Z
 tags: 
   - screen-recording
   - ai video
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
 Many people are wondering how to set up lighting for video shooting. While there are many different ways to set up lighting, some methods are more effective than others.
 
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
 
@@ -46,9 +50,6 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ##### Step1 Set the Key Light
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
@@ -61,10 +62,11 @@ The fill light is used to fill in the shadows created by the key light. It is us
 
 ##### Step3 Set the Backlight
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -72,34 +74,33 @@ For this tutorial, we use Aperture 120d as the backlight and lift it up into the
 
 Practical lights appear on the camera to add some visual flair. It can be any light source that isn't meant for lighting the subject. For example, we use a green lamp to help our background pop as it casts a nice orange light on the back wall.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
 
 After setting up all the lighting above, you can take a look at the comparison below:
 
 **Using Key Light only**
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
 
 **Using Key Light + Fill + Backlight**
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **_3) Pro Tips: The light setting_**
 
@@ -108,8 +109,9 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -142,6 +144,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-detailed-walkthrough-implementing-look-up-tables-in-creative-suite/"><u>[New] In 2024, Detailed Walkthrough Implementing Look-Up Tables in Creative Suite</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-intersection-of-design-and-efficiency-in-professional-environments/"><u>[New] In 2024, The Intersection of Design & Efficiency in Professional Environments</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-innovative-vocal-alteration-apps-beyond-echo-magic-for-2024/"><u>[New] Innovative Vocal Alteration Apps Beyond Echo Magic for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-project-pics-blend-outside-focus-with-radial-filters-psx/"><u>[Updated] 2024 Approved Project Pics Blend Outside Focus with Radial Filters PSX</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-essential-guide-enhance-tiktok-profile-with-links/"><u>[Updated] Essential Guide Enhance TikTok Profile with Links</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/81541753-updated-in-2024-how-to-stream-to-youtube-facebook-twitch-and-over-30-platforms/"><u>[Updated] In 2024, How to Stream to YouTube, Facebook, Twitch and Over 30 Platforms</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-missing-video-functionality-in-sony-a6400-for-2024/"><u>[Updated] Missing Video Functionality in Sony A6400 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-reimagined-computing-with-windows-10s-upgrades-for-2024/"><u>[Updated] Reimagined Computing with Windows 10’S Upgrades for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-cinemas-craftsmanship-the-best-camera-tricks-and-techniques-24-edition/"><u>2024 Approved Cinema's Craftsmanship The Best Camera Tricks & Techniques - '24 Edition</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-the-secrets-of-srt-systems/"><u>2024 Approved Unlocking the Secrets of SRT Systems</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-itel-p55plus-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Itel P55+? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/gratuitous-gems-of-humor-your-guide-to-free-memes/"><u>Gratuitous Gems of Humor – Your Guide to FREE Memes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-step-by-step-guide-to-lut-mastery/"><u>In 2024, Step-by-Step Guide to LUT Mastery</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://win-webster.techidaily.com/instrucciones-sencillas-para-limpiar-con-seguridad-tu-disco-duro-por-medio-de-la-bios-e-instalar-de-nuevo-windows-sin-problemas/"><u>Instrucciones Sencillas Para Limpiar Con Seguridad Tu Disco Duro Por Medio De La BIOS E Instalar De Nuevo Windows Sin Problemas</u></a></li>
+<li><a href="https://common-error.techidaily.com/solution-provided-trouble-in-establishing-connection-between-windows-and-sensvc/"><u>Solution Provided: Trouble in Establishing Connection Between Windows and SENSVC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/strategic-steps-for-incorporating-srt-files-into-googleplus-campaigns-for-2024/"><u>Strategic Steps for Incorporating SRT Files Into Google+ Campaigns for 2024</u></a></li>
+</ul></div>
 

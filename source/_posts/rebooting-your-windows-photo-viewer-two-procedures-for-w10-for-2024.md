@@ -1,7 +1,7 @@
 ---
 title: "\"Rebooting Your Windows Photo Viewer  Two Procedures for W10 for 2024\""
-date: 2025-02-01T22:05:24.946Z
-updated: 2025-02-03T23:46:56.546Z
+date: 2025-02-11T00:53:06.986Z
+updated: 2025-02-15T18:10:25.717Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,10 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -71,16 +75,12 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -96,13 +96,13 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -111,13 +111,13 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,16 +145,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/he-best-youtube-thumbnail-size/"><u>[New] The Best YouTube Thumbnail Size</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-navigating-the-technicalities-recording-and-saving-your-role-play-experieninas-on-apple-devices/"><u>[Updated] 2024 Approved Navigating the Technicalities Recording & Saving Your Role-Play Experieninas on Apple Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-exploring-3dr-by-himself-an-experts-opinion-for-2024/"><u>[Updated] Exploring '3DR' By Himself – An Expert's Opinion for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-live-transmission-via-obs-to-instagram/"><u>[Updated] In 2024, Live Transmission via OBS to Instagram</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unleash-your-creative-genius-with-iphone-x-camera/"><u>[Updated] Unleash Your Creative Genius with iPhone X Camera</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unlocking-insights-how-to-communicate-effectively-with-viewers/"><u>[Updated] Unlocking Insights How to Communicate Effectively with Viewers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-asus-rog-phone-8-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Asus ROG Phone 8</u></a></li>
-<li><a href="https://fox-links.techidaily.com/exploring-the-world-of-animated-image-design/"><u>Exploring the World of Animated Image Design</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210202121-9781788174817-healing-is-the-new-high/"><u>Healing Is the New High | Free Book</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-live-stream-titans-duel-comparative-exploration-of-twitch-and-youtube/"><u>In 2024, Live-Stream Titans Duel Comparative Exploration of Twitch & YouTube</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-poco-x6-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Poco X6.</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-immersing-viewers-in-new-realities-the-vr-film-revolution/"><u>[New] In 2024, Immersing Viewers in New Realities The VR Film Revolution</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-transcription-mastery-for-office-productivity-using-microsoft-words-voice-recognition-features-for-2024/"><u>[New] Transcription Mastery for Office Productivity Using Microsoft Word's Voice Recognition Features for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-profit-from-publishing-shopping-reviews-in-2024/"><u>[Updated] Profit From Publishing Shopping Reviews, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-save-big-top-6-inexpensive-action-cams-under-100-deals/"><u>[Updated] Save Big Top 6 Inexpensive Action Cams Under $100 Deals</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-windows-11-photo-app-stability-troubleshooting/"><u>2024 Approved Mastering Windows 11 Photo App Stability Troubleshooting</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-navigating-instagrams-algorithm-for-better-engagement/"><u>2024 Approved Navigating Instagram's Algorithm for Better Engagement</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-the-key-to-memorable-tiktok-opens-mac-edition/"><u>2024 Approved The Key to Memorable TikTok Opens - Mac Edition</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-your-ultimate-ps4-screen-recorder-inside-the-obs-studio-guide/"><u>2024 Approved Your Ultimate PS4 Screen Recorder Inside the OBS Studio Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/descargar-convertidor-de-archivos-libres-online-para-transferir-webm-a-mp3-sin-coste/"><u>Descargar Convertidor De Archivos Libres Online Para Transferir WEBM a MP3 Sin Coste</u></a></li>
+<li><a href="https://fox-links.techidaily.com/effortless-mpeg-creation-from-youtube-content/"><u>Effortless MPEG Creation From YouTube Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-blueprints-for-making-youtube-intro-videos-that-stick/"><u>In 2024, Blueprints for Making YouTube Intro Videos that Stick</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-wireless-methods-to-mirrorapple-iphone-13-mini-and-ipad-to-fire-stick-with-ease-drfone-by-drfone-ios/"><u>In 2024, Wireless Methods to MirrorApple iPhone 13 mini & iPad to Fire Stick With Ease | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-turning-your-mobile-phone-into-an-external-mic-for-windows-computers/"><u>Step-by-Step Guide: Turning Your Mobile Phone Into an External Mic for Windows Computers</u></a></li>
 </ul></div>
 

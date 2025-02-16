@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Integrate Sound & Filter Magic Into Your Windows 10 Photos App"
-date: 2025-02-01T23:44:41.897Z
-updated: 2025-02-03T23:32:44.257Z
+date: 2025-02-12T20:36:11.751Z
+updated: 2025-02-15T22:11:59.672Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to add filters on Windows 10 Photos App
@@ -54,6 +54,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
@@ -61,14 +65,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Just select one you like. Preview it and then click Done.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -82,18 +82,18 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,21 +127,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-premier-gopro-hero5-black-batteries-with-certified-chargers/"><u>[New] 2024 Approved Premier GoPro Hero5 Black Batteries with Certified Chargers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-proven-techniques-and-choices-for-trimming-premium-tamil-melodies/"><u>[New] In 2024, Proven Techniques and Choices for Trimming Premium Tamil Melodies</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-unveil-the-potential-of-vfx-animated-text-for-free/"><u>[New] In 2024, Unveil the Potential of VFX Animated Text for Free</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-simplified-streaming-solutions-for-the-solo-broadcayer-for-2024/"><u>[New] Simplified Streaming Solutions for the Solo Broadcayer for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ditching-the-undesired-backdrop-the-path-less-cluttered/"><u>[Updated] 2024 Approved Ditching the Undesired Backdrop The Path Less Cluttered</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-critical-review-enhanced-parrot-ar-drone-20/"><u>[Updated] In 2024, Critical Review Enhanced Parrot AR Drone 2.0</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-joke-makers-haven-get-it-today-for-2024/"><u>[Updated] Joke Makers' Haven - Get It Today for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-premium-7-cameras-boosting-vlogging-creativity-and-viewership/"><u>[Updated] Premium 7 Cameras Boosting Vlogging Creativity & Viewership</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-healing-power-of-asmr-explained-here-for-2024/"><u>[Updated] The Healing Power of ASMR Explained Here for 2024</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/aomei-onekey-recovery-f11/"><u>啟動 AOMEI OneKey Recovery: 詳盡 F11鍵操作指南</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/best-flying-toys-for-kids-and-family-fun-for-2024/"><u>Best Flying Toys for Kids & Family Fun for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-vivo-t2-pro-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Vivo T2 Pro 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-the-definitive-guide-to-premium-vr-players-oculus-focus/"><u>In 2024, The Definitive Guide to Premium VR Players - Oculus Focus</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-huawei-nova-y91-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Huawei Nova Y91</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/no-more-hassle-record-games-like-pros/"><u>No More Hassle Record Games Like Pros</u></a></li>
-<li><a href="https://win-online.techidaily.com/uncover-the-reasons-behind-your-blurry-scanner-images-solutions-from-yl-computing/"><u>Uncover the Reasons Behind Your Blurry Scanner Images: Solutions From YL Computing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-complete-story-of-facetune-from-picture-to-paradise/"><u>[New] 2024 Approved The Complete Story of Facetune From Picture to Paradise</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-how-to-determine-ideal-frame-rates-in-slow-mo-filmmaking/"><u>[New] How to Determine Ideal Frame Rates in Slow-Mo Filmmaking</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-find-videos-on-facebook-for-2024/"><u>[New] How to Find Videos on Facebook for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-how-to-inject-narratives-into-your-videography-windows-photos-title-addition/"><u>[New] In 2024, How to Inject Narratives Into Your Videography Windows Photos Title Addition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-jestful-joymaker-online/"><u>[Updated] 2024 Approved Jestful Joymaker Online</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/amds-next-leap-with-fire-range-the-continued-use-of-fl1-packaging-in-zen-5-cpus-and-potential-for-rtx-series-integration-in-new-laptop-releases/"><u>AMD's Next Leap with 'Fire Range': The Continued Use of FL1 Packaging in Zen 5 CPUs and Potential for RTX Series Integration in New Laptop Releases</u></a></li>
+<li><a href="https://fox-links.techidaily.com/converting-zip-to-subrip-srt-format-a-step-by-step-guide/"><u>Converting ZIP to SubRip (SRT) Format A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhance-editing-efficiency-the-finest-text-plugins-for-ae-for-2024/"><u>Enhance Editing Efficiency The Finest Text Plugins for AE for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-effortlessly-run-chatgpt-on-linux-a-comprehensive-guide-using-bavarder/"><u>How to Effortlessly Run ChatGPT on Linux - A Comprehensive Guide Using Bavarder</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-streamline-your-projects-expert-techniques-for-mac-dvd-creation/"><u>In 2024, Streamline Your Projects Expert Techniques for Mac DVD Creation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/speedy-sound-apps-phones-best-friends-for-2024/"><u>Speedy Sound Apps Phones' Best Friends for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-effective-strategies-for-winword-exe-mishaps/"><u>Troubleshooting Tips: Effective Strategies for WINWORD EXE Mishaps</u></a></li>
 </ul></div>
 

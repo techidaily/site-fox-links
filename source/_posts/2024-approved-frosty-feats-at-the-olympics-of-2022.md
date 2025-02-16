@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Frosty Feats at the Olympics of 2022\""
-date: 2024-08-08T09:44:07.455Z
-updated: 2024-08-09T09:44:07.455Z
+date: 2025-02-08T20:46:58.618Z
+updated: 2025-02-15T17:33:33.095Z
 tags: 
   - screen-recording
   - ai video
@@ -22,23 +22,21 @@ Winter Olympics is synonymous with Figure Skating as it is the oldest sports eve
 
 Nathan Chen of the United States won the gold medal at the 2022 Beijing Winter Olympics. Yuma Kagiyama of Japan won the silver medal while the bronze medal went to Shoma Uno in Men's singles figure skating competition. On the other hand, the gold medal of the team event went to ROC while the silver medal went to United Stated and the bronze medal went to Japan. Here are all the figure skating highlights 2022 Beijing Winter Olympics. We will also illustrate how to create the highlights of figure skating in a video in simple steps.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1\. Highlights of Figure Skating Olympics Games Beijing2022
 
 In Olympic competition, skaters need to perform two minutes and 40 seconds short program and four minutes free skate and the winner is decided based on combined score.
 
 Nathan Chen got the combined score of 332.60 in short program and free skate competitions to win the 2022 Olympic men's figure skating title.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
@@ -46,21 +44,27 @@ Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United Stat
 
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-best-male-skater.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
@@ -86,20 +90,12 @@ For macOS 10.12 or later
 
 Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
@@ -107,6 +103,10 @@ Step 4: You need to add all imported media files to Video Timeline while you sho
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -129,6 +129,22 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-how-to-remove-jello-effect-from-an-aerial-video/"><u>[New] How to Remove Jello Effect From an Aerial Video</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-premier-macos-sierra-tools-for-video-changeovers-for-2024/"><u>[New] Premier macOS Sierra Tools for Video Changeovers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-pushing-boundaries-merging-hdr-photos-with-lightroom/"><u>[Updated] 2024 Approved Pushing Boundaries Merging HDR Photos with Lightroom</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-a-comprehensive-guide-to-embellishing-images-and-vids-in-windows-10s-photo-app-for-2024/"><u>[Updated] A Comprehensive Guide to Embellishing Images and Vids in Windows 10'S Photo App for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-how-to-upgrade-your-iphones-ringtone-selection/"><u>[Updated] How to Upgrade Your iPhone's Ringtone Selection</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-direct-download-dojo-become-a-master-of-ifunny-jokes/"><u>[Updated] In 2024, Direct Download Dojo Become a Master of iFunny Jokes</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-explore-and-download-50-free-youtube-banners/"><u>[Updated] In 2024, Explore & Download 50 FREE YouTube Banners</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-illusions-realized-what-is-augmented-reality/"><u>[Updated] In 2024, Illusions Realized What Is Augmented Reality?</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-vivo-x100-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Vivo X100 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/effortless-steps-get-your-discord-overlay-back-up-and-running-now/"><u>Effortless Steps: Get Your Discord Overlay Back Up and Running Now!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/expertise-unlocked-converting-text-formats-to-voice-ready-srt/"><u>Expertise Unlocked Converting Text Formats to Voice-Ready SRT</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-high-speed-media-manipulation-a-practical-approach/"><u>In 2024, High-Speed Media Manipulation A Practical Approach</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/infinity-series-ultra-hd-single-touch-display-for-2024/"><u>Infinity Series – Ultra HD, Single Touch Display for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-sound-effects-on-a-budget-finding-and-adding-free-resources-in-final-cut-pro-for-2024/"><u>Updated Sound Effects on a Budget Finding and Adding Free Resources in Final Cut Pro for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Hack High-Speed Videos for Engaging Instagram Stories\""
-date: 2024-08-08T09:46:04.962Z
-updated: 2024-08-09T09:46:04.962Z
+date: 2025-02-14T20:19:34.273Z
+updated: 2025-02-15T20:08:57.066Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ But you might be wondering if you can change the speed of your video on Instagra
 
 ![change the speed of video](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Can I Change Video Speed on Instagram Stories?
 
 No, you cannot directly change video speed on Instagram Story via the Instagram app. You can capture videos for Instagram Story through the app. You can use Superzoom to zoom in on an object with a dramatic background sound. You can even use Boomerang to take a photo and play it in a loop.
@@ -44,9 +48,6 @@ After that, you can upload the sped-up or slow-motion video as an Instagram Stor
 
 We will recommend the best video editing app for Android and iOS users to change the video speed. We will also illustrate the steps to speed up videos on Instagram Stories.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Using SpeedPro App to Adjust Video Speed on iPhone
 
 SpeedPro is a video editing app where you can change the video speed instantly. It is particularly popular among Instagram Story creators. You can speed up as well as slow down your video. You can change the speed of a particular section of your video instead of the entire video. You can perform basic video editing such as cutting, cropping and trimming.
@@ -61,9 +62,6 @@ Step1 Install the [SpeedPro](https://apps.apple.com/us/app/speedpro-slow-speed-v
 
 Step2 Launch the SpeedPro app and select the video whose speed you want to increase or decrease. Tap on the Speed option located at the bottom.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![launch the speedPro app](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-2.jpg)
 
 Step3 Use the slider to change the video speed on the next screen. If you want to slow down, move the slider to the left below 1X. If you want to speed up, move the slider to the right beyond 1X.
@@ -72,9 +70,6 @@ Step4 You may want to change the speed of only a certain video section. Go to th
 
 Step5 Finally, tap on the Tick icon. Thereafter, you can save the video or upload it to Instagram instantly.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![tap on the tick icon](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-3.jpg)
 
 ### Using InShot App to Adjust Video Speed on Android
@@ -121,20 +116,12 @@ Most importantly, the user interface is designed so that everyone finds it easy 
 
 Wondershare Filmora has three options to change the video speed per your requirements. We will illustrate each method in simple steps so that you can instantly alter your video speed.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ### Method 1: Uniform Speed
 
 In this method, you can customize the speed of your video as per your preference. You may often not want to set the preset speed options you get. That is where uniform speed comes into the scene. You can set any speed starting from 0.01X to 100X. Here are the steps to set a uniform speed for your video clip.
 
 Step1 Download, install and launch Filmora. Tap Create New Project.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![tap create new project](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-6.jpg)
 
 Step2 Drag and drop the desired video file from your storage device to the Timeline directly. You can also go to File> Import Media> Import Media Files to bring your video file into the Project Media folder. After that, you can drop the file into the Timeline.
@@ -146,6 +133,10 @@ Step3 Select the video file on the timeline and click on the Speed(timer) icon.
 Step4 Select the Uniform Speed option. You will see the Uniform Speed tab above the timeline.
 
 ![uniform speed option](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step5 Adjust the speed slider to change the speed of the video. To speed it up, set the slider above 1\. To slow down your video, you need to set the slider below 1.
 
@@ -165,16 +156,14 @@ Step2 Select the Speed Ramping option. Check the Speed Ramping tab above the tim
 
 Step3 You can choose from the available presets. If you are unsatisfied with them, you can select the Customize option.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![available presets](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-11.jpg)
 
 Step4 Finally, click the Ok button and then on the Export button to save the video file.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 3: Change Speed From Timeline
 
 You can instantly change the speed of your video by selecting a preset option. There are two different options available - Fast and Slow. Each of them has certain speed presets for you to select so that it applies to the selected video.
@@ -183,10 +172,11 @@ Step1 Drag and drop the video file onto the timeline.
 
 Step2 Select the video clip on the timeline and click on the Speed(timer) icon that you will find on top of the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![find on top of the timeline](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Go to the Fast option and select any speed preset to speed up your video. If you want to slow it down, go to the Slow option and select any speed preset.
 
@@ -194,16 +184,14 @@ Step3 Go to the Fast option and select any speed preset to speed up your video. 
 
 Step4 Play and video and if everything is perfect, press Export.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 We have answered the frequently asked question, "how to do slow motion on Instagram Stories?" Unfortunately, the answer is negative. But we have illustrated how you can alter the video speed easily using third-party apps. You can slow down or speed up Instagram Story videos instantly. If you want to edit the video speed on your computer, there is no better alternative to Wondershare Filmora.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus Tip. How do you Change Video Speed on Windows/Mac - Wondershare Filmora
 
 We have stated how to change the speed of the Instagram Story video through the mobile app. However, if you want to use your computer to change video speed, Wondershare Filmora is the best video editor. It is extremely popular among social media video creators. This is because all the required features and resources are readily available. Starting from stock media files to video effects dedicated to social media, everything is available on one platform.
@@ -219,48 +207,33 @@ Most importantly, the user interface is designed so that everyone finds it easy 
 Wondershare Filmora has three options to change the video speed per your requirements. We will illustrate each method in simple steps so that you can instantly alter your video speed.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 1: Uniform Speed
 
 In this method, you can customize the speed of your video as per your preference. You may often not want to set the preset speed options you get. That is where uniform speed comes into the scene. You can set any speed starting from 0.01X to 100X. Here are the steps to set a uniform speed for your video clip.
 
 Step1 Download, install and launch Filmora. Tap Create New Project.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![tap create new project](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-6.jpg)
 
 Step2 Drag and drop the desired video file from your storage device to the Timeline directly. You can also go to File> Import Media> Import Media Files to bring your video file into the Project Media folder. After that, you can drop the file into the Timeline.
 
 Step3 Select the video file on the timeline and click on the Speed(timer) icon.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![video file](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-7.jpg)
 
 Step4 Select the Uniform Speed option. You will see the Uniform Speed tab above the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![uniform speed option](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-8.jpg)
 
 Step5 Adjust the speed slider to change the speed of the video. To speed it up, set the slider above 1\. To slow down your video, you need to set the slider below 1.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![speed slider](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-9.jpg)
 
 Step6 Finally, click on the Ok button. Click Export. Thereafter, you can upload it on Instagram Story.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2: Speed Ramping
 
 If you are an advanced video editor, you will love to customize the video speed through the speed graph. This helps to vary the speed of the video as per the graph your set. There can be some sped-up parts as well as slow-down parts with smooth transitions. That is what speed ramping is all about on Filmora.
@@ -271,9 +244,17 @@ Step2 Select the Speed Ramping option. Check the Speed Ramping tab above the tim
 
 ![speed ramping tab](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 You can choose from the available presets. If you are unsatisfied with them, you can select the Customize option.
 
 ![available presets](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Finally, click the Ok button and then on the Export button to save the video file.
 
@@ -287,6 +268,10 @@ Step2 Select the video clip on the timeline and click on the Speed(timer) icon t
 
 ![find on top of the timeline](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-12.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Go to the Fast option and select any speed preset to speed up your video. If you want to slow it down, go to the Slow option and select any speed preset.
 
 ![select any speed preset](https://images.wondershare.com/filmora/article-images/2023/01/instagram-stories-13.jpg)
@@ -294,8 +279,9 @@ Step3 Go to the Fast option and select any speed preset to speed up your video. 
 Step4 Play and video and if everything is perfect, press Export.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 We have answered the frequently asked question, "how to do slow motion on Instagram Stories?" Unfortunately, the answer is negative. But we have illustrated how you can alter the video speed easily using third-party apps. You can slow down or speed up Instagram Story videos instantly. If you want to edit the video speed on your computer, there is no better alternative to Wondershare Filmora.
@@ -322,6 +308,24 @@ We have answered the frequently asked question, "how to do slow motion on Instag
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-review-of-syma-x5c-the-ultimate-drone-guide-for-new-users/"><u>[New] In 2024, Review of Syma X5C – The Ultimate Drone Guide for New Users</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-virtual-spaces-for-real-solutions/"><u>[New] In 2024, Virtual Spaces for Real Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-pc-hdr-views-and-edits/"><u>[New] Mastering PC HDR Views & Edits</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-expedite-your-experience-quick-iphone-time-lapse-for-2024/"><u>[Updated] Expedite Your Experience Quick iPhone Time-Lapse for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-full-analysis-and-how-to-the-ultimate-picsart-experience-for-2024/"><u>[Updated] Full Analysis and How-To The Ultimate PicsArt Experience for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-vr-game-creators-to-watch/"><u>[Updated] In 2024, Top VR Game Creators To Watch</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-de-following-immediate-awareness/"><u>[Updated] Instagram De-Following Immediate Awareness</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-ten-best-of-the-year-high-quality-4k-pcs-for-2024/"><u>[Updated] Top Ten Best of the Year High-Quality 4K PCs for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-the-elite-selection-of-stardew-customizations-and-updates/"><u>2024 Approved The Elite Selection of Stardew Customizations and Updates</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-understanding-cropping-settings-in-digital-editors/"><u>2024 Approved Understanding Cropping Settings in Digital Editors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-apple-tvs-latest-model-the-4k-upgrade-with-siri-accessibility/"><u>Comprehensive Guide to Apple TV's Latest Model: The 4K Upgrade with Siri Accessibility</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhance-efficiency-engage-creativity-with-mematic/"><u>Enhance Efficiency, Engage Creativity with Mematic</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-honor-magic-5-pro-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Honor Magic 5 Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-epic-sports-comparison-gopro-5-and-sjcam-sj7/"><u>In 2024, Epic Sports Comparison GoPro 5 & SJCAM SJ7</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-streamline-your-media-collection-with-funimate/"><u>In 2024, Streamline Your Media Collection with Funimate</u></a></li>
+<li><a href="https://fox-links.techidaily.com/premium-cameras-for-next-level-music-video-production-for-2024/"><u>Premium Cameras for Next-Level Music Video Production for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/researchers-at-the-university/"><u>Researchers at the University,</u></a></li>
+</ul></div>
 

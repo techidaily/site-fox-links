@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Professional Vision  Optimizing Video Lighting Techniques\""
-date: 2024-08-08T09:45:28.083Z
-updated: 2024-08-09T09:45:28.083Z
+date: 2025-02-13T16:06:00.487Z
+updated: 2025-02-15T16:55:46.660Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,10 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
@@ -58,10 +62,11 @@ The fill light is used to fill in the shadows created by the key light. It is us
 
 ##### Step3 Set the Backlight
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -69,9 +74,6 @@ For this tutorial, we use Aperture 120d as the backlight and lift it up into the
 
 Practical lights appear on the camera to add some visual flair. It can be any light source that isn't meant for lighting the subject. For example, we use a green lamp to help our background pop as it casts a nice orange light on the back wall.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
@@ -82,36 +84,34 @@ Finally, we have a few other small LED lights like this unicorn to put in the ba
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After setting up all the lighting above, you can take a look at the comparison below:
 
 **Using Key Light only**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Using Key Light + Fill + Backlight**
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -144,6 +144,21 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-top-8-ios-and-pc-tools-for-effortlessly-altering-your-videos/"><u>[New] In 2024, Top 8 iOS & PC Tools for Effortlessly Altering Your Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/1717086805762-new-photography-tutorial-how-to-shoot-and-create-impressive-hdr-portraits/"><u>[New] Photography Tutorial_ How to Shoot and Create Impressive HDR Portraits</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-step-by-step-grab-facebook-videos-on-both-oses/"><u>[New] Step-by-Step Grab Facebook Videos on Both OSes</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-crafting-dynamic-fb-video-covers-a-step-by-step-guide/"><u>[Updated] 2024 Approved Crafting Dynamic FB Video Covers A Step-by-Step Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-use-zoom-in-your-daily-gmail-routine/"><u>[Updated] How to Use Zoom in Your Daily Gmail Routine</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-smooth-transition-from-iphones-jpegpng-files-to-pdf-format/"><u>[Updated] In 2024, Smooth Transition From iPhone's JPEG/PNG Files to PDF Format</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-xbox-one-zoom-integration-essential-tips/"><u>[Updated] Xbox One Zoom Integration Essential Tips</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1726027488067-windows-10/"><u>【マルチメディア管理】Windows 10上で動画結合の詳細な手順とテクニック</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-xiaomi-14-ultra-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Xiaomi 14 Ultra Fingerprint Lock</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-elevate-status-with-a-personal-playlist/"><u>In 2024, Elevate Status With A Personal Playlist</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-infuse-vibrancy-mastering-music-integration-in-social-media-videos/"><u>In 2024, Infuse Vibrancy Mastering Music Integration in Social Media Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-strategic-steps-for-pinpointing-a-list-film-creators/"><u>In 2024, Strategic Steps for Pinpointing A-List Film Creators</u></a></li>
+<li><a href="https://fox-links.techidaily.com/smartphone-as-your-gateway-to-immersive-virtual-reality/"><u>Smartphone as Your Gateway to Immersive Virtual Reality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-mac-users-guide-to-utilizing-preview-to-its-maximum-for-2024/"><u>The Ultimate Mac User's Guide to Utilizing Preview to Its Maximum for 2024</u></a></li>
+</ul></div>
 

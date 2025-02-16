@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering the Art of Filter & Music Integration in Windows 10 Photos\""
-date: 2024-08-08T09:43:55.160Z
-updated: 2024-08-09T09:43:55.160Z
+date: 2025-02-14T00:02:15.019Z
+updated: 2025-02-15T22:19:04.327Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/dc8c23798056f26fbb4ba042d36186a35f13e6ccd
 
 # How to Add Filters and Music on Windows 10 Photos App
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -37,8 +34,9 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -51,17 +49,22 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
 ![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Just select one you like. Preview it and then click Done.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to add music on Windows 10 Photos App
 
 Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
@@ -72,24 +75,22 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 **Step 3**: Now, hit the ‘Create’ button from the top-right followed by dragging the video to Photos timeline. Later, hit on ‘Auio’ at top right.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
@@ -119,6 +120,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-a-list-steadicams-for-high-quality-dsrl-footage/"><u>[New] 2024 Approved A-List Steadicams for High-Quality DSRL Footage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-listening-landscapes-where-should-you-invest-more-time-podcasts-or-youtube-for-2024/"><u>[New] Listening Landscapes Where Should You Invest More Time – Podcasts or YouTube for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-perfect-wave-linker-the-podcastists-choice-for-2024/"><u>[New] Perfect Wave Linker The Podcastist's Choice for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-innovative-strategies-for-altering-pubg-speech/"><u>[Updated] 2024 Approved Innovative Strategies for Altering PUBG Speech</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-revealing-veiled-youtube-reviewers-opinions-for-2024/"><u>[Updated] Revealing Veiled YouTube Reviewers' Opinions for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-compre-written-analysis-hero4-black-operations/"><u>2024 Approved Compre Written Analysis Hero4 Black Operations</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/extracteur-de-dvd-et-conversion-video-professionnel-avec-fonctionnalites-de-transfert-ios-site-officiel-du-logiciel-winxdvd/"><u>Extracteur De DVD Et Conversion Vidéo Professionnel Avec Fonctionnalités De Transfert iOS - Site Officiel Du Logiciel WinXDVD</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Motorola G54 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-google-pixel-fold-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Google Pixel Fold Location Settings | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-time-honored-vhs-hacks-a-curators-choice-of-visual-tricks/"><u>In 2024, Time-Honored VHS Hacks A Curator’s Choice of Visual Tricks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-youtubes-role-in-shaping-brands-and-collaborations/"><u>In 2024, YouTube's Role in Shaping Brands & Collaborations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-name-selection-for-distinctive-youtube-channels-for-2024/"><u>Mastering Name Selection for Distinctive YouTube Channels for 2024</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/setting-up-automated-backups-two-proven-approaches/"><u>Setting Up Automated Backups: Two Proven Approaches</u></a></li>
+</ul></div>
 

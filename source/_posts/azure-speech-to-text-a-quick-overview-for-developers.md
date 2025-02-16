@@ -1,7 +1,7 @@
 ---
 title: "\"Azure Speech-to-Text  A Quick Overview for Developers\""
-date: 2024-07-29T06:24:58.645Z
-updated: 2024-07-30T06:24:58.645Z
+date: 2025-02-14T17:04:44.814Z
+updated: 2025-02-15T22:55:02.729Z
 tags: 
   - screen-recording
   - ai video
@@ -24,14 +24,8 @@ Are you tired of manually typing texts into document editors like Word and Notep
 
 [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: What is Microsoft Azure and Speech Studio?
 
 Microsoft Azure STT and TTS are part of **Microsoft Cognitive Services Speech**. These cognitive services feature state-of-the-art intelligence covering voice recognition, speaker recognition, machine translation, and OCR (Optical Character Recognition). The Microsoft speech to text service uses Azure Machine Learning (Azure ML) to auto-recognize, analyze, and convert human voices to editable and searchable texts.
@@ -56,6 +50,10 @@ Step3The program will take a while to deploy an instance. Now tap Keys and endpo
 
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
 
 Step5Now enter the Azure regional identifier and subscription key on Windows Terminal or PowerShell. To configure the region and key, run these commands; “**spx config @key --set SUBSCRIPTION-KEY** and **spx config @region --set REGION.**”
@@ -67,21 +65,15 @@ Step6Now it's time to convert speech to text using Azure STT Service. To do that
 **Note:** Click [this video](https://docs.microsoft.com/en-us/shows/one-dev-minute/how-to-use-the-azure-cognitive-services-net-speech-sdk-for-recognition) for a detailed guide on how to use Azure Speech Services with Visual Basic (SDK).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: What Are the Free Alternatives to the Microsoft Speech to Text Service?
 
 We should all agree that using Microsoft Azures Speech Service is not a walk in the park. You need some knowledge of programming and Windows Command Prompt. Even worse, you'll have to pay each time you want to convert speech to text after depleting the free credits.
 
 Fortunately, there's no shortage of free speech to text converters for beginners. So, in this part, we'll discuss some free Microsoft Azure STT alternatives for beginners.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### 1\. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Let's start with the best offline speech-to-text converter for macOS and Windows systems - Filmora. It's a video editor for creating award-winning videos without prior editing skills. Just upload your local video and edit it as you please. And yes, it works with a host of video formats.
@@ -89,6 +81,10 @@ Let's start with the best offline speech-to-text converter for macOS and Windows
 When you want to make perfect videos, you can use Filmora's STT feature. Wondershare Filmora Speech to Text is quite different with other STT service providers. Other STT platforms/stages require you to use the application to convert speech-to-text, save, and export into other third-party software. However, Wondershare Filmora allows you to directly convert your speech-to-text on an ongoing production. For example, you can convert speech into subtitles during a video production on Wondershare Filmora.
 
 What's more, now Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription in Filmora.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Top Adavantages of Filmora STT
 
@@ -106,23 +102,22 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 Select the audio asset in the timeline, and click the "Speech-to-Text" icon in the toolbar; if there is no supported file type on the timeline, it will not be displayed.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Google Docs - Free
 
 ![micrsoft azure speech to text alternative google docs](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-6.jpg)
@@ -155,6 +150,10 @@ Step2Drag-n-drop your video or audio file on the program and then choose the tra
 
 Step3Finally, click the transcribed text file to edit it with new texts and punctuations on the inbuilt editor. You can export your transcription in .txt, .srt, or .docx formats. Directly export to Google Drive is also available.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Final Words
 
 Up to this point, you should be ready to get started with the **Microsoft Cognitive Services Speech**. The speech-to-text feature allows you to convert unlimited voices to text on your computer. However, the program can be challenging to set up if you're not a techie.
@@ -167,9 +166,6 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 
@@ -189,4 +185,20 @@ In that case, use a more straightforward option like Google Docs to dictate text
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-action-seekers-dilemma-gopro-vs-yi-camera-showdown-revised/"><u>[Updated] 2024 Approved Action Seekers' Dilemma GoPro Vs. Yi Camera Showdown, Revised</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-breaking-down-the-abcd-a-guide-to-crafting-compelling-fb-text/"><u>[Updated] Breaking Down the ABCD A Guide to Crafting Compelling FB Text</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-clearing-clutter-background-removal/"><u>[Updated] Clearing Clutter Background Removal</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-exploring-interactive-boundaries-the-vision-of-mixed-reality/"><u>[Updated] In 2024, Exploring Interactive Boundaries The Vision of Mixed Reality</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-high-definition-options-best-4k-camera-support-systems/"><u>[Updated] In 2024, High Definition Options Best 4K Camera Support Systems</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-quickening-vimeo-content-streams/"><u>[Updated] In 2024, Quickening Vimeo Content Streams</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-strategies-for-combining-the-best-of-zoom-and-skype-video-calls/"><u>[Updated] In 2024, Strategies for Combining the Best of Zoom and Skype Video Calls</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-advanced-screen-recording-methods-on-dell-laptops/"><u>2024 Approved Advanced Screen Recording Methods on Dell Laptops</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210706157-9780876129913-a-ciencia-da-religiao/"><u>A Ciência da Religião | Free Book</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-installation-of-updated-canon-pixma-ts3322-drivers-the-ultimate-resource/"><u>Download & Installation of Updated Canon PIXMA TS3322 Drivers: The Ultimate Resource</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-unleash-clean-visuals-step-by-step-guide-to-backdrop-erasure/"><u>In 2024, Unleash Clean Visuals Step-By-Step Guide to Backdrop Erasure</u></a></li>
+<li><a href="https://fox-links.techidaily.com/step-by-step-download-and-personalize-whatsapp-ringtones-on-mobile-for-2024/"><u>Step-by-Step Download & Personalize WhatsApp Ringtones on Mobile for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-fixing-loadlibrary-failed-with-error-code-87-parameters-setup/"><u>Troubleshooting Guide: Fixing 'LoadLibrary Failed' With Error Code 87 – Parameters Setup</u></a></li>
+</ul></div>
 

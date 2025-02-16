@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] X-Treme Selfies  Vintage iPhone X Pics for 2024\""
-date: 2025-01-28T23:17:22.700Z
-updated: 2025-02-03T19:10:17.288Z
+date: 2025-02-08T19:25:22.704Z
+updated: 2025-02-15T20:54:15.665Z
 tags: 
   - screen-recording
   - ai video
@@ -41,7 +41,7 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For iPhone 7 Plus/8 Plus/X users
@@ -64,15 +64,15 @@ The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: imore
 
 Launch the Camera app, and swipe to the Portrait option, and then tap on the Camera Swap feature to start using the front camera on your iPhone. Find the Portrait Lightning feature in the camera's Portrait mode, then select one of the options provided by the Portrait Lightning such as Studio Light or Natural light, and proceed to snap a selfie by tapping on the shutter button.
 
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### For iPhone 8, 7 or older iPhones users
 
@@ -95,7 +95,7 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
@@ -108,10 +108,6 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
 #### [Defocus](https://itunes.apple.com/us/app/defocus/id1048310180?mt=8)
@@ -122,12 +118,16 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -155,21 +155,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-metaverse-promotion-essentials/"><u>[New] 2024 Approved Metaverse Promotion Essentials</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-exclusive-selection-of-high-caliber-free-luts/"><u>[New] Exclusive Selection of High-Caliber Free LUTs</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-boost-your-visual-storytelling-key-strategies-for-solo-videos/"><u>[New] In 2024, Boost Your Visual Storytelling Key Strategies for Solo Videos</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-iphone-hdr-capturing-dynamic-range-in-your-images/"><u>[New] IPhone HDR Capturing Dynamic Range in Your Images</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-ultimate-windows-edition-toolkit-for-videos-for-2024/"><u>[New] Ultimate Windows Edition Toolkit for Videos for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-proven-techniques-for-identifying-professional-video-artists/"><u>[Updated] 2024 Approved Proven Techniques for Identifying Professional Video Artists</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-streamline-your-soundtrack-selection-for-youtube/"><u>[Updated] Streamline Your Soundtrack Selection for YouTube</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-next-chapter-of-cinema-vr-revolution/"><u>[Updated] The Next Chapter of Cinema VR Revolution</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/direct-links-to-hp-officejet-3830-printer-software-for-windows-users/"><u>Direct Links to HP Officejet 3830 Printer Software for Windows Users</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-exploration-comparison-gopros-hero5-black-and-sessions/"><u>In 2024, Exploration Comparison GoPro's Hero5 Black & Sessions</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-top-tier-business-data-haven-selection/"><u>In 2024, Top-Tier Business Data Haven Selection</u></a></li>
-<li><a href="https://win11.techidaily.com/optimize-laptop-functionality-post-monitor-hookup/"><u>Optimize Laptop Functionality Post-Monitor Hookup</u></a></li>
-<li><a href="https://fox-links.techidaily.com/quick-and-simple-methods-integrating-clownfish-sounds-into-pc-speech-for-2024/"><u>Quick & Simple Methods Integrating Clownfish Sounds Into PC Speech for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/snapping-images-efficiently-screenshot-techniques-for-logitech-keyboards/"><u>Snapping Images Efficiently: Screenshot Techniques for Logitech Keyboards</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/step-by-step-guide-to-capturing-full-file-and-folder-urls-on-your-windows-11-system/"><u>Step-by-Step Guide to Capturing Full File & Folder URLs on Your Windows 11 System</u></a></li>
-<li><a href="https://win-blog.techidaily.com/step-by-step-solution-preventing-crashes-when-reconnecting-in-granblue-fantasy-pc/"><u>Step-by-Step Solution: Preventing Crashes When Reconnecting in Granblue Fantasy (PC)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-instant-screen-capture-pro-chrome/"><u>[New] 2024 Approved Instant Screen Capture Pro (Chrome)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-charting-new-territories-leading-6-artists-in-nft-landscape/"><u>[New] Charting New Territories Leading 6 Artists in NFT Landscape</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-covert-consumer-of-virtual-diaries/"><u>[New] In 2024, Covert Consumer of Virtual Diaries</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-enhance-your-social-media-experience-with-these-top-tools/"><u>[New] In 2024, Enhance Your Social Media Experience with These Top Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-seamless-blending-android-tips-for-multi-video-editing/"><u>[New] In 2024, Seamless Blending Android Tips for Multi-Video Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-ultimate-selections-premium-webcam-platforms/"><u>[New] In 2024, Ultimate Selections Premium Webcam Platforms</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-top-mobile-experiences-ios-and-androids-vr-hits/"><u>[New] Top Mobile Experiences IOS & Android's VR Hits</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-developing-mastery-in-professional-interview-processes/"><u>[Updated] Developing Mastery in Professional Interview Processes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-transforming-vr-skeletons-into-your-ideal-digital-persona/"><u>[Updated] In 2024, Transforming VR Skeletons Into Your Ideal Digital Persona</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-precision-photography-snippets-from-videos-on-windows-11/"><u>[Updated] Precision Photography Snippets From Videos on Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-transcoding-ttml-and-ssa-into-easy-to-use-srt-format/"><u>2024 Approved Transcoding TTML & SSA Into Easy-to-Use SRT Format</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/creative-tims-material-dashboard-2-enhanced-laravel-integration-with-expert-guidance-from-updivision/"><u>Creative Tim's Material Dashboard 2: Enhanced Laravel Integration with Expert Guidance From UPDIVISION</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/fives-best-quick-reliable-time-lapse-tools/"><u>Five's Best Quick, Reliable Time-Lapse Tools</u></a></li>
+<li><a href="https://discover-help.techidaily.com/guida-completa-al-miglior-metodo-per-spostare-windows-10-su-un-tiny-ssd/"><u>Guida Completa Al Miglior Metodo per Spostare Windows 10 Su Un Tiny SSD</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-step-in-step-approach-hulu-recording-tutorial-for-diverse-systems/"><u>In 2024, Step-In-Step Approach Hulu Recording Tutorial for Diverse Systems</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-unintended-erasure-violated-video-removal/"><u>In 2024, Unintended Erasure Violated Video Removal</u></a></li>
+<li><a href="https://fox-links.techidaily.com/reimagining-home-entertainment-with-lgs-bp550-update/"><u>Reimagining Home Entertainment with LG's BP550 Update</u></a></li>
+<li><a href="https://fox-links.techidaily.com/top-ios-slideshow-creation-tools-xs-max-a9-for-2024/"><u>Top iOS Slideshow Creation Tools (XS Max - A9) for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Understanding Virtual Reality's Basic Words"
-date: 2025-01-31T19:12:06.182Z
-updated: 2025-02-03T22:05:07.624Z
+date: 2025-02-08T16:14:05.613Z
+updated: 2025-02-15T21:38:28.483Z
 tags: 
   - screen-recording
   - ai video
@@ -31,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/3a153ca8f2151a31f0bfcdf6fa8070d85fd583f87
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Motion Platform
 
 It is a kind of highly controlled physical system which assists in the simulation of display motion into the real motion senses in the VR world. It provides life to all captured digital elements and let users believe that they are playing with a world of all living things.
@@ -46,6 +42,10 @@ Eye Tracking works the same as that of head tracking and assists to keep users e
 ## Head Tracking
 
 Here we are going to talk about the sensors that track the movement of users' heads and keeps images moving in such a manner that they match head positions perfectly. For example, if you are using an Oculus Rift then the head tracking feature will force your head to look up, down, right, and left so that you can see the world in the way virtual reality wish to make you see.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Motion Tracking
 
@@ -64,12 +64,16 @@ This term will be more often used when you enter the world of Virtual Reality be
 If you have ever experienced the world of Virtual Reality then you surely might have noticed that whenever you move your head in the directive motion then the visuals do not keep up accordingly, this is called latency. This is an unpleasant thing about Virtual Reality that adds a limitation to match virtual world with the real world. The lag caused by this latency period is a complaint from VR content users and it occurs due to a variety of reasons.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Immersion
 
 The combination of VR and MR leads to immersive experience of users where high-end manipulations can be done on images, sounds as well as other stimuli so that they can stay alive in an artificial environment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Field of View (FOV)
 
@@ -79,21 +83,17 @@ The term Field of View presents the angle of the visual field in degrees where i
 
 Screen resolution actually describes the number of pixels to be displayed on-screen during Virtual Reality scenes. Same as the concept of television monitor or computer screen, more number of pixels mean much better resolution and much clearer as well as the realistic quality of images. The technology of Virtual Reality serves with awesome resolution and cameras developed for capturing such images are designed to add more number of pixels per frame. With specially developed VR headsets, the screen is divided into two portions that are observed by each eye separately and the screen door effects added to VR technology makes users feel like they are watching through a door.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/)
 
 First of all, it is important to know the actual meaning of VR that stands for Virtual Reality. The VR immersion is actually achieved by mixing two most important senses of living beings that are vision as well as hearing; for this VR technology utilizes headphones and headsets. With VR environment you will feel real life in photographs also and the experience with memories will go amazing.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## [Augmented Reality](https://tools.techidaily.com/wondershare/filmora/download/)
 
 It is simply the process of overlaying digital elements or data on the real world so that you can interact with reality and digital elements on same platform. Although Augmented Reality technology is still running behind Virtual Reality, the day they will converge then real wonders will be created with mixed reality effects.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## [Mixed Reality](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -102,7 +102,7 @@ The convergence of Virtual and Augmented reality is known as mixed reality. MR c
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -130,22 +130,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-action-reel-extravaganza-7-premium-4k-cameras/"><u>[New] Action Reel Extravaganza 7 Premium 4K Cameras</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-preserving-your-periscope-content-a-detailed-process/"><u>[New] In 2024, Preserving Your Periscope Content A Detailed Process</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-captivating-viewers-top-10-creative-yt-reaction-tactics/"><u>[Updated] 2024 Approved Captivating Viewers Top 10 Creative YT Reaction Tactics</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-budget-friendly-flight-machines-the-cheapest-drone-list-for-2024/"><u>[Updated] Budget-Friendly Flight Machines The Cheapest Drone List for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-examining-wirecasts-features-against-competitors/"><u>[Updated] Examining WireCast's Features Against Competitors</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-frame-fastness-mastering-time-lapse-shots-with-samsung-for-2024/"><u>[Updated] Frame Fastness Mastering Time-Lapse Shots with Samsung for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-your-ultimate-guide-to-finding-tiktok-wallpapers/"><u>[Updated] In 2024, Your Ultimate Guide to Finding TikTok Wallpapers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-leading-the-charge-smart-transcription-in-professional-slides-for-2024/"><u>[Updated] Leading the Charge Smart Transcription in Professional Slides for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-rise-above-the-crowd-how-to-amass-over-a-million-video-views-for-2024/"><u>[Updated] Rise Above the Crowd How to Amass Over a Million Video Views for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/crafting-conversations-proven-techniques-for-telegram-engagement-for-2024/"><u>Crafting Conversations Proven Techniques for Telegram Engagement for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/delighted-user-registration-walkthrough/"><u>Delighted User Registration Walkthrough</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-guide-finding-the-correct-epson-xp-245-software-for-windows-7810/"><u>Step-by-Step Guide: Finding the Correct Epson XP 245 Software for Windows 7/8/10</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-list-best-tv-streaming-options-viewers/"><u>The Ultimate List: Best TV Streaming Options Viewers</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-cod-modern-warfare-3-battling-frames-per-second-fluctuations/"><u>Troubleshooting COD: Modern Warfare 3 - Battling Frames Per Second Fluctuations</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-steps-to-successfully-refresh-minecrafts-primary-application/"><u>Troubleshooting Steps to Successfully Refresh Minecraft's Primary Application</u></a></li>
-<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-oneplus-ace-2v-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from OnePlus Ace 2V? Here is How | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-elevating-engagement-split-screen-tactics-on-social-media-platforms/"><u>[New] Elevating Engagement Split Screen Tactics on Social Media Platforms</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-fundamental-skills-for-producing-emotionally-driven-testimonials/"><u>[New] Fundamental Skills for Producing Emotionally-Driven Testimonials</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-architects-of-unique-virtual-environments/"><u>[New] In 2024, Architects of Unique Virtual Environments</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-maximizing-focus-zooming-in-msteams-for-2024/"><u>[New] Maximizing Focus Zooming In MSTEAMS for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-leveraging-secondary-footage-for-visual-impact/"><u>[Updated] In 2024, Leveraging Secondary Footage for Visual Impact</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-masters-choice-10-preeminent-online-tools-for-vimeo-files-for-2024/"><u>[Updated] Master's Choice 10 Preeminent Online Tools for Vimeo Files for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-reconnecting-sound-tracks-to-obs-broadcasts/"><u>[Updated] Reconnecting Sound Tracks to OBS Broadcasts</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-secure-your-media-download-vimeo-to-mp4-for-2024/"><u>[Updated] Secure Your Media Download Vimeo to MP4 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-examining-audio-and-visual-content-podcasts-against-youtube/"><u>2024 Approved Examining Audio and Visual Content Podcasts Against YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-money-savers-budget-priced-vr-devices-china/"><u>2024 Approved Money Savers Budget-Priced VR Devices (China)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-artisans-guide-to-unique-photographic-assemblages/"><u>2024 Approved The Artisan's Guide to Unique Photographic Assemblages</u></a></li>
+<li><a href="https://fox-links.techidaily.com/a-comprehensive-guide-to-canon-time-lapse-video-for-2024/"><u>A Comprehensive Guide to Canon Time-Lapse Video for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/combining-youtube-tunes-and-film-vectors-for-2024/"><u>Combining YouTube Tunes and Film Vectors for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/full-slomo-recording-app-evaluation-future-outlook-for-2024/"><u>Full SloMo Recording App Evaluation - Future Outlook for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-capture-the-moment-a-guide-to-superior-webcam-recorders/"><u>In 2024, Capture the Moment - A Guide to Superior WebCam Recorders</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-vivo-v27-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Vivo V27 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/phantom-grip-advanced-camera-review-for-2024/"><u>Phantom Grip Advanced Camera Review for 2024</u></a></li>
 </ul></div>
 
