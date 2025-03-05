@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Strategies for Time Travel Visualization"
-date: 2025-02-09T17:55:04.827Z
-updated: 2025-02-15T18:18:48.381Z
+date: 2025-03-02T17:01:38.918Z
+updated: 2025-03-04T22:27:26.137Z
 tags: 
   - screen-recording
   - ai video
@@ -71,10 +71,6 @@ It is a very important step that you don't have to change the camera position du
 
 ![camera alignment](https://images.wondershare.com/filmora/article-images/2023/04/camera-alignment.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After setting all equipment, now it's time to allow the character to perform in front of the camera.
 
 **Character position**
@@ -121,15 +117,7 @@ You can also create a marking by using anything in yours. We are using the midli
 
 ![cross line between two rounds](https://images.wondershare.com/filmora/article-images/2023/04/cross-line-between-two-rounds.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After shooting all the clips, it's time to edit them on Filmora. To do this, check out the step to step guide below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. Edit Teleportation Effects in Filmora
 
@@ -205,10 +193,6 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 
 ![shape mask from the utility section](https://images.wondershare.com/filmora/article-images/2023/04/shape-mask-from-the-utility-section.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * After that, double-click on the nighttime clips, which will show the settings section of the clip.
 * Go to the Video Effects section and change the shape mask settings.
 * Tweak the mask settings until the nighttime clip appears on the left and the daytime clip with the character on the right.
@@ -218,10 +202,6 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 Play the video again and check out the smoothness of the actions. As we have already marked the points, that's why the actions match with each other and give an equivalent look!
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** If your video actions are not aligning with each other, then adjust again according to the requirements.
 
@@ -315,10 +295,6 @@ First, wrap the colorful divider around the LED light or any other light you're 
 
 ![wrap the led light with a plastic binder](https://images.wondershare.com/filmora/article-images/2023/04/wrap-the-led-light-with-a-plastic-binder.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Shoot the video now, and experiment with adding suspense, terror, and cheerful effects with various colors.
 
 ![final results after changing led light by colorful binders](https://images.wondershare.com/filmora/article-images/2023/04/final-results-after-changing-led-light-by-colorful-binders.jpg)
@@ -339,10 +315,6 @@ For the first round, the subject has to do acting for the daytime script. Let th
 
 In this article, we are doing a daytime performance in the first round. For this, the subject should go from right to left to step over for night time dimension.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### #1 night-time lighting setup
 
 In the second round, you have to create a nighttime action indicating that you need a night light. You have to change the costume of a subject as well as you can change the set too.
@@ -350,10 +322,6 @@ In the second round, you have to create a nighttime action indicating that you n
 To film a night mode, you need a warmer light, which is used to make shots for the second round. You can also use a light that is under 2700-3000 kelvins because it indicates warm light.
 
 ![night time warmer light](https://images.wondershare.com/filmora/article-images/2023/04/night-time-warmer-light.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You don't need to worry if you don't have enough budget to get this setup. Because plastic binders will make your way easy, and you can create your own at home, as told earlier.
 
@@ -366,10 +334,6 @@ In this round, the subject should start from the right to left and perform stepp
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### #3 cross line between two rounds
 
@@ -531,10 +495,6 @@ Congratulations! You have all done with the time travel teleportation effects an
 
 If you want to change the effects, then you can easily switch from the stock of the Wondershare Filmora. It gives unlimited creative and fun effects to interact with more audiences daily.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Making time travel videos is always fun as to watch them. You can quickly assemble these videos instantly by [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). There is no need to worry if you have thousands of effects on one platform.
@@ -569,18 +529,21 @@ Create for you and add different effects and experiment with new features. You w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-captivating-cuts-10-essential-filmora-edits-everyone-loves-for-2024/"><u>[New] Captivating Cuts 10 Essential Filmora Edits Everyone Loves for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-elevating-your-instagram-presence-a-guide-to-smart-hashtag-use-for-2024/"><u>[New] Elevating Your Instagram Presence A Guide to Smart Hashtag Use for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-determining-the-perfect-aspect-ratio/"><u>[New] In 2024, Determining the Perfect Aspect Ratio</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ranked-the-best-5-iphones-for-effortless-podcast-access/"><u>[Updated] 2024 Approved Ranked The Best 5 iPhones for Effortless Podcast Access</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-slowing-down-reality-crafting-slow-motion-videos-from-still-images-online/"><u>2024 Approved Slowing Down Reality Crafting Slow Motion Videos From Still Images Online</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expert-advice-on-how-to-take-perfect-screenshots-with-your-acer-notebook/"><u>Expert Advice on How to Take Perfect Screenshots with Your Acer Notebook</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-comprehensive-insight-into-simple-high-dynamic-range-capture/"><u>In 2024, Comprehensive Insight Into Simple High-Dynamic Range Capture</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-vivo-y28-5g-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Vivo Y28 5G FRP?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-nubia-red-magic-8s-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP from Nubia Red Magic 8S Pro?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-samsung-galaxy-a05-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Samsung Galaxy A05 Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/restoring-correct-win10-screen-size/"><u>Restoring Correct Win10 Screen Size</u></a></li>
-<li><a href="https://fox-links.techidaily.com/seamless-web-browsing-on-edge-with-picture-in-picture-mode-for-2024/"><u>Seamless Web Browsing on Edge with Picture-in-Picture Mode for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/trustworthy-advice-on-building-your-dream-machine-from-toms-hardware-pioneers/"><u>Trustworthy Advice on Building Your Dream Machine From Tom's Hardware Pioneers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-mastering-text-superimposition-windows-and-mac-edition/"><u>[New] In 2024, Mastering Text Superimposition Windows & Mac Edition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-prowess-in-color-correction-the-ultimate-11-tutorials/"><u>[New] Prowess in Color Correction The Ultimate 11 Tutorials</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-expert-tips-to-enhance-your-vlc-playback-in-macos/"><u>[Updated] 2024 Approved Expert Tips to Enhance Your VLC Playback in macOS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-how-to-change-your-voice-in-free-fire-game-free-solution-included/"><u>[Updated] 2024 Approved How to Change Your Voice in Free Fire Game? [Free Solution Included]</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-exploring-classical-works-free-for-all/"><u>[Updated] In 2024, Exploring Classical Works Free for All</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-metaverse-and-multimeva-a-comparative-study-of-features-for-2024/"><u>[Updated] Metaverse and Multimeva A Comparative Study of Features for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-free-mobile-live-stream-apps-essentials-for-smartphones/"><u>2024 Approved Free Mobile Live Stream Apps Essentials for Smartphones</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-resource-list-of-3d-fonts-online/"><u>2024 Approved Ultimate Resource List of 3D Fonts Online</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725290580161-windows-10113/"><u>必見！Windows 10/11で使える代表的なフリーコーデックパックの上位3つを紹介する - ストリーミングのたびに活用</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/find-and-save-your-deleted-iphone-photosvideos-premium-data-retrieval-software-available-for-sale/"><u>Find and Save Your Deleted iPhone Photos/Videos: Premium Data Retrieval Software Available for Sale</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-best-in-class-steadicam-equipment-for-drone-cinematography/"><u>In 2024, Best-in-Class Steadicam Equipment for Drone Cinematography</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/quick-guide-initiating-and-managing-android-zoom-calls-for-2024/"><u>Quick Guide Initiating & Managing Android Zoom Calls for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/restoring-clear-vision-fixing-iphone-lens-out-of-focus/"><u>Restoring Clear Vision Fixing iPhone Lens Out-of-Focus</u></a></li>
+<li><a href="https://fox-links.techidaily.com/subtle-screen-entry-sequence/"><u>Subtle Screen Entry Sequence</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/troubleshooting-silent-playback-solutions-for-plex-audio-issues-across-devices/"><u>Troubleshooting Silent Playback: Solutions for Plex Audio Issues Across Devices</u></a></li>
 </ul></div>
 

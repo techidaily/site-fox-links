@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering AE  Integrating Custom Typefaces for 2024\""
-date: 2025-02-09T17:11:17.176Z
-updated: 2025-02-15T20:23:24.113Z
+date: 2025-03-03T18:22:16.488Z
+updated: 2025-03-04T17:30:42.580Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ After Effects is one of the most promising video editing applications available 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How to add fonts to After Effects?
 
 Adding fonts to any video editor is a crucial part because texts add a story to the video projects. They have a great impact on the cinematic quality of any video. For informative videos, the style of font decides the tone in which the texts are displayed.
@@ -40,10 +36,6 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * For adding the Adobe Fonts to After Effects, you will first need to enable them by signing in to the Creative Cloud application on your desktop. To do that, first, open the Creative Cloud, navigate to Assets, and click on Fonts.
 
 ![enable fonts adobe after effects](https://images.wondershare.com/filmora/article-images/2022/07/enable-fonts-adobe-after-effects.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * This will direct you to the official website of Adobe Fonts where you can enable the fonts for your After Effects application. Once you are done with that click on the "Browse Fonts" and then in the opened tab, you will see a variety of fonts with their specified categories.
 
@@ -55,10 +47,6 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. Types of Fonts in After Effects
 
@@ -78,10 +66,6 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4\. Alternative ways to edit text fonts
 
 If for some reason you don't want to use After Effects on your device to edit your videos, or your PC is incompatible with your device, then [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a great alternative for you. Filmora is a paid application that is supported on both Windows as well as Mac and comes with a free version where you can try the different video editing features.
@@ -93,10 +77,6 @@ If for some reason you don't want to use After Effects on your device to edit yo
 These features also include adding texts and changing the fonts of those texts on your video. And for users who want to edit texts or fonts in their videos using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), here is how you can do it:
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
@@ -158,24 +138,24 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-audiovisual-quality-its-significance-in-video-ranking/"><u>[New] Audiovisual Quality Its Significance in Video Ranking</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-astonishing-critique-and-comparable-products-for-2024/"><u>[Updated] Astonishing Critique & Comparable Products for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-cost-cutting-camera-options-discover-top-6-cheap-action-cams/"><u>[Updated] Cost-Cutting Camera Options Discover Top 6 Cheap ACTION Cams</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-how-to-create-metaverse-avatar-with-ease-an-ultimate-guide-for-2024/"><u>[Updated] How to Create Metaverse Avatar with Ease An Ultimate Guide for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-expert-guide-to-enhancing-video-controls-and-performance/"><u>[Updated] In 2024, Expert Guide to Enhancing Video Controls and Performance</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-memes-mastermind/"><u>[Updated] Memes Mastermind</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-subtitles-that-shine-discover-the-best-free-online-tools/"><u>2024 Approved Subtitles That Shine - Discover the Best Free Online Tools</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/automatisierte-ordner-synchronisation-mit-nas-eine-einfache-anleitung-fur-windows-11-10-8-and-7/"><u>Automatisierte Ordner-Synchronisation Mit NAS: Eine Einfache Anleitung Für Windows 11, 10, 8 & 7</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/change-windows-10-taskbar-colors-with-these-easy-tips/"><u>Change Windows 10 Taskbar Colors with These Easy Tips</u></a></li>
-<li><a href="https://win-forum.techidaily.com/connecting-worldwide-through-top-networks-facebook-twitter-insta-gram-and-youtube/"><u>Connecting Worldwide Through Top Networks: Facebook, Twitter, Insta-Gram, and YouTube</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/essential-errors-to-steer-clear-of-with-chatgpt-for-effective-content-generation/"><u>Essential Errors to Steer Clear of with ChatGPT for Effective Content Generation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fallout-second-wasteland-directors-cut-critique-a-riveting-tactical-rpg-evaluation/"><u>Fallout: Second Wasteland - Director’s Cut Critique: A Riveting Tactical RPG Evaluation</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/find-and-install-samsung-nvme960-evo-driver-a-comprehensive-guide-for-windows-users/"><u>Find and Install Samsung Nvme960 EVO Driver - A Comprehensive Guide for Windows Users</u></a></li>
-<li><a href="https://fox-links.techidaily.com/high-quality-android-photoshoppers/"><u>High-Quality Android Photoshoppers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-complete-guide-to-help-you-choose-the-best-hdr-cameras/"><u>In 2024, Complete Guide to Help You Choose the Best HDR Cameras</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-discover-the-pinnacle-of-motion-capture-with-sj-cam-s6/"><u>In 2024, Discover the Pinnacle of Motion Capture with SJ-CAM S6</u></a></li>
-<li><a href="https://win-great.techidaily.com/overbrengen-windows-11-naar-een-nieuw-harde-schijf-3-gewone-oplossingen/"><u>Overbrengen Windows 11 Naar Een Nieuw Harde Schijf: 3 Gewone Oplossingen</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-downscaling-your-videos-from-ultra-hd-4k-to-full-hd-1080p-using-vlc-media-player/"><u>Step-by-Step Guide: Downscaling Your Videos From Ultra HD 4K to Full HD 1080P Using VLC Media Player</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-photos-from-oppo-a58-4g-by-fonelab-android-recover-photos/"><u>Undelete lost photos from Oppo A58 4G.</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-dji-mavic-pro-vs-gopro-karma/"><u>[New] In 2024, DJI Mavic Pro Vs GoPro Karma</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-simplify-your-remote-meetings-integrating-skype-and-zoom-for-2024/"><u>[New] Simplify Your Remote Meetings Integrating Skype and Zoom for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-explore-the-depths-of-video-clarity-comprehensive-guide-to-vce-22/"><u>[Updated] 2024 Approved Explore the Depths of Video Clarity - Comprehensive Guide to VCE 2.2</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-foremost-10-video-subtitling-services-online/"><u>[Updated] Foremost 10 Video Subtitling Services Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-harmonizing-platforms-linking-insta-and-tiktok-for-2024/"><u>[Updated] Harmonizing Platforms Linking Insta & TikTok for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-bringing-beats-integrating-music-in-inshot-editor/"><u>[Updated] In 2024, Bringing Beats Integrating Music in InShot Editor</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unleash-your-creativity-the-leading-phone-apps-for-image-stickers/"><u>[Updated] In 2024, Unleash Your Creativity The Leading Phone Apps for Image Stickers</u></a></li>
+<li><a href="https://app-tips.techidaily.com/closing-the-gap-between-desire-and-effort-in-building-responsible-ai-unpacked-by-zdnets-latest-analysis/"><u>Closing the Gap Between Desire and Effort in Building Responsible AI - Unpacked by ZDNET's Latest Analysis</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722871359638-comparing-ipad-pro-and-macbook-air-unveiling-key-distinctions/"><u>Comparing IPad Pro and MacBook Air: Unveiling Key Distinctions</u></a></li>
+<li><a href="https://some-tips.techidaily.com/defying-apples-recommendation-a-real-life-iphone-upgrade-trial/"><u>Defying Apple's Recommendation: A Real-Life iPhone Upgrade Trial</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-advice-how-to-quickly-grab-your-screen-content-on-any-computer/"><u>Expert Advice: How to Quickly Grab Your Screen Content on Any Computer</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-tecno-spark-10-4g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Tecno Spark 10 4G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-pro-quality-footage-selecting-the-ultimate-7-cameras/"><u>In 2024, Pro Quality Footage Selecting the Ultimate 7 Cameras</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-path-to-success-starts-on-screen-10-must-see-films/"><u>In 2024, The Path to Success Starts on Screen 10 Must-See Films</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mobile-and-desktop-no-cost-magnifier-toolkit/"><u>Mobile & Desktop No-Cost Magnifier Toolkit</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/secure-your-space-with-excellence-why-the-sale-on-arlo-pro-5s-makes-it-a-must-have-according-to-zdnet-only-180/"><u>Secure Your Space with Excellence: Why the Sale on Arlo Pro 5S Makes It a Must-Have, According to ZDNET | Only $180!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-selection-of-premium-tv-antennas-a-comprehensive-review-by-tech-savvy-experts/"><u>Ultimate Selection of Premium TV Antennas - A Comprehensive Review by Tech Savvy Experts</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-windows-power-management-tools-exploring-their-objectives-and-functions/"><u>Understanding Window's Power Management Tools: Exploring Their Objectives and Functions</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-vivo-t2-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Vivo T2 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

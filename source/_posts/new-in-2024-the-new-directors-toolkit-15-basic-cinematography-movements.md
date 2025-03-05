@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The New Director’s Toolkit  15 Basic Cinematography Movements\""
-date: 2025-02-11T23:44:03.601Z
-updated: 2025-02-15T23:17:35.998Z
+date: 2025-02-28T17:36:01.484Z
+updated: 2025-03-04T16:47:37.436Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,6 @@ We hope you read this article with all concentration so that your new project is
 
 ## Part 1: 7 Types of Shots in film You Should Know
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Establishing Shot
 
 As the name hints itself, this type of camera shot basically establishes the scene the audience sees as the [first shot of your movie](https://en.wikipedia.org/wiki/Establishing%5Fshot).
@@ -69,14 +65,6 @@ This type of camera shot is taken from a long distance. This brings the audience
 You will also allow the audience to know the emotional relationship to the environment where there is no need to show the character.
 
 ![Extreme Long Shot](https://images.wondershare.com/filmora/filmorapro/extreme-long-shot.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Long Shot
 
@@ -106,10 +94,6 @@ The purpose of this shot is to keep the character looking natural.
 
 ![Medium Shot](https://images.wondershare.com/filmora/filmorapro/medium-shot.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Close-Up shot
 
 The name brings a crystal clear image of the type of shot itself. With this shot, one brings out the character’s face thereby helping the audience to understand the emotional thoughts of the character.
@@ -118,10 +102,6 @@ This shot basically provides what you miss in the [medium shot](https://tools.te
 
 ![Close-Up shot](https://images.wondershare.com/filmora/filmorapro/close-up-shot.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Extreme Close Up
 
 To make the audience visualize only some features of the character, the Extreme Close-up comes in handy.
@@ -129,10 +109,6 @@ To make the audience visualize only some features of the character, the Extreme 
 This type of shot in films aims to fit the single feature on the entire screen. For instance, only the mouth, lips or eyes of the character are revealed in the frame.
 
 **You may also like:** [10 Best Free Security Camera Software >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Shots Angles for Camera
 
@@ -168,10 +144,6 @@ Also, the subject in these shots, faces the camera making their neck and shoulde
 
 ![Over-the-Shoulder Shot](https://images.wondershare.com/filmora/filmorapro/over-the-shoulder-shot.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 13\. Cut-In
 
 This shot typically cuts the screen into two or three or sometimes four parts.
@@ -196,10 +168,6 @@ For example, looking through the binoculars and shooting only where the characte
 
 ![Point of View Shot](https://images.wondershare.com/filmora/filmorapro/point-of-view-shot.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 To enhance the visual appearance of a movie, one has to master the types of shots in film. We have described every possible thing that we felt you need to know regarding this.
@@ -209,10 +177,6 @@ We hope you learnt well from this article and from now on will keep in mind all 
 Please help us by sharing your views on this so that we will update you with more such information. Thanks!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -239,19 +203,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-emulate-action-by-adding-blur-to-stillness/"><u>[New] 2024 Approved Emulate Action by Adding Blur to Stillness</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-navigate-effortlessly-inshots-role-in-video-crafting-on-devices/"><u>[New] 2024 Approved Navigate Effortlessly Inshot's Role in Video Crafting on Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-pictopeekles-easy-memes-with-a-twist/"><u>[New] 2024 Approved PictoPeekles Easy Memes with a Twist</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-expert-endorsed-the-top-10-camcorders-for-your-needs/"><u>[New] Expert-Endorsed The Top 10 Camcorders for Your Needs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-photographers-path-to-perfected-colors/"><u>[Updated] 2024 Approved The Photographer's Path to Perfected Colors</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-echoes-of-antiquity-tracing-the-footsteps-of-ancient-scribes-for-2024/"><u>[Updated] Echoes of Antiquity Tracing the Footsteps of Ancient Scribes for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-optimal-hash-tags-for-youtube-success-story/"><u>2024 Approved Optimal Hash Tags for YouTube Success Story</u></a></li>
-<li><a href="https://fox-links.techidaily.com/advanced-techniques-for-efficient-use-of-luts-in-cs6cc-for-2024/"><u>Advanced Techniques for Efficient Use of LUTs in CS6/CC for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-tecno-spark-10-pro-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Tecno Spark 10 Pro FRP In 3 Different Ways</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-on-iphone-13-pro-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently On iPhone 13 Pro</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-tiktok-watermark-remover-reviews-choose-the-best/"><u>New TikTok Watermark Remover Reviews Choose the Best</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cketing-traffic-the-power-of-collaborative-youtube-outros-for-2024/"><u>Skyrocketing Traffic The Power of Collaborative YouTube Outros for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-growing-dangers-of-unchecked-generative-ai-top-8-problematic-areas/"><u>The Growing Dangers of Unchecked Generative AI: Top 8 Problematic Areas</u></a></li>
-<li><a href="https://fox-links.techidaily.com/ultimate-guide-to-premium-gopro-case-selection/"><u>Ultimate Guide to Premium GoPro Case Selection</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-drone-photography-showdown-dji-fpv-vs-gopro-x/"><u>[New] Drone Photography Showdown DJi FPV Vs GoPro X</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-from-drama-to-film-shaping-realistic-dialogue-for-2024/"><u>[New] From Drama to Film Shaping Realistic Dialogue for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-enhance-efficiency-engage-creativity-with-mematic/"><u>[New] In 2024, Enhance Efficiency, Engage Creativity with Mematic</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unlock-the-secrets-to-intense-hdr-portraits/"><u>[New] Unlock the Secrets to Intense HDR Portraits</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-phone-videos-to-channel-fame-an-easy-path-for-new-entrepreneurs/"><u>[Updated] 2024 Approved From Phone Videos to Channel Fame An Easy Path for New Entrepreneurs</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-rapidly-finding-friends-on-facebooks-network/"><u>[Updated] 2024 Approved Rapidly Finding Friends on Facebook's Network</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-charting-a-course-for-growth-precise-youtube-stats-from-social-blades-hub-for-2024/"><u>[Updated] Charting a Course for Growth Precise YouTube Stats From Social Blade's Hub for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-turning-talk-into-top-tier-podcasts-writing-and-samples-included/"><u>[Updated] In 2024, Turning Talk Into Top-Tier Podcasts Writing & Samples Included</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-editing-playbook-for-breaking-into-viral-spots-on-tiktok/"><u>[Updated] Ultimate Editing Playbook for Breaking Into Viral Spots on TikTok</u></a></li>
+<li><a href="https://fox-links.techidaily.com/file-streamlining-top-strategies-for-smooth-pc-integration-for-2024/"><u>File Streamlining Top Strategies for Smooth PC Integration for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-amplifi-hds-mesh-technology-eradicates-dead-zones-in-your-wireless-internet-experience/"><u>How Amplifi HD's Mesh Technology Eradicates Dead Zones in Your Wireless Internet Experience</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-poco-c65-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Poco C65 Lock Screen Password</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-elite-circle-of-online-av-masters/"><u>In 2024, The Elite Circle of Online AV Masters</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-seventh-line-up-of-all-weather-action-cams/"><u>In 2024, The Seventh Line-Up of All-Weather Action Cams</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-ultimate-guide-to-basic-hdr-imaging/"><u>In 2024, The Ultimate Guide to Basic HDR Imaging</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-top-rated-free-vob-video-editors-for-pc-and-mac-for-2024/"><u>New Top-Rated Free VOB Video Editors for PC and Mac for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-blueprint-to-dominate-social-platforms/"><u>The Blueprint to Dominate Social Platforms</u></a></li>
 </ul></div>
 

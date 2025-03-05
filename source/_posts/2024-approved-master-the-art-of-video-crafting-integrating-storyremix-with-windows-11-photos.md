@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Master the Art of Video Crafting  Integrating StoryRemix with Windows 11 Photos\""
-date: 2024-08-23T03:00:28.285Z
-updated: 2024-08-24T03:00:28.285Z
+date: 2025-03-03T18:54:56.025Z
+updated: 2025-03-04T19:03:28.129Z
 tags: 
   - screen-recording
   - ai video
@@ -68,9 +68,6 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: How to create a Story Remix project from scratch
 
 Here is the guide –
@@ -81,10 +78,6 @@ Here is the guide –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-random-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 1. Hit on **Create video** afterwards.
 2. Now, you can preview, edit or share your video.
 
@@ -94,9 +87,6 @@ Story Remix has 3 major sections namely, media bin consists of files already inc
 
 In the following sections, we have segregated each editing feature of Story Mix for you to explore –
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### Adding a new theme
 
 A theme is a built-in feature in Photos, just like music, filters, and text styles. Adding a theme does everything on the go.
@@ -106,9 +96,6 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Adding image duration
 
 While adding media to the timeline in Story Mix, you will see that there is a default timeline for each image. To adjust the duration, you can do –
@@ -125,12 +112,6 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Adding motion
 
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
@@ -143,9 +124,6 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 1. Pick the video from timeline and choose ‘Trim’ button. Mark the trim area and click ‘Play’ to preview.
 2. Hit ‘Done’ in the end.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 5: How to add 3D effects to a Story Remix project
 
 Adding 3D special effects to video clips is one of the lucrative features of Photos app.
@@ -181,14 +159,8 @@ If you want to edit video, we recommend [Wondershare Filmora](https://tools.tech
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -212,6 +184,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-picture-perfect-pairings-expert-comparison-of-top-8k-televisions/"><u>[New] 2024 Approved Picture Perfect Pairings Expert Comparison of Top 8K Televisions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-creative-fusion-of-images-for-joyful-existence-for-2024/"><u>[New] Creative Fusion of Images for Joyful Existence for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-lost-video-steps-to-fix-sony-a6400-problem-for-2024/"><u>[New] Lost Video Steps to Fix Sony A6400 Problem for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-best-webcam-recorders-for-windows-10-for-2024/"><u>[New] The Best Webcam Recorders for Windows 10 for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-achieving-gradual-sound-boosts-with-lumafusion/"><u>[Updated] 2024 Approved Achieving Gradual Sound Boosts with Lumafusion</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ideal-vlogging-gear-the-best-15-cameras-ranked/"><u>[Updated] 2024 Approved Ideal Vlogging Gear The Best 15 Cameras Ranked</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-casino-confidential-communiques-for-2024/"><u>[Updated] CASINO CONFIDENTIAL COMMUNIQUES for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-list-for-capturing-instagram-vids-pcmac/"><u>[Updated] The Ultimate List for Capturing Instagram Vids (PC/Mac)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/detailed-methods-to-convert-tiktok-melodies-into-phone-ringtones/"><u>Detailed Methods to Convert TikTok Melodies Into Phone Ringtones</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-iphone-x-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your iPhone X Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-itel-p55-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Itel P55? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-separation-in-on-this-day-stories/"><u>Maintaining Separation in On This Day Stories</u></a></li>
+<li><a href="https://win11.techidaily.com/simplifying-the-process-of-activating-system-restore-in-windows-11/"><u>Simplifying the Process of Activating System Restore in Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unleashing-potential-the-easy-path-to-blending-linktree-with-tiktok-bios/"><u>Unleashing Potential The Easy Path to Blending Linktree with TikTok Bios</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-yokus-island-express-a-game-where-amazing-journeys-unfold/"><u>Unveiling Yoku's Island Express: A Game Where Amazing Journeys Unfold</u></a></li>
+</ul></div>
 

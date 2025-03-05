@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering Close-Up Cinematography  Essential Guidelines\""
-date: 2025-02-13T17:52:52.067Z
-updated: 2025-02-15T18:13:15.369Z
+date: 2025-02-27T19:23:09.820Z
+updated: 2025-03-04T18:14:19.790Z
 tags: 
   - screen-recording
   - ai video
@@ -69,19 +69,11 @@ Try to get great visual perspectives or angles by bracing the camera on the tree
 
 ![Tripod](https://images.wondershare.com/filmora/article-images/oconnor-ultimate-1030d-fluid-head-30l-cf-tripod.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\. Background
 
 The background of your macro video always remains blurred as you shoot it closely. But, the background color is visible so, choosing it correctly is vital. The color of the background must compliment your composition’s color and must be chosen creatively.
 
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 4\. DSLR Cameras
 
@@ -92,10 +84,6 @@ If you are a Canon user, you may opt for the 180 mm macro, 100 mm macro or the 6
 You may also add an extension tube which basically splits the focal distance in two equal halves and make the image size bigger but it decreases the depth of the field.
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 5\. Depth of Field
 
@@ -115,19 +103,11 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Once you can master the above tips for making the macro video, you can easily shoot small objects like a pro. A videographer’s experience and creativity can be matched even by you if you can easily grasp the techniques, practice it, and implement creatively while making your macro videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -154,18 +134,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-a-peek-behind-windows-curtain-top-30-undisclosed-tips-for-windows-11/"><u>[New] 2024 Approved A Peek Behind Window's Curtain Top 30 Undisclosed Tips for Windows 11</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-crafting-a-hit-on-youtube-name-generation-insights/"><u>[New] 2024 Approved Crafting a Hit on YouTube Name Generation Insights</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-8-unique-workout-concepts-for-a-pulse-raising-video-channel/"><u>[New] In 2024, 8 Unique Workout Concepts for a Pulse-Raising Video Channel</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-illuminating-insights-for-iphone-night-photos/"><u>[Updated] 2024 Approved Illuminating Insights for iPhone Night Photos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-conquer-the-vr-world-your-first-vr-adventure-for-2024/"><u>[Updated] Conquer the VR World Your First VR Adventure for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-todays-vr-hardware-review-for-2024/"><u>[Updated] Today's VR Hardware Review for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unleash-your-potential-top-8-tablets-for-stellar-photo-editing-for-2024/"><u>[Updated] Unleash Your Potential Top 8 Tablets For Stellar Photo Editing for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-blaze-curve-5g-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Lava Blaze Curve 5G Phone with Broken Screen</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-eradicate-commercial-breaks-in-facebook-videos/"><u>In 2024, Eradicate Commercial Breaks in Facebook Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-unleashing-creativity-a-guide-to-innovative-gopro-video-editing/"><u>In 2024, Unleashing Creativity A Guide to Innovative GoPro Video Editing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/key-steps-to-accurate-and-effective-market-research-analysis-for-2024/"><u>Key Steps to Accurate and Effective Market Research Analysis for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/photoshop-and-beyond-top-monitors-reviewed-editors-picks/"><u>Photoshop & Beyond Top Monitors Reviewed [Editors' Picks]</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/slash-prices-on-cameras-best-value-list-of-top-6-under-100-for-2024/"><u>Slash Prices on Cameras Best Value List of Top 6 Under $100 for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-push-boundaries-top-windows-10-innovations-in-games-and-apps/"><u>[New] 2024 Approved Push Boundaries Top Windows 10 Innovations in Games and Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-how-to-record-with-flair-on-windows-10/"><u>[New] How to Record with Flair on Windows 10</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-vector-art-our-picks-for-top-10-tools-in-industry-for-2024/"><u>[New] Mastering Vector Art Our Picks for Top 10 Tools in Industry for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-future-is-here-high-resolution-video-on-nikon-j5/"><u>[New] The Future Is Here High-Resolution Video on Nikon J5</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-webcam-innovations-for-enhanced-connectivity-for-2024/"><u>[New] Webcam Innovations for Enhanced Connectivity for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-efficient-ways-to-integrate-movies-into-your-youtube-catalog-for-2024/"><u>[Updated] Efficient Ways to Integrate Movies Into Your YouTube Catalog for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-elevate-your-driving-pleasure-with-essential-sj4000-gear/"><u>[Updated] Elevate Your Driving Pleasure with Essential SJ4000 Gear</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-cutting-edge-techniques-for-excellent-sound-no-mic-included/"><u>2024 Approved Cutting-Edge Techniques for Excellent Sound, No Mic Included</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-most-enjoyable-british-shows-on-netflix-this-week/"><u>Discover the Most Enjoyable British Shows on Netflix This Week</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-comparing-streaming-software-obs-vs-shadowplay/"><u>In 2024, Comparing Streaming Software OBS vs ShadowPlay</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-vivo-t2-pro-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Vivo T2 Pro 5G</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-first-timers-roadmap-earning-money-from-periscope-chats/"><u>In 2024, First-Timer's Roadmap Earning Money From Periscope Chats</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-oppo-reno-8t-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Oppo Reno 8T Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-mastering-avi-to-gif-conversion-windows-and-mac-edition-using-filmora/"><u>In 2024, Mastering AVI-to-GIF Conversion Windows & Mac Edition Using Filmora</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-memes-with-a-smile-builder-for-2024/"><u>Top Memes with a Smile Builder for 2024</u></a></li>
 </ul></div>
 

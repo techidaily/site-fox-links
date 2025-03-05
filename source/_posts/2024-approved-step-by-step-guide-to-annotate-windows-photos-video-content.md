@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Step-by-Step Guide to Annotate Windows Photos Video Content\""
-date: 2024-08-15T18:59:55.197Z
-updated: 2024-08-16T18:59:55.197Z
+date: 2025-02-27T17:57:10.182Z
+updated: 2025-03-04T16:32:04.243Z
 tags: 
   - screen-recording
   - ai video
@@ -51,9 +51,6 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -64,39 +61,24 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * On the right, find the effects sidebar and select any effect that you find suitable for your video text
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -121,6 +103,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-how-to-upload-without-rt-video-tweets/"><u>[New] In 2024, How to Upload Without RT Video Tweets</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-mac-acoustics-for-aspiring-artists/"><u>[Updated] In 2024, Mac Acoustics for Aspiring Artists</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-mastery-in-making-gifs-into-stickers-on-messaging-platforms-with-this-guide/"><u>[Updated] In 2024, Mastery in Making Gifs Into Stickers on Messaging Platforms with This Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-crafting-attention-grabbing-facebook-giveaways/"><u>2024 Approved Crafting Attention-Grabbing Facebook Giveaways</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-deciding-on-the-best-upgrade-for-your-4k-vision/"><u>2024 Approved Deciding on the Best Upgrade for Your 4K Vision</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-decoding-the-freeze-in-photo-booth-videos/"><u>2024 Approved Decoding the Freeze in Photo Booth Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-discover-overlooked-free-mac-speech-transcription-apps/"><u>2024 Approved Discover Overlooked Free Mac Speech Transcription Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-dissecting-the-social-media-landscape-the-case-of-triller-and-tiktok/"><u>2024 Approved Dissecting the Social Media Landscape The Case of Triller & TikTok</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-high-quality-inexpensive-countdown-apps/"><u>2024 Approved High-Quality Inexpensive Countdown Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-humorhexagonhub-photofunniesfactory/"><u>2024 Approved HumorHexagonHub PhotoFunniesFactory</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-zero-cost-frame-perfection-on-youtube-video-viewing/"><u>2024 Approved Zero-Cost Frame Perfection on YouTube Video Viewing</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-bounds-of-chatgpts-input-capacity-and-workarounds/"><u>Exploring the Bounds of ChatGPT's Input Capacity and Workarounds</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Oppo Reno 10 5G? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-id-from-your-iphone-11-without-security-questions-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID From your iPhone 11 without Security Questions?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/pursuing-seamless-integration-of-videos-on-instagram/"><u>Pursuing Seamless Integration of Videos on Instagram</u></a></li>
+</ul></div>
 

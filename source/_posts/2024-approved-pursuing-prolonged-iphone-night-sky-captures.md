@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Pursuing Prolonged iPhone Night Sky Captures\""
-date: 2024-08-15T19:01:30.625Z
-updated: 2024-08-16T19:01:30.625Z
+date: 2025-02-25T17:53:46.593Z
+updated: 2025-03-04T17:04:14.130Z
 tags: 
   - screen-recording
   - ai video
@@ -37,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
@@ -51,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4
  Next, take a live photo. This is a moving image, a bit like recording with your video camera, but much shorter. Try to keep the iPhone steady as you take your shot, and choose to shoot something that is continually moving, but with a relatively stable background. Something like cars going down a street is a great place to start.
 
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 
  Image resource: iPhoneMod
 
@@ -98,26 +91,17 @@ thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4
 * **Motion blur:** To give the sense of something really moving fast, a motion blur can be a captivating effect. From vehicles on the city street to a galloping horse, allowing the moving object to blur whilst everything else around it stays in focus can add a dose of drama to your shots.
 
 ![motion-blur-long-exposure](https://images.wondershare.com/filmora/article-images/motion-blur-long-exposure.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Image resource: Digital Photo Secrets
 
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
 
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Image resource: Nikonites
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## To conclude
 
  Using a digital SLR is looking less and less appealing these days, as Apple push the boundaries of what a phone can do ever further. If you're not using a device that supports Live Photos, try a workaround using a specifically developed app so that you can join in the fun too.
@@ -125,9 +109,6 @@ thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4
  With the iPhone camera long exposure shots could really up your game on social media. Whether you're a budding travel photographer, a wannabe stock photo entrepreneur or simply an Instagram lover who wants to impress their friends, have a play with the technology available to you and see what you can create. Long exposure shots are massively popular right now, so grab your iPhone and get snapping!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -152,6 +133,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-discover-the-leading-free-game-recording-tools/"><u>[New] Discover the Leading Free Game Recording Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tweet-visionary-free-transformation-of-youtube-vids-into-tweenish-graphics-for-2024/"><u>[Updated] Tweet Visionary Free Transformation of YouTube Vids Into Tweenish Graphics for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-boosting-engagement-adjusting-speed-of-instagram-stories/"><u>2024 Approved Boosting Engagement Adjusting Speed of Instagram Stories</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-chuckle-chamber-fast-track-to-funny-memes/"><u>2024 Approved Chuckle Chamber Fast Track to Funny Memes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-detailed-dissection-straightforward-hdr-methods/"><u>2024 Approved Detailed Dissection Straightforward HDR Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-essential-mac-mkv-software-list/"><u>2024 Approved Essential Mac MKV Software List</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-how-to-choose-between-portable-and-plugged-in-vr-headsets-picking-between-wireless-mobile-or-connected-tethered/"><u>2024 Approved How to Choose Between Portable and Plugged-In VR Headsets Picking Between Wireless (Mobile) or Connected (Tethered)?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-introduction-to-adding-new-fonts-in-ae/"><u>2024 Approved Introduction to Adding New Fonts in AE</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-step-up-your-game-advanced-video-trimming-techniques-in-windows-11/"><u>2024 Approved Step Up Your Game Advanced Video Trimming Techniques in Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-streaming-stakes-pewdiepies-earnings-examination/"><u>2024 Approved Streaming Stakes PewDiePie’s Earnings Examination</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-poco-x5-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Poco X5 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-call-history-from-lava-by-fonelab-android-recover-call-logs/"><u>Easy steps to recover deleted call history from Lava</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-internet-experience-the-ultimate-tp-link-re505x-wi-fi-expansion-device-evaluation/"><u>Elevate Your Internet Experience: The Ultimate TP-Link RE505X Wi-Fi Expansion Device Evaluation</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-get-the-latest-microsoft-surface-pro-4-device-drivers-for-windows-systems/"><u>How to Get the Latest Microsoft Surface Pro #4 Device Drivers for Windows Systems</u></a></li>
+<li><a href="https://windows11.techidaily.com/initiating-windows-11s-concealed-query-engine/"><u>Initiating Windows 11'S Concealed Query Engine</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-honor-90-gt-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Honor 90 GT Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+</ul></div>
 

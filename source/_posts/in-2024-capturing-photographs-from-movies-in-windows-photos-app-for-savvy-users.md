@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Capturing Photographs From Movies in Windows Photos App for Savvy Users"
-date: 2025-02-13T00:11:24.393Z
-updated: 2025-02-15T20:39:43.152Z
+date: 2025-02-25T18:39:19.170Z
+updated: 2025-03-04T23:47:31.902Z
 tags: 
   - screen-recording
   - ai video
@@ -52,10 +52,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -66,10 +62,6 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
 
@@ -84,10 +76,6 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -104,19 +92,11 @@ Here comes the guide –
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,22 +123,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-cyberspace-chronicles-journeying-through-10-sci-fi-metaverse-epics/"><u>[New] 2024 Approved Cyberspace Chronicles Journeying Through 10 Sci-Fi Metaverse Epics</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-six-secrets-to-holding-your-viewers-attention/"><u>[New] 2024 Approved The Six Secrets to Holding Your Viewers' Attention</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-hunt-down-the-best-free-vfx-platforms-for-your-editing-needs/"><u>[New] Hunt Down the Best Free VFX Platforms for Your Editing Needs</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-digital-chronicles-recording-and-preserving-your-roblox-playthroughs-on-macos/"><u>[New] In 2024, Digital Chronicles Recording and Preserving Your Roblox Playthroughs on MacOS</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-the-ultimate-action-review-sj7s-4k-star-video-capability-unveiled-for-2024/"><u>[New] The Ultimate Action Review SJ7's 4K Star Video Capability Unveiled for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/rack-your-traffic-the-straightforward-strategy-for-scrutinizing-youtube-earnings/"><u>[New] Track Your Traffic The Straightforward Strategy for Scrutinizing YouTube Earnings</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unleashing-the-potential-of-youtube-live-in-depth-insights-into-wirecast-streaming/"><u>[New] Unleashing the Potential of YouTube Live In-Depth Insights Into WireCast Streaming</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-creative-fusion-of-images-for-joyful-existence/"><u>[Updated] In 2024, Creative Fusion of Images for Joyful Existence</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-a-comprehensive-guide-to-embellishing-images-and-vids-in-windows-10s-photo-app/"><u>2024 Approved A Comprehensive Guide to Embellishing Images and Vids in Windows 10'S Photo App</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-navigating-metaverse-self-representation-a-step-by-step-manual/"><u>2024 Approved Navigating Metaverse Self-Representation A Step-by-Step Manual</u></a></li>
-<li><a href="https://fox-links.techidaily.com/budget-friendly-cloud-pricing-showdown/"><u>Budget-Friendly Cloud Pricing Showdown</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/demystifying-vimeo-top-choice-for-filmmakers-for-2024/"><u>Demystifying Vimeo Top Choice for Filmmakers for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-a-comparative-look-at-samsung-photo-tools/"><u>In 2024, A Comparative Look at Samsung Photo Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/navigating-the-world-of-windows-11s-in-built-high-dynamic-range-feature-for-2024/"><u>Navigating the World of Windows 11'S In-Built High Dynamic Range Feature for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/swift-action-on-slow-footage-with-best-apps/"><u>Swift Action on Slow Footage with Best Apps</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/syncing-chatgpt-and-siri-on-ios-tips-for-seamless-voice-assistant-experience/"><u>Syncing ChatGPT and Siri on iOS: Tips for Seamless Voice Assistant Experience</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-realme-10t-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Realme 10T 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-dream-lenses-guide-leading-6-in-high-definition-dslrs/"><u>[New] 2024 Approved Dream Lenses Guide Leading 6 in High-Definition DSLRs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-maximum-fps-impacting-low-motion-sequences/"><u>[New] 2024 Approved Maximum FPS Impacting Low-Motion Sequences</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-the-top-strategies-for-gamers-recording-with-windows-10/"><u>[Updated] In 2024, The Top Strategies for Gamers Recording with Windows 10</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-pip-google-chrome-across-devices/"><u>[Updated] Mastering PIP Google Chrome Across Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-rapid-training-image-transformation-for-dynamic-youtube-desktop-thumbnails-for-2024/"><u>[Updated] Rapid Training Image Transformation for Dynamic YouTube Desktop Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-revolutionize-your-memes-with-these-7-top-gif-creation-techniques-for-2024/"><u>[Updated] Revolutionize Your Memes with These 7 Top GIF Creation Techniques for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-best-steadicam-options-for-high-end-dslr-video-production-for-2024/"><u>[Updated] The Best Steadicam Options for High-End DSLR Video Production for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-ultimate-backdrop-change-kit-pixelpioneers-reveal/"><u>[Updated] Ultimate Backdrop Change Kit PixelPioneer's Reveal</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-docm-file-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How do i sign a .docm file electronically</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolve-unresponsive-behavior-in-windows-11-during-shutdown-process/"><u>Resolve Unresponsive Behavior in Windows 11 During Shutdown Process</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-tech-handbook-working-with-srt-files-on-a-mac-for-2024/"><u>The Ultimate Tech Handbook Working with SRT Files on a Mac for 2024</u></a></li>
 </ul></div>
 

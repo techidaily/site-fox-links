@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Actionable Guide  XMl-to-Srt Conversion Techniques\""
-date: 2025-02-11T22:54:11.990Z
-updated: 2025-02-15T19:31:55.952Z
+date: 2025-03-03T17:05:46.404Z
+updated: 2025-03-04T17:46:58.922Z
 tags: 
   - screen-recording
   - ai video
@@ -179,15 +179,7 @@ Step4 Now you have to wait patiently until the process completes and then you ca
 
 ![click on the new project](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-21.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The last subtitle format we’ll be converting into SRT is the VOB format. Let’s see how to do it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Convert VOB to SRT
 
@@ -233,10 +225,6 @@ Many users ask questions like “How do I open the SRT file with a video player 
 
 If that is your case then here's a bonus tip for you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bonus Tips: The Best Way to Edit the Styling of SRT Subtitles for Videos
 
 Adding the SRT subtitle file to the video is not a problem if you are using the right tool.
@@ -269,10 +257,6 @@ Step2 Now launch the software and click on the "New Project."
 
 ![download converted subtitles](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 After that, click on the "Import Media" or drag and drop the video as well as the SRT subtitle file here.
 
 ![convert stl to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-12.jpg)
@@ -280,10 +264,6 @@ Step3 After that, click on the "Import Media" or drag and drop the video as well
 nce done, first drag the video file to the video tract below and then the SRT subtitle file.
 
 ![select the type](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-28.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 "<https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-26.jpg>" alt="drag and drop" />
 
@@ -329,10 +309,6 @@ If you still have questions in your mind, leave them in the comment section belo
 
 * [Wondershare Filmora](#part8-1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What does SRT, SSA, XML, etc., look like?
 
 ### 1\. SRT
@@ -353,19 +329,11 @@ This subtitle format contains encoding, duration, and content of subtitles like 
 
 ![ttml subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. TTML
 
 This is an XML-based format that has a somewhat complicated look with <> appearing in many places.
 
 ![convert ttml to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. STL
 
@@ -496,10 +464,6 @@ Step4 Once done, the audio in the VOB file will be automatically converted to SR
 
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-20.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 After that, hit the “Export” button and a dropdown will appear.
 
 ![vob subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-6.jpg)
@@ -566,10 +530,6 @@ Step5 Lastly, hit the "Export" button to save the video having subtitles.
 
 ![go to the titles](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-27.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now on adding manual subtitles to your video.
 
 **Adding Manual subtitles on a video**
@@ -630,24 +590,19 @@ If you still have questions in your mind, leave them in the comment section belo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-top-80s-filters-and-effects-for-professional-videos/"><u>[New] 2024 Approved Top 80S Filters & Effects for Professional Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-best-selling-vr-games-on-oculus-devices/"><u>[New] Best-Selling VR Games on Oculus Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-calculating-20mb-video-length-in-secs/"><u>[New] In 2024, Calculating 20MB Video Length in Secs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-captivating-content-crafting-impactful-insta-videos/"><u>[New] In 2024, Captivating Content Crafting Impactful Insta-Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-videographers-packing-essentials-kit/"><u>[New] The Videographer's Packing Essentials Kit</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-high-tech-vr-handhelds-our-top-10-list/"><u>[Updated] In 2024, High-Tech VR Handhelds Our Top 10 List</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-rhythm-and-reel-the-imovie-music-guidebook/"><u>[Updated] Rhythm and Reel The iMovie Music Guidebook</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-tailoring-recording-techniques-in-audacity-for-professionals/"><u>[Updated] Tailoring Recording Techniques in Audacity for Professionals</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-top-8-enhanced-peripherals-for-a-richer-metaverse-experience/"><u>[Updated] Top 8 Enhanced Peripherals for a Richer Metaverse Experience</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-turn-fb-vids-into-savable-mp3-files-for-2024/"><u>[Updated] Turn FB Vids Into Savable MP3 Files for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/6-high-definition-21-hdmi-models-analyzed/"><u>6 High-Definition 2.1 HDMI Models Analyzed</u></a></li>
-<li><a href="https://fox-links.techidaily.com/celebrating-maker-spirits-creative-otu-packs/"><u>Celebrating Maker Spirits Creative OTU Packs</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-realme-10t-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Realme 10T 5G Is Unlocked</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-pro-with-imei-code-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 14 Pro with IMEI Code?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-introducing-sw320s-visionary-approach-to-4k-monitoring/"><u>In 2024, Introducing Sw320’s Visionary Approach to 4K Monitoring</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-reigning-reddit-stars-10-all-time-favorites/"><u>In 2024, Reigning Reddit Stars 10 All-Time Favorites</u></a></li>
-<li><a href="https://driver-install.techidaily.com/printer-interface-for-officejet-7740/"><u>Printer Interface for Officejet 7740</u></a></li>
-<li><a href="https://fox-links.techidaily.com/transforming-personal-narratives-best-practices-for-video-praise-for-2024/"><u>Transforming Personal Narratives Best Practices for Video Praise for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-transform-your-videos-learn-how-to-add-effects-in-fcp-x-in-3-steps/"><u>Updated In 2024, Transform Your Videos Learn How to Add Effects in FCP X in 3 Steps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-the-use-of-look-up-tables-in-photoshop-cc-for-2024/"><u>[Updated] Navigating the Use of Look-Up Tables in Photoshop CC for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-navigating-the-world-with-a-fisheye-lens-for-2024/"><u>[Updated] Navigating the World with a Fisheye Lens for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-vivo-t2-5g-frp-by-drfone-android/"><u>How Can We Bypass Vivo T2 5G FRP?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-ice-and-velocity-memorable-moments-from-the-winter-olympics-snowboard-race/"><u>In 2024, Ice & Velocity Memorable Moments From the Winter Olympics Snowboard Race</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-apple-iphone-13-pro-max-drfone-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-top-notch-tricks-to-nail-every-green-screen-shot/"><u>In 2024, Top-Notch Tricks to Nail Every Green Screen Shot</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-novel-window-11-secrets-for-enhanced-usage/"><u>In 2024, Unveiling Novel WINDOW 11 Secrets for Enhanced Usage</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/lpddr5x-camm2-teamgroup-expands-options-with-their-innovative-compact-memory-modules-now-boasting-advanced-ai-features/"><u>LPDDR5X CAMM2: TeamGroup Expands Options with Their Innovative, Compact Memory Modules - Now Boasting Advanced AI Features</u></a></li>
+<li><a href="https://fox-links.techidaily.com/must-visit-web-resources-for-text-aesthetics-and-functionality/"><u>Must-Visit Web Resources for Text Aesthetics & Functionality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/premiere-pro-starter-pack-2023-edition-free/"><u>Premiere Pro Starter Pack - 2023 Edition (Free)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-ultimate-guide-to-rapidly-discover-friends-for-2024/"><u>The Ultimate Guide to Rapidly Discover Friends for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshoot-and-fix-your-minecraft-game-when-you-encounter-error-code-5/"><u>Troubleshoot and Fix Your Minecraft Game When You Encounter Error Code 5</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/unveiling-solutions-to-persistent-outlook-app-shutdowns-expert-tips/"><u>Unveiling Solutions to Persistent Outlook App Shutdowns: Expert Tips</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-top-7-audio-workstation-software-alternatives-to-audacity-for-your-android-smartphone/"><u>Updated Top 7 Audio Workstation Software Alternatives to Audacity for Your Android Smartphone</u></a></li>
 </ul></div>
 

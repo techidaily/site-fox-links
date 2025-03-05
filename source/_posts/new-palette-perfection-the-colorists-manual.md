@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Palette Perfection  The Colorist's Manual\""
-date: 2025-02-13T17:57:42.010Z
-updated: 2025-02-15T16:42:31.662Z
+date: 2025-02-25T18:29:59.344Z
+updated: 2025-03-04T22:13:20.768Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,6 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
@@ -45,19 +41,11 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -66,10 +54,6 @@ These colors always work as they create contrast and stability.
 The blue lines represent what is known as split contrasting colors and these will create balance with each other.
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## But How Do I Use This
 
@@ -84,10 +68,6 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -123,19 +103,17 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-conquering-the-top-5-common-instagram-video-issues/"><u>[New] 2024 Approved Conquering the Top 5 Common Instagram Video Issues</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-why-are-my-videos-rotated-in-instagram-answers-needed/"><u>[New] 2024 Approved Why Are My Videos Rotated in Instagram? Answers Needed</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-analyzing-aurora-hdrs-impact-on-visual-experience/"><u>[New] Analyzing Aurora HDR's Impact on Visual Experience</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-soundquality-synopsis/"><u>[New] SoundQuality Synopsis</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-evaluating-video-space-on-a-64gb-card/"><u>[Updated] Evaluating Video Space on a 64GB Card</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-avoiding-camera-induced-image-disruption/"><u>[Updated] In 2024, Avoiding Camera-Induced Image Disruption</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unveiling-t-series-youtube-earnings/"><u>[Updated] In 2024, Unveiling T-Series' Youtube Earnings</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-smart-screenshot-assembly-leading-androidiphone-montage-aids/"><u>[Updated] Smart Screenshot Assembly Leading Android/iPhone Montage Aids</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-discovering-samsungs-updated-ultrablade-k850/"><u>2024 Approved Discovering Samsung's Updated UltraBlade K850</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-huawei-p60-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Huawei P60 System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1725289004894-mp3/"><u>途切れない品質―ビデオからMP3へ圧縮せずに変換方法</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-the-best-in-class-evaluating-the-top-8-sub-to-srt-convertors/"><u>In 2024, The Best in Class Evaluating the Top 8 Sub to SRT Convertors</u></a></li>
-<li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/locked-out-of-apple-iphone-se-5-ways-to-get-into-a-locked-apple-iphone-se-drfone-by-drfone-ios/"><u>Locked Out of Apple iPhone SE? 5 Ways to get into a Locked Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-from-hd-to-breathtaking-eizos-newest-4k-display/"><u>[New] 2024 Approved From HD to Breathtaking EIZO's Newest 4K Display</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-live-stream-showdown-pick-your-favorite-vmix-or-wirecast/"><u>[New] Live Stream Showdown Pick Your Favorite, VMix or Wirecast</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-ultimate-roundup-unleashing-the-best-5-online-title-makers-for-2024/"><u>[New] The Ultimate Roundup Unleashing the Best 5 Online Title Makers for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-youtube-thumbnails-saving-guide-for-2024/"><u>[Updated] Free YouTube Thumbnails Saving Guide for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-a-step-by-step-guide-to-zoom-use-on-windows-pcs-win10/"><u>[Updated] In 2024, A Step-by-Step Guide to Zoom Use on Windows PCs (Win10)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-precision-editing-unveiled-harnessing-the-potential-of-ps-background-erasure-feature/"><u>[Updated] Precision Editing Unveiled Harnessing the Potential of PS Background Erasure Feature</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-advancing-beyond-vp9-a-look-at-av1/"><u>2024 Approved Advancing Beyond VP9 A Look at AV1</u></a></li>
+<li><a href="https://fox-links.techidaily.com/experts-recommendations-for-image-watermarking-for-2024/"><u>Expert's Recommendations for Image Watermarking for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/how-analysis-of-paralympics-and-olympics-data-can-drive-energy-efficiency-at-the-upcoming-games-a-zdnet-perspective/"><u>How Analysis of Paralympics & Olympics Data Can Drive Energy Efficiency at the Upcoming Games: A ZDNet Perspective</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-oneplus-11r-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best OnePlus 11R Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-zoom-and-gmail-collaboration-methods/"><u>The Ultimate Zoom and Gmail Collaboration Methods</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/vrijblijvend-en-kostenloos-konverteren-van-wma-in-mpeg-via-de-web-movavi/"><u>Vrijblijvend en Kostenloos Konverteren Van WMA in MPEG via De Web - Movavi</u></a></li>
 </ul></div>
 
